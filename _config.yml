@@ -13,10 +13,10 @@
 # you will see them accessed via {{ site.title }}, {{ site.email }}, and so on.
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
-title: Lens Theme
-description: > # A blog about travel, adventure and stories from the road.
+title: Crevard Stylé
+description: 'Blog sur la sape et le style de vie' # A blog about travel, adventure and stories from the road.
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site
+url: "https://darkh2.github.io" # the base hostname & protocol for your site
 permalink: :title
 
 # Build settings
@@ -31,3 +31,10 @@ nav_list:
   Travel : ['Travel', '/category/travel']
   Inspiration : ['Inpiration', '/category/inspiration']
   Contact : ['Contact', '/contact/']
+  Accueil : ['Accueil', '/']
+  Heykel : ['Heykel', '/author/heykel']
+  CrevardStyle : ['Crevard Stylé', '/category/crevard-style']
+  CrevardBlinde : ['Crevard Blindé', '/category/crevard-blinde']
+  DeveloppementPersonnel : ['Developpement Personnel', '/category/developpement-personnel']
+  Skills : ['Skills', '/category/skills']
+  APropos : ['à propos', '/a-propos']
