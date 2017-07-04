@@ -1,9 +1,0 @@
----
-layout: category
-category_slug: ninjutsu
-category_name: ninjutsu
-category_description: Technique ancestral de ninja
-category_feature_image: feature-sea.jpg
-parmalink: /category/heykel/
-published: true
----
