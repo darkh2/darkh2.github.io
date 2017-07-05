@@ -2,7 +2,7 @@
 layout: page
 title: à propos
 feature_image: feature-plantpot.jpg
-permalink: /about/
+permalink: /a-propos/
 footer: A blog about travel
 ---
 
