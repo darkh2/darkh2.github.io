@@ -35,3 +35,6 @@
 {% unless author.snapchat_url == nil %}
   <a class="social-icon" href="{{author.snapchat_url}}"><i class="fa fa-snapchat-ghost"></i></a>
 {% endunless %}
+{% unless author.mail_url == nil %}
+  <a class="social-icon" href="{{author.mail_url}}"><i class="fa fa-envelope-ghost"></i></a>
+{% endunless %}

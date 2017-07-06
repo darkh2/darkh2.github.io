@@ -53,7 +53,7 @@ tom-jackson:
 heykel:
     name: Hyke
     slug: hyke
-    url: crevardstyle@gmail.com
+    url: https://darkh2.github.io
     bio: Un Homme se doit de développer son propre style, certes, mais sans pour autant se ruiner.
     location: Montpellier, France
     avatar_image: hkye.jpg
@@ -61,3 +61,4 @@ heykel:
     permalink: /author/hyke
     facebook_url: http://facebook.com/crevardstyle
     instagram_url: http://instagram.com/crevardstyle
+    mail_url: crevardstyle@gmail.com
