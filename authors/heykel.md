@@ -1,5 +1,5 @@
 ---
 layout: author
-author_slug: heykel
-permalink: /author/heykel/
+author_slug: hyke
+permalink: /author/hyke/
 ---
