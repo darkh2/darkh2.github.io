@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2016-02-11 08:50:28
-categories: travel storytime
+categories: travel storytime articles crevard-style divers exceptions skills
 author_slug: michelle-jones
 is_featured: false
 feature_image: feature-roadtrip.jpg
