@@ -51,23 +51,13 @@ tom-jackson:
     dribbble_url: http://dribbble.com/tomjacksonnet
 
 heykel:
-    name: heykel
-    slug: heykel
-    url: http://writingontheroad.COM
-    bio: Devoted social media fan. Travel practitioner. General pop culture fanatic. Passionate beer enthusiast.
-    location: London, England
-    avatar_image: michelle.jpg
-    cover_image: feature-plantpot.jpg
-    permalink: /author/heykel
-    twitter_url: http://twitter.com/michellejoneswriter
-    facebook_url: http://facebook.com/michellejoneswriter
-    instagram_url: http://instagram.com/michellejoneswriter
-    tumblr_url: http://tumblr.com/michellejoneswriter
-    dribbble_url: http://dribbble.com/michellejoneswriter
-    github_url: http://github.com/michellejoneswriter
-    reddit_url: http://github.com/michellejoneswriter
-    google_url: http://gogole.com/michellejoneswriter
-    pintrest_url: http://example.com/michellejoneswriter
-    vine_url: http://example.com/michellejoneswriter
-    vimeo_url: http://example.com/michellejoneswriter
-    snapchat_url: http://example.com/michellejoneswriter
+    name: Hyke
+    slug: hyke
+    url: crevardstyle@gmail.com
+    bio: Un Homme se doit de développer son propre style, certes, mais sans pour autant se ruiner.
+    location: Montpellier, France
+    avatar_image: hkye.jpg
+    cover_image: feature-lost.jpg
+    permalink: /author/hyke
+    facebook_url: http://facebook.com/crevardstyle
+    instagram_url: http://instagram.com/crevardstyle
