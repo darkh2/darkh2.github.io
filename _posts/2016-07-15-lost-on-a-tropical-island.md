@@ -5,6 +5,7 @@ categories: travel inspiration
 author_slug: sarah-smith
 is_featured: false
 feature_image: feature-tropical.jpg
+published: true
 ---
 
 Sass is completely compatible with all versions of CSS. We take this compatibility seriously, so that you can seamlessly use any available CSS libraries.

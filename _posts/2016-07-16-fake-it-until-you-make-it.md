@@ -5,6 +5,7 @@ categories: travel
 author_slug: sarah-smith
 is_featured: false
 feature_image: feature-fire.jpg
+published: true
 ---
 
 Don't listen to your critics, most people spend all day talking about what others are doing and no time doing anything themselves.

@@ -5,6 +5,7 @@ categories: travel inspiration
 author_slug: tom-jackson
 is_featured: true
 feature_image: feature-woods.jpg
+published: true
 ---
 
 Get out of your head. Every good decision starts with a moment of action. What are you going to do today!
