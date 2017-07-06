@@ -1,7 +1,15 @@
 <!DOCTYPE html>
-<html lang="{{ page.lang | default: site.lang | default: "en" }}">
+<html lang="{{ page.lang | default: site.lang | default: "fr" }}">
 
   {% include head.html %}
+
+
+<div class="col-sm-12">
+  <style>
+    @import url('https://fonts.googleapis.com/css?family=Lobster');
+  </style> 
+  <h1 style="font-family: 'Lobster', cursive; text-align: center; font-size: large; color: white">Crevard Stylé</h1>
+</div>
 
   <body class="{% if layout.bodyclass %}{{ layout.bodyclass }}{% endif %}">
     {% include navigation.html %}
