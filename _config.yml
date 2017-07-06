@@ -36,5 +36,5 @@ nav_list:
   Accueil : ['Accueil', '/']
   Hyke : ['Hyke', '/author/hyke']
   Exceptions : ['Exceptions', '/category/exceptions']
-  #Contact : ['Contact', '/contact/']
+  Contact : ['Contact', '/contact/']
   APropos : ['à propos', '/a-propos']
