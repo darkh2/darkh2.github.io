@@ -1,3 +1,11 @@
+---
+layout: page
+title: à propos
+feature_image: feature-plantpot.jpg
+permalink: /a-propos/
+footer: © 2007, Crevard Stylé by Hyke – All rights reserved – Credits
+---
+
 <!DOCTYPE html>
 <html lang="{{ page.lang | default: site.lang | default: "fr" }}">
 
@@ -28,5 +36,16 @@
     <script type="text/javascript" src="{{ "/js/index.js" | prepend: site.baseurl }}"></script>
 
   </body>
+
+<footer class="page__footer">
+    <div class="container">
+        <div class="col-sm-12 col-md-8 col-md-offset-2 ">
+            <p>
+                {{page.footer}}
+            </p>
+        </div>
+    </div>
+</footer>
+
 
 </html>
