@@ -1,6 +1,7 @@
 ---
 layout: default
 comments: true
+footer: © 2007, Crevard Stylé by Hyke – All rights reserved – Credits
 ---
 {% assign author = site.data.authors[page.author_slug] %}
 
@@ -72,3 +73,12 @@ comments: true
   </div>
   <!-- Fin Disqus -->
 
+<footer class="page__footer">
+    <div class="container">
+        <div class="col-sm-12 col-md-8 col-md-offset-2 ">
+            <p>
+                {{page.footer}}
+            </p>
+        </div>
+    </div>
+</footer>
