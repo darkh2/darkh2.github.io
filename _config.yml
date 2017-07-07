@@ -16,7 +16,7 @@
 title: Crevard Stylé
 description: 'Blog sur la sape et le style de vie' # A blog about travel, adventure and stories from the road.
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "http://crevardstyle.com/"
+url: "http://crevardstyle.com/" # the base hostname & protocol for your site
 #url: "https://darkh2.github.io" # the base hostname & protocol for your site
 permalink: :title
 
@@ -37,5 +37,5 @@ nav_list:
   Skills : ['Skills', '/category/skills']
   Divers : ['Divers', '/category/divers']
   Hyke : ['Hyke', '/author/hyke']
-  Contact : ['Contact', '/contact/']
-  APropos : ['à propos', '/a-propos']
+  #Contact : ['Contact', '/contact/']
+  #APropos : ['à propos', '/a-propos']
