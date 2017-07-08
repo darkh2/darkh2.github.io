@@ -1,9 +1,9 @@
 ---
 layout: page
-title: Présentation
+title: à propos
 feature_image: feature-plantpot.jpg
-permalink: /presentation/
-footer: A© 2007, Crevard Stylé by Hyke – All rights reserved – Credits
+permalink: /a-propos/
+footer: A blog about travel
 ---
 
 <p>

@@ -25,7 +25,6 @@ markdown: kramdown
 
 nav_list:
   Home : ['Home', '/']
-  Presentation : ['Présentation', '/presentation']
   #About : ['About', '/about']
   #Michelle : ['Michelle', '/author/michelle']
   #Sarah : ['Sarah', '/author/sarah']
