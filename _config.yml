@@ -25,8 +25,8 @@ markdown: kramdown
 
 nav_list:
   Home : ['Home', '/']
-  CrevardStyle : ['Crevard Stylé', '/category/crevard-style']
   Presentation : ['Présentation', '/presentation']
+  CrevardStyle : ['Crevard Stylé', '/category/crevard-style']
   Articles : ['Articles', '/category/articles']
   Exceptions : ['Exceptions', '/category/exceptions']
   Skills : ['Skills', '/category/skills']
