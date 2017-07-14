@@ -5,6 +5,21 @@ bodyclass: full-height
 
 <div class="container full-container full">
     <div class="row full">
+
+          <div class="col-sm-12 hero" style="background-image: url({{ site.baseurl }}/img/feature-water.jpg);">
+                <div class="overlay">
+                    <style>
+                      @import url('https://fonts.googleapis.com/css?family=Lobster');
+                    </style>
+                    <h1 class="animated fadeIn delay-2 hero__title--tag" style="font-family: 'Lobster', cursive;">Crevard Stylé</h1>
+                    <p class="hero__content animated fadeIn delay-2">Un homme se doit de développer son propre style, certes, mais sans pour autant se ruiner.</p>
+
+                          <a href="{{/author/hyke | prepend: site.baseurl}}" class="hero___avatar-link"><img src="{{ site.baseurl }}/img/hyke.jpg" alt="Hyke" class="hero__content__avatar animated fadeIn delay-2" alt=""></a>
+                      <p class="hero__content post-preview__meta animated fadeIn delay-2">Hyke</p>
+
+                </div>
+            </div>
+
           {% for post in site.posts %}
 
 
@@ -21,23 +36,6 @@ bodyclass: full-height
                   </div>
               </div>
               {% else %}-->
-
-
-
-              <div class="col-sm-12 hero" style="background-image: url({{ site.baseurl }}/img/feature-water.jpg);">
-                <div class="overlay">
-                    <style>
-                      @import url('https://fonts.googleapis.com/css?family=Lobster');
-                    </style>
-                    <h1 class="animated fadeIn delay-2 hero__title--tag" style="font-family: 'Lobster', cursive;">Crevard Stylé</h1>
-                    <p class="hero__content animated fadeIn delay-2">Un homme se doit de développer son propre style, certes, mais sans pour autant se ruiner.</p>
-
-                          <a href="{{/author/hyke | prepend: site.baseurl}}" class="hero___avatar-link"><img src="{{ site.baseurl }}/img/hyke.jpg" alt="Hyke" class="hero__content__avatar animated fadeIn delay-2" alt=""></a>
-                      <p class="hero__content post-preview__meta animated fadeIn delay-2">Hyke</p>
-
-                </div>
-            </div>
-
 
 
               <div class="col-sm-6 col-md-4 col-lg-3 post-preview {% if post.is_featured %} post--featured {% endif %}" style="background-image: url({{ site.baseurl }}/img/{{post.feature_image}});">
