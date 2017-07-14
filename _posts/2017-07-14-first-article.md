@@ -5,7 +5,7 @@ date: 2017-07-14T00:00:00.000Z
 categories: articles
 author_slug: hyke
 is_featured: false
-feature_image: feature-roadtrip.jpg
+feature_image: 20170513_171424.jpg
 ---
 Pour écrire un titre:
 #TITRE (pas besoin car le template recupere le titre depuis le nom de ton article)
@@ -59,3 +59,5 @@ Pour mettre une video youtube par exemple:
 
 Pour ajouter une image qui se trouve dans le repertoire img/post-assets par exemple:
 ![water]({{site.url}}/{{site.baseurl}}img/post-assets/water.jpg)
+
+![Hyke1]({{site.url}}/{{site.baseurl}}img/20170513_171424.jpg)
