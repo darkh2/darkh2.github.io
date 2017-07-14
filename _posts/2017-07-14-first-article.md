@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2016-02-11T00:00:00.000Z
+date: 2017-07-14T00:00:00.000Z
 categories: articles
 author_slug: hyke
 is_featured: false
@@ -59,4 +59,3 @@ Pour mettre une video youtube par exemple:
 
 Pour ajouter une image qui se trouve dans le repertoire img/post-assets par exemple:
 ![water]({{site.url}}/{{site.baseurl}}img/post-assets/water.jpg)
-
