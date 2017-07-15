@@ -1,11 +1,11 @@
 ---
 published: true
 layout: post
-date: 2017-07-14T00:00:00.000Z
+date: 2017-07-14
 categories: articles
 author_slug: hyke
 is_featured: false
-feature_image: feature-water.jpg
+feature_image: feature-asia.jpg
 ---
 Pour écrire un titre:
 #TITRE (pas besoin car le template recupere le titre depuis le nom de ton article)
