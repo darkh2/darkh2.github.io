@@ -5,7 +5,7 @@ date: 2017-07-14T00:00:00.000Z
 categories: articles
 author_slug: hyke
 is_featured: false
-feature_image: 20170513_171424.jpg
+feature_image: feature-water.jpg
 ---
 Pour écrire un titre:
 #TITRE (pas besoin car le template recupere le titre depuis le nom de ton article)
