@@ -4,7 +4,7 @@ layout: post
 date: 2017-07-30T00:00:00.000Z
 categories: crevard-style
 author_slug: hyke
-feature_image: hyke-summerstyle.jpg
+feature_image: montage-summerstyle.jpg
 ---
 # Summer Style #1
 
