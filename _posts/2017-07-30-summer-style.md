@@ -8,6 +8,7 @@ feature_image: montage-summerstyle.jpg
 ---
 # Summer Style #1
 
+![montage-summerstyle]({darkh2.github.io}/darkh2.github.io/img/montage-summerstyle.jpg)
 
 
 Rien de mieux que de commencer mon premier article par une tenue d'été décontractée à moindre coût.
