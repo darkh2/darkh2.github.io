@@ -1,11 +1,11 @@
 ---
 layout: post
-date: 2016-02-11 08:50:28
+date: {}
 categories: travel storytime articles crevard-style exceptions skills
 author_slug: michelle-jones
 is_featured: false
 feature_image: feature-roadtrip.jpg
-published: true
+published: false
 ---
 
 It was a cold December morning, as I sat out on my porch I decided today was the day.
