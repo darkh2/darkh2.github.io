@@ -1,6 +1,6 @@
 ---
 layout: post
-date: 2016-02-11T08:50:28.000Z
+date: {}
 categories: travel
 author_slug: tom-jackson
 is_featured: false
