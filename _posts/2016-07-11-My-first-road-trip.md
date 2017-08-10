@@ -1,6 +1,6 @@
 ---
 layout: post
-date: {}
+date: 2016-07-11T00:00:00.000Z
 categories: travel storytime articles crevard-style exceptions skills
 author_slug: michelle-jones
 is_featured: false
