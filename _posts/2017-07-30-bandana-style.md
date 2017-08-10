@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2017-07-30T00:00:00.000Z
+date: 2017-07-31T00:00:00.000Z
 categories: crevard-style
 author_slug: hyke
 feature_image: montage-summerstyle.jpg
