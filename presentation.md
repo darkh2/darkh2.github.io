@@ -12,12 +12,18 @@ De nos jours, nous n'avons que très rarement la possibilité de faire plus d'un
 Je suis Hyke et de mes 29 ans, j'ai toujours apprécié mettre en valeur le potentiel de chacun dans tous les domaines et du mieux que je pouvais notamment leur style.
 </p>
 
-
 <p>
 <strong>Pourquoi ce blog ?</strong>
 <br>
 Chaque personne qui visitera ce blog devra en sortir avec quelque chose en plus : une information, une méthode, une nouvelle façon de penser, une idée, peu importe. L'homme est amené à se développer surtout en cette époque moderne. Le fait de traiter du developpement du style n'empêche pas de s'ouvrir à d'autres critères à améliorer tant que chacun évolue.
 </p>
+
+<p>
+<strong>Etat d'esprit du site</strong>
+<br>
+Crevard Stylé ne tourne pas uniquement autour de développer son propre style à moindre coût mais plus particulièrement une optimisation de soi. Partant d'optimiser son portefeuille pour s'habiller, autant utiliser ce reflexe d'optimisation pour devenir la meilleure version de soi-même dans d'autres compétences.
+</p>
+
 
 <p>
 <strong>Comment se familiariser facilement avec le site ?</strong>
