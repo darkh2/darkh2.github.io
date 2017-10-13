@@ -3,11 +3,13 @@ layout: page
 title: Présentation
 feature_image: feature-lake.jpg
 permalink: /presentation/
-footer: © 2007, Crevard Stylé by Hyke – All rights reserved – Credits
+footer: '© 2007, Crevard Stylé by Hyke – All rights reserved – Credits'
+published: true
 ---
 
 <p>
-Lens is a content focussed responsive theme for the Ghost blogging platform. Designed with a focus on photography and typography to provide a great experience for the the reader. Purpose built to look great across all platforms and screen sizes. Lens makes use of ghosts tag and author featues and works great as asingle author but shines with multiple authors.
+De nos jours, nous n'avons que très rarement la possibilité de faire plus d'une fois une bonne première impression que ce soit en entretien ou lors d'une nouvelle rencontre.
+Je suis Hyke et de mes 29 ans, j'ai toujours apprécié mettre en valeur le potentiel de chacun dans tous les domaines et du mieux que je pouvais notamment leur style.
 </p>
 
 
