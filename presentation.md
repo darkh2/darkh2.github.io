@@ -14,9 +14,9 @@ Je suis Hyke et de mes 29 ans, j'ai toujours apprécié mettre en valeur le pote
 
 
 <p>
-<strong>Fully Responsive</strong>
+<strong>Pourquoi ce blog ?</strong>
 <br>
-Designed to cover the wide range of screen sizes available today. Resize the width of your browser window on the live demo to see it in action.
+Chaque personne qui visitera ce blog devra en sortir avec quelque chose en plus : une information, une méthode, une nouvelle façon de penser, une idée, peu importe. L'homme est amené à se développer surtout en cette époque moderne. Le fait de traiter du developpement du style n'empêche pas de s'ouvrir à d'autres critères à améliorer tant que chacun évolue.
 </p>
 
 <p>
