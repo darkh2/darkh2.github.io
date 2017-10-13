@@ -20,9 +20,18 @@ Chaque personne qui visitera ce blog devra en sortir avec quelque chose en plus 
 </p>
 
 <p>
-<strong>Page Layouts</strong>
+<strong>Comment se familiariser facilement avec le site ?</strong>
 <br>
-Lens works to make the most of all of the current features of the Ghost Platform. Drop Lens into your current blog without worrying, all of the page templates will look great. Home, Author, Tags, Single Pages and Blog Posts.
+Vous trouverez un certain nombres de catégories, en voici le détail : 
+  
+  - HOME : Page d'accueil de Crevard Stylé où l'on peut avoir un apercu des derniers articles publiés.
+  - PRESENTATION : La page sur laquelle vous êtes.
+  - CREVARD STYLE : Catégorie principale du blog concernant les tenues à moindre coût du Crevard Stylé.
+  - ARTICLES : Tout ce qui tournera autour du developpement personnel de l'Homme tout en conservant l'état d'esprit 	du Crevard Stylé.
+  - EXCEPTIONS : Un écart parmi les achats peu couteux ... C'est dans cette catégorie que vous trouverez les folies 	du Crevard Stylé. On reste quand même raisonnable après tout.
+  - SKILLS : (MUSIC?) Ma personnalité fait partie intégrante de ce blog. Mon goût pour la production musicale est à 	l'origine de cette catégorie. Je me devais de faire une partie où l'on pourrait écouter mes productions.
+  - DIVERS : Section qui se chargera de récuperer des informations diverses.
+  - HYKE/CONTACT : Contact et coordonnées.
 </p>
 
 <p>
