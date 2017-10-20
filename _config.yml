@@ -29,7 +29,7 @@ nav_list:
   CrevardStyle : ['Crevard Stylé', '/category/crevard-style']
   Articles : ['Articles', '/category/articles']
   Exceptions : ['Exceptions', '/category/exceptions']
-  Skills : ['Hyke Music', '/category/skills']
+  HykeMusic : ['Hyke Music', '/category/hyke-music']
   Divers : ['Divers', '/category/divers']
   Hyke : ['Contact', '/author/hyke']  
   #About : ['About', '/about']

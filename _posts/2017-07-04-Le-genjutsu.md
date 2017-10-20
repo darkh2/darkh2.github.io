@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2017-07-04
-categories: skills
+categories: hyke-music
 author_slug: hyke
 is_featured: false
 feature_image: genjutsu-yx.jpg
