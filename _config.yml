@@ -31,7 +31,7 @@ nav_list:
   Exceptions : ['Exceptions', '/category/exceptions']
   Skills : ['Skills', '/category/skills']
   Divers : ['Divers', '/category/divers']
-  Hyke : ['Contact', '/author/hyke']  
+  Hyke : ['Hyke', '/author/hyke']  
   #About : ['About', '/about']
   #Michelle : ['Michelle', '/author/michelle']
   #Sarah : ['Sarah', '/author/sarah']
