@@ -28,16 +28,17 @@ Crevard Stylé ne tourne pas uniquement autour de développer son propre style �
 <p>
 <strong>Comment se familiariser facilement avec le site ?</strong>
 <br>
-Vous trouverez un certain nombres de catégories, en voici le détail : 
+Vous trouverez un certain nombres de catégories, en voici le détail :
+  <br>
   
-  - HOME : Page d'accueil de Crevard Stylé où l'on peut avoir un apercu des derniers articles publiés.
-  - PRESENTATION : La page sur laquelle vous êtes.
-  - CREVARD STYLE : Catégorie principale du blog concernant les tenues à moindre coût du Crevard Stylé.
-  - ARTICLES : Tout ce qui tournera autour du developpement personnel de l'Homme tout en conservant l'état d'esprit 	du Crevard Stylé.
-  - EXCEPTIONS : Un écart parmi les achats peu couteux ... C'est dans cette catégorie que vous trouverez les folies 	du Crevard Stylé. On reste quand même raisonnable après tout.
-  - SKILLS : (MUSIC?) Ma personnalité fait partie intégrante de ce blog. Mon goût pour la production musicale est à 	l'origine de cette catégorie. Je me devais de faire une partie où l'on pourrait écouter mes productions.
-  - DIVERS : Section qui se chargera de récuperer des informations diverses.
-  - HYKE/CONTACT : Contact et coordonnées.
+  - HOME : Page d'accueil de Crevard Stylé où l'on peut avoir un apercu des derniers articles publiés.<br>
+  - PRESENTATION : La page sur laquelle vous êtes.<br>
+  - CREVARD STYLE : Catégorie principale du blog concernant les tenues à moindre coût du Crevard Stylé.<br>
+  - ARTICLES : Tout ce qui tournera autour du developpement personnel de l'Homme tout en conservant l'état d'esprit 	du Crevard Stylé.<br>
+  - EXCEPTIONS : Un écart parmi les achats peu couteux ... C'est dans cette catégorie que vous trouverez les folies 	du Crevard Stylé. On reste quand même raisonnable après tout.<br>
+  - HYKE MUSIC : Mon goût pour la production musicale est à l'origine de cette catégorie. Je me devais de faire une  	 partie où l'on pourrait écouter mes productions.<br>
+  - DIVERS : Section qui se chargera de récuperer des informations diverses.<br>
+  - HYKE/CONTACT : Contact et coordonnées.<br>
 </p>
 
 <p>
