@@ -42,30 +42,6 @@ Vous trouverez un certain nombre de catégories, en voici le détail :
   - HYKE/CONTACT : Contact et coordonnées.<br>
 </p>
 
-<p>
 
-<p>
-<strong>Simple Install & Detailed Documentation</strong>
-<br>
-Installation in just a few steps. Email support is available.
-</p>
 
-<p>
-<strong>Major Browser Support?</strong>
-<br>
-Tested on all major browsers. IE9+, Firefox, Chrome, Safari and Opera.
-</p>
 
-<p>
-<strong>Compatibility Updates</strong>
-<br>
-Lens will be updated regularly to ensure it is compatible with future versions of Ghost. This theme has been built to the latest standard currently version 0.7.
-</p>
-
-<p>
-<h3>Support</h3>
-</p>
-
-<a href="http://adventurethemes.com/support" title="AdventureThemes Support">
-
-If you have any bug reports, or feature requests, please let us know!
