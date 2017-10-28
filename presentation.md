@@ -39,9 +39,11 @@ Vous trouverez un certain nombre de catégories, en voici le détail :
   - EXCEPTIONS : Un écart parmi les achats peu couteux ... C'est dans cette catégorie que vous trouverez les folies 	du Crevard Stylé. On reste quand même raisonnable après tout.<br>
   - HYKE MUSIC : Mon goût pour la production musicale est à l'origine de cette catégorie. Je me devais de faire une  	 partie où l'on pourrait écouter mes productions.<br>
   - DIVERS : Section qui se chargera de récuperer des informations diverses.<br>
-  - HYKE/CONTACT : Contact et coordonnées.<br>
+  - CONTACT : Contact et coordonnées.<br>
 </p>
 
-
+<p>
+  Si vous avez des questions, des suggestions, des réactions ou bien vous remarquez des bugs sur le site, je vous invite à venir nous en faire part à travers la catégorie Contact
+  </p>
 
 
