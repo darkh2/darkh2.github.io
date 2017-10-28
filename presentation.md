@@ -29,7 +29,7 @@ Crevard Stylé ne tourne pas uniquement autour de développer son propre style �
 <p>
 <strong>Comment se familiariser facilement avec le site ?</strong>
 <br>
-Vous trouverez un certain nombres de catégories, en voici le détail :
+Vous trouverez un certain nombre de catégories, en voici le détail :
   <br>
   
   - HOME : Page d'accueil de Crevard Stylé où l'on peut avoir un apercu des derniers articles publiés.<br>
