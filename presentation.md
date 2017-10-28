@@ -43,7 +43,7 @@ Vous trouverez un certain nombre de catégories, en voici le détail :
 </p>
 
 <p>
-  Si vous avez des questions, des suggestions, des réactions ou bien vous remarquez des bugs sur le site, je vous invite à venir nous en faire part à travers la catégorie Contact
+  Si vous avez des questions, des suggestions, des réactions ou bien vous remarquez des bugs sur le site, je vous invite à venir nous en faire part à travers la catégorie Contact.
   </p>
 
 
