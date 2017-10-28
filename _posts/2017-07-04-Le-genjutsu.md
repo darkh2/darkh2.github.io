@@ -1,6 +1,6 @@
 ---
 layout: post
-date: {}
+date: 2017-07-01T00:00:00.000Z
 categories: hyke-music
 author_slug: hyke
 is_featured: false
