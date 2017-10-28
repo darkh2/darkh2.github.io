@@ -15,7 +15,7 @@ Je suis Hyke et de mes 29 ans, j'ai toujours apprécié mettre en valeur le pote
 <p>
 <strong>Pourquoi ce blog ?</strong>
 <br>
-Développer son propre style vestimentaire doit passer par un investissement financier mais sur soi-même.    
+Développer son propre style vestimentaire doit passer par un investissement financier mais sur soi-même. Cet investissement doit être géré et réfléchi. Grâce à Crevard Stylé, on découvrira une manière optimisée de bien s'habiller sans dépenser enormément d'argent. <br>   
 Chaque personne qui visitera ce blog devra en sortir avec quelque chose en plus : une information, une méthode, une nouvelle façon de penser, une idée, peu importe. L'homme est amené à se développer surtout en cette époque moderne. Le fait de traiter du developpement du style n'empêche pas de s'ouvrir à d'autres critères à améliorer tant que chacun évolue.
 </p>
 
