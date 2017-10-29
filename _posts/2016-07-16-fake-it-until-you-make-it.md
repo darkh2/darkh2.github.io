@@ -1,11 +1,11 @@
 ---
 layout: post
-date: 2016-02-11 08:50:28
+date: {}
 categories: travel
 author_slug: sarah-smith
 is_featured: false
 feature_image: feature-fire.jpg
-published: true
+published: false
 ---
 
 Don't listen to your critics, most people spend all day talking about what others are doing and no time doing anything themselves.
