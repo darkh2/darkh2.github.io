@@ -1,11 +1,11 @@
 ---
 layout: post
-date: 2016-02-11 08:50:28
+date: {}
 categories: travel
 author_slug: michelle-jones
 is_featured: false
 feature_image: feature-asia.jpg
-published: true
+published: false
 ---
 
 Hey fiends. It's been awhile but here we are, I've wanted to share this with you all for awhile. Are you ready? It was mid August when all this started.
