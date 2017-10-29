@@ -16,4 +16,5 @@ Cette tenue s'inspire autant du côté Bandana un peu streetwear que celui du si
 ### Zoom sur la tenue
 
 Premièrement le style se porte de préférence pendant les périodes estivales ou quand le soleil est au rendez-vous. Un avantage si vous habitez dans les régions à forte chaleur ajoutée.
-La pièce prédominante de cette tenue est bien sûr le t-shirt noir à motifs bandana. C'est cette pièce qui va justement faire passer la tenue de simple à originale. Dans le développement de son style, il est toujours important de se démarquer. En règle générale, le rouge et le noir font une belle combinaison. C'est pour cela que j'ai opté pour un short rouge et des petites sneakers blanches pour finaliser le tout.
+La pièce prédominante de cette tenue est bien sûr le t-shirt noir à motifs bandana. C'est cette pièce qui va justement faire passer la tenue de simple à originale. Dans le développement de son style, il est toujours important de se démarquer. 
+En règle générale, le rouge et le noir font une belle combinaison. C'est pour cela que j'ai opté pour un short rouge et des petites sneakers blanches pour finaliser le tout.
