@@ -6,8 +6,7 @@ categories: crevard-style
 author_slug: hyke
 feature_image: montage-bandanatouch.jpg
 ---
-## A New Post
-
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+## Bandana Touch
 
 ![iceland]({{site.url}}/{{site.baseurl}}img/montage-bandanatouch.jpg)
+
