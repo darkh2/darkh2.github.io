@@ -1,11 +1,11 @@
 ---
 layout: post
-date: 2016-02-11 08:50:28
+date: {}
 categories: travel
 author_slug: tom-jackson
 is_featured: false
 feature_image: feature-lost.jpg
-published: true
+published: false
 ---
 
 Ask yourself, why not? What is the number one reason you wouldn't. If the reason you get back is fear, you should just do it.
