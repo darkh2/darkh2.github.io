@@ -12,3 +12,7 @@ feature_image: montage-bandanatouch.jpg
 
 Qui ne se souvient pas de cette merveilleuse époque où l'on pouvait voir dans les films de gangster leur façon stylée de porter le bandana sur la tête. Même le légendaire Tupac portait le bandana à sa manière. J'avoue avoir voulu l'imiter à une certaine époque mais je ressemblais plus à une contrefaçon de latino du bled ...
 Cette tenue s'inspire autant du côté Bandana un peu streetwear que celui du simple, propre et basique.
+
+### Zoom sur la tenue
+
+La pièce forte de cette tenue est bien sûr le t-shirt noir à motifs bandana. C'est cette pièce qui va justement démarquer la simplicité des autres pièces. 
