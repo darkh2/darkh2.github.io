@@ -27,7 +27,7 @@ Pour un premier article, on tient déjà un très bon plan pour cette tenue :
 
 * Short rouge basique : Un de mes magasins préférés si ce n'est le premier... Primark ! L'avantage de ce magasin c'est que l'on trouve un tas de basiques à de très bons prix. **16 Euros** pour cette belle pièce.
 
-* Sneakers plates simples blanches : Toujours à Primark et achetées à **8 Euros**.
+* Sneakers plates simples blanches : Toujours à Primark et qu'on peut trouver à **8 Euros**.
 
  	**On arrive à un total de 44 Euros !**
 
