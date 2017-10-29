@@ -8,5 +8,5 @@ feature_image: montage-bandanatouch.jpg
 ---
 ## Bandana Touch
 
-![iceland]({{site.url}}/{{site.baseurl}}img/montage-bandanatouch.jpg)
+![bandanatouch]({{site.url}}/{{site.baseurl}}img/montage-bandanatouch.jpg)
 
