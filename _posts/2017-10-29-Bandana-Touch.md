@@ -29,7 +29,7 @@ Pour un premier article, on tient déjà un très bon plan pour cette tenue :
 
 * Sneakers plates simples blanches : Toujours à Primark et achetés à **8 Euros**.
 
- 	**#### On arrive à un total de 44 Euros !**
+ 	** On arrive à un total de 44 Euros !**
 
 Bien entendu je ne prends que les fondamentaux de cette tenue. Tout ce qui concerne les accessoires seront résérvés dans une autre partie (autre article peut-être ?).
 Que pensez-vous de cette tenue ? Est-elle vraiment stylée ? Peut-on l'améliorer ? ... Tout se passe dans les commentaires, j'attends vos suggestions.
