@@ -1,6 +1,6 @@
 ---
 layout: post
-date: 2016-07-16T00:00:00.000Z
+date: 2017-07-03T00:00:00.000Z
 categories: travel
 author_slug: michelle-jones
 is_featured: false
