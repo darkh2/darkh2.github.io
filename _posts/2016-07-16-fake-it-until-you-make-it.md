@@ -1,6 +1,6 @@
 ---
 layout: post
-date: {}
+date: 2016-07-16T00:00:00.000Z
 categories: travel
 author_slug: sarah-smith
 is_featured: false
