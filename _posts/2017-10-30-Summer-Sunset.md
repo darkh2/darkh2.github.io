@@ -6,6 +6,8 @@ categories: crevard-style
 author_slug: hyke
 feature_image: montage-summersunset.jpg
 ---
-## A New Post
+## Summer Sunset
+
+![summersunset]({{site.url}}/{{site.baseurl}}img/montage-summersunset.jpg)
 
 Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
