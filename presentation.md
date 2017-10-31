@@ -3,7 +3,7 @@ layout: page
 title: Présentation
 feature_image: hyke-presentation.jpg
 permalink: /presentation/
-footer: '© 2007, Crevard Stylé by Hyke – All rights reserved – Credits'
+footer: '© 2017, Crevard Stylé by Hyke – All rights reserved – Credits'
 published: true
 ---
 
