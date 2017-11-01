@@ -10,4 +10,4 @@ feature_image: montage-summersunset.jpg
 
 ![summersunset]({{site.url}}/{{site.baseurl}}img/montage-summersunset.jpg)
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+Avez-vous déja été dans une situation où vous voulez être bien habillé sans pour autant en faire trop et en même temps ne pas crever de chaud dans vos beaux vêtements pendant une belle soirée d'été ? (C'est à ce moment la que vous devriez vous souvenir de ce mec avec les grosses auréoles de transpiration sur la piste de danse ...).
