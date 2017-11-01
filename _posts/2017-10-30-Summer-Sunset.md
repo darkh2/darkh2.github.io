@@ -36,4 +36,4 @@ Une tenue legère facilite forcément le coût total de l'ensemble :
 
 	**40 Euros le tout !**
     
-    
+Qui sait ? Peut-être avez-vous votre propre tenue(s) Summer Sunset ? Doit-on rajouter quelque chose sur cette tenue ? La chemisette est-elle l'ennemi de la penderie ? Tout se passe dans les commentaires ...    
