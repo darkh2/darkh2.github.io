@@ -15,4 +15,5 @@ Cette tenue atteindra ces objectifs tout en gardant l'esprit du Crevard Stylé. 
 
 ### Zoom sur la tenue
 
-La nuit tombe tard en été ce qui fait que pendant les derniers instants de soleil rien n'empêche d'oser les couleurs vives et fortes.
+La nuit tombe tard en été ce qui fait que pendant les derniers instants de soleil rien n'empêche d'oser les couleurs vives et fortes.  
+On a ici une chemise à manches courtes verte menthe avec des petits motifs blancs discrets (Est-ce vraiment un vert menthe ? Je pense à la couleur d'une glace à la menthe mais peut-être que je suis totalement malvoyant). 
