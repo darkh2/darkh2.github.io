@@ -26,3 +26,11 @@ Pour finaliser le tout, on a une paire de sneakers rouges sombres montantes. On 
 
 ### Crevard Stylé : 
 
+Une tenue legère facilite forcément le coût total de l'ensemble :
+
+* Chemise verte à manches courtes : **8 Euros** à Primark, le genre de couleur qui reste en abondance dans les rayons car la plupart des gens se ruent vers les couleurs comme le bleu ou le noir, c'est la votre chance.
+
+* Jean slim blanc : **12 Euros** encore et toujours chez Primark, faut croire que cette boutique est un des meilleurs alliés du Crevard Stylé.
+
+* Sneakers montantes rouges sombres : Une paire qu'on réussit à trouver à **20 Euros** chez Zara en période de soldes. Oui c'est faisable !
+
