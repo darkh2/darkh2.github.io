@@ -22,3 +22,7 @@ De base je ne suis pas favorable aux chemises à manches courtes. Je dois en avo
 La meilleure solution serait de rester sur des chemises à manches longues et jouer sur les matières pas trop lourdes en période de haute température et remonter les manches. Ca donne une touche en plus et on garde le côté bien ceintré de la chemise à condition bien sûr de l'avoir bien taillée.  
 
 Le jean slim blanc permet ici de donner une continuité sur l'ensemble des couleurs. Le blanc arrive toujours à faciliter le port de couleurs vives. C'est un basique que chaque personne se doit de posséder dans sa garde-robe.  
+Pour finaliser le tout, on a une paire de sneakers rouges sombres montantes. On a deux pièces de couleurs claires et une paire de sneakers bien foncées qui viennent donner du caractère à l'ensemble de la tenue. Pour accentuer un style, il faut avoir cette tendance à prendre un risque de combiner certains éléments et donc avoir un rendu original.
+
+### Crevard Stylé : 
+
