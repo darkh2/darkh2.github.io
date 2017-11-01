@@ -8,4 +8,5 @@ feature_image: accueil-cs.jpg
 ---
 ## Bienvenue sur Crevard Stylé
 
-C'est avec grand plaisir que je vous annonce la sortie du site Crevard Stylé à travers ce premier article.
+C'est avec grand plaisir que je vous annonce la sortie du site Crevard Stylé à travers ce premier article. L'idée principale du site est de développer son style vestimentaire à moindre coût. Des articles tournant autour du style et du développement personnel feront partie intégrante de l'état d'esprit du Crevard Stylé.  
+Je vous invite à consulter la page de présentation que vous pourrez trouver dans le menu principal afin de vous familiariser facilement avec le site et bien comprendre l'univers du Crevard Stylé.
