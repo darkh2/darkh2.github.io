@@ -6,6 +6,6 @@ categories: crevard-style
 author_slug: hyke
 feature_image: whatsupautumn2.jpg
 ---
-## A New Post
+## What's up Autumn 
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+![whatsupautumn]({{site.url}}/{{site.baseurl}}img/whatsupautumn.jpg)
