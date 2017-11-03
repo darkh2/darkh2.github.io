@@ -38,7 +38,7 @@ Pour un début d'Automne, on arrive à s'en sortir pour moins de 90 Euros mais �
 
 * Sneakers blanches avec bordures argentées : **30 Euros** au lieu de 40 au moment des soldes aussi. Je pense que même à 40 Euros elles valaient le coup quand même.
 
-	**Ching Ching ! 87 Euros siouplé !
+	**Ching Ching ! 87 Euros siouplé !** On arrive à 132 Euros sans les remises, une différence de presque 50 Euros, d'où le fait d'avoir ces reflèxes pendant les soldes.
 
 Y aurait-il une alternative à cette tenue ? Est-elle si originale que ça ? Peut-on encore optimiser le prix de ces belles trouvailles ? Apportez vos avis en commentaires ! Sachez qu'un Crevard Stylé doit toujours être en quête d'amélioration ...
 
