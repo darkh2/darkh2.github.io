@@ -20,6 +20,7 @@ L'élément premier est un blouson gris à carreaux. Ces motifs plus ou moins pr
 
 ![whatsupautumn3]({{site.url}}/{{site.baseurl}}img/whatsupautumn3.jpg)
 
-La combinaison du haut (à savoir le pull et le blouson) se marient bien ensemble car on à une legère variation de couleur qui fait ressortir la tenue globale. Un pull
+La combinaison du haut (à savoir le pull et le blouson) se marient bien ensemble car on à une legère variation de couleur qui fait ressortir la tenue globale. Un pull avec un dégradé de couleurs qui donne son petit plus et qui fait la différence.  
+Le jean kaki 
 
 
