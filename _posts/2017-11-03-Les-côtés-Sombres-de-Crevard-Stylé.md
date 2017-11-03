@@ -14,6 +14,9 @@ Tout ça pour dire que derrière le concept de Crevard Stylé, mettant en avant 
 
 ### Les faiblesses de Crevard Stylé
 
+Le but reste le même : faire de bons choix en ayant de bons résultats tout en restant optimisé. Mais dans chaque décision, que l'on s'en rende compte ou non, il y a des limites. Certains voient le verre d'eau à moitié plein et d'autres à moitié vide. Dans cette partie, on va décortiquer la partie vide du verre.  
+Quand on essaie de dénicher des produits à des prix défiant toute concurrence, 
+
 ### Les remèdes pour endurcir Crevard Stylé
 
 Gagner plus d'argent ! Ah je la voyais venir celle là ! Pourquoi pas oui mais le concept n'aurait aucun interêt si l'on avait le salaire d'un footballeur pro. Cela dit en ayant un salaire de 3000 Euros par mois n'exclut en rien le fait d'optimiser son porte feuille pour sa penderie et donc dépenser le reste de son argent dans d'autres choses. Chacun possède ses propres priorités.
