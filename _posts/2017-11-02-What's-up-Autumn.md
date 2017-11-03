@@ -16,7 +16,10 @@ La température baisse mais les épaisseurs augmentent. C'est parti pour les dé
 ### Zoom sur la tenue
 
 Ce qu'on veut réunir ici et comme la plupart du temps c'est simplicité avec une petite touche en plus puis vu la période ne pas attraper ce fameux coup de froid du changement thermique.
-L'élément premier est un blouson gris à carreaux. Ces motifs plus ou moins prépondérants donnent un petit côté vintage à cette pièce. Je dois avouer que les manches sont un peu trop longues mais cela peut toujours servir quand on sort tôt le matin pour aller travailler et que l'on n'a pas de gants à disposition. Néanmoins, on garde un haut assez bien fitté.  
+L'élément premier est un blouson gris à carreaux. Ces motifs plus ou moins prépondérants donnent un petit côté vintage à cette pièce. Je dois avouer que les manches sont un peu trop longues mais cela peut toujours servir quand on sort tôt le matin pour aller travailler et que l'on n'a pas de gants à disposition. Néanmoins, on garde un haut assez bien fitté.
 
+![whatsupautumn3]({{site.url}}/{{site.baseurl}}img/whatsupautumn3.jpg)
+
+La combinaison du haut (à savoir le pull et le blouson) se marient bien ensemble car on à une legère variation de couleur qui fait ressortir la tenue globale. Un pull
 
 
