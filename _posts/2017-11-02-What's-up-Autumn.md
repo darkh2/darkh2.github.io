@@ -26,6 +26,8 @@ Pour couronner le tout et qui met en avant le délire street c'est cette fameuse
 
 ### Crevard Stylé : Moins de 90 Euros pour de belles pièces !
 
+Pour un début d'Automne, on arrive à s'en sortir pour moins de 90 Euros mais à vous d'anticiper pendant les périodes de soldes quand les temps froids arrivent. Rien ne vous empêche par exemple d'acheter un blouson pendant les soldes d'été.
+
 
 
 
