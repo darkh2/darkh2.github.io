@@ -23,6 +23,8 @@ Quand on essaie de dénicher des produits à des prix défiant toute concurrence
 
 * Devoir parfois attendre la période des soldes pour pouvoir bien profiter de bons plans. C'est un point à ne pas négliger mais malgrès qu'une pièce soit magnifique, parfois le prix n'est pas toujours raisonnable pour ce que c'est. A vous de prendre vos bonnes décisions.
 
+Il subsiste encore quelques petits aspects négatifs mais nous venons de voir les plus importants qui reviennent en permanence et je sais qu'avant tout le shopping doit rester un plaisir. Mais ne vous inquiétez pas, à chaque problème sa solution.
+
 ### Les remèdes pour endurcir Crevard Stylé
 
 Gagner plus d'argent ! Ah je la voyais venir celle là ! Pourquoi pas oui mais le concept n'aurait aucun interêt si l'on avait le salaire d'un footballeur pro. Cela dit en ayant un salaire de 3000 Euros par mois n'exclut en rien le fait d'optimiser son porte feuille pour sa penderie et donc dépenser le reste de son argent dans d'autres choses. Chacun possède ses propres priorités.
