@@ -24,6 +24,8 @@ La combinaison du haut (à savoir le pull et le blouson) se marient bien ensembl
 Le jean kaki apporte un côté rebelle à l'ensemble. On aurait pu prendre un jean noir ou bleu foncé mais bizarrement le choix du kaki est une bonne solution pour l'harmonie globale.  
 Pour couronner le tout et qui met en avant le délire street c'est cette fameuse paire de sneakers montantes blanches avec des bordures argentées. Je pense que c'est cette pièce finale qui démarque considérablement l'aspect visuel du tout.
 
+![sneakerswhatsup]({{site.url}}/{{site.baseurl}}img/sneakerswhatsup.jpg)
+
 ### Crevard Stylé : Moins de 90 Euros pour de belles pièces !
 
 Pour un début d'Automne, on arrive à s'en sortir pour moins de 90 Euros mais à vous d'anticiper pendant les périodes de soldes quand les temps froids arrivent. Rien ne vous empêche par exemple d'acheter un blouson pendant les soldes d'été.
