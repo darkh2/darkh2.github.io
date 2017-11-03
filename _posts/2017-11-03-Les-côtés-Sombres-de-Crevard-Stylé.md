@@ -15,7 +15,13 @@ Tout ça pour dire que derrière le concept de Crevard Stylé, mettant en avant 
 ### Les faiblesses de Crevard Stylé
 
 Le but reste le même : faire de bons choix en ayant de bons résultats tout en restant optimisé. Mais dans chaque décision, que l'on s'en rende compte ou non, il y a des limites. Certains voient le verre d'eau à moitié plein et d'autres à moitié vide. Dans cette partie, on va décortiquer la partie vide du verre.  
-Quand on essaie de dénicher des produits à des prix défiant toute concurrence, 
+Quand on essaie de dénicher des produits à des prix défiant toute concurrence, voici les aspects négatifs que l'on peut rencontrer :
+
+* Vouloir acheter un produit bon marché peut ne pas tenir sur le long terme. Une paire de tennis à 4 euros que j'avais acheté m'ont tenu un mois en les mettant qu'une fois tous les deux jours environ. Ou encore un cardigan qui se déchire facilement à force de le mettre et de le laver plusieurs fois.
+
+* La taille aussi. Il y a des boutiques proposant des vêtements pas chers mais ils sont très mal fittés. En les portants vous aurez l'air de Casimir. En d'autres termes vous serez plus drôles que stylés.
+
+* Devoir parfois attendre la période des soldes pour pouvoir bien profiter de bons plans. C'est un point à ne pas négliger mais malgrès qu'une pièce soit magnifique, parfois le prix n'est pas toujours raisonnable pour ce que c'est. A vous de prendre vos bonnes décisions.
 
 ### Les remèdes pour endurcir Crevard Stylé
 
