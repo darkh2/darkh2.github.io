@@ -28,6 +28,12 @@ Pour couronner le tout et qui met en avant le délire street c'est cette fameuse
 
 Pour un début d'Automne, on arrive à s'en sortir pour moins de 90 Euros mais à vous d'anticiper pendant les périodes de soldes quand les temps froids arrivent. Rien ne vous empêche par exemple d'acheter un blouson pendant les soldes d'été.
 
+* Blouson gris à carreaux : **30 Euros** chez Zara en période de soldes. Il devait être à 50 Euros quand il n'était pas soldé si mes souvenirs sont bons.
+
+* Pull maille couleurs dégradées : **12 Euros** à Primark. Faut se dépecher aussi car c'est le genre d'élément qui part vite vu que c'est un très beau pull. Le Crevard Stylé doit être vif !
+
+* Jean kaki slim : **15 Euros** chez Zara aussi en période de soldes. Je pense qu'il devait en coûter le double sans la remise.
+
 
 
 
