@@ -17,3 +17,7 @@ Tout ça pour dire que derrière le concept de Crevard Stylé, mettant en avant 
 ### Les remèdes pour endurcir Crevard Stylé
 
 Gagner plus d'argent ! Ah je la voyais venir celle là ! Pourquoi pas oui mais le concept n'aurait aucun interêt si l'on avait le salaire d'un footballeur pro. Cela dit en ayant un salaire de 3000 Euros par mois n'exclut en rien le fait d'optimiser son porte feuille pour sa penderie et donc dépenser le reste de son argent dans d'autres choses. Chacun possède ses propres priorités.
+
+### Crevard Stylé restera à toute patate !
+
+Je vous ai peut-être fait une analyse macabre dans cet article mais Crevard Stylé a de belles années devant lui.
