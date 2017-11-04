@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2017-11-03T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: sombrecs.jpg
@@ -27,7 +27,10 @@ Il subsiste encore quelques petits aspects négatifs mais nous venons de voir le
 
 ### Les remèdes pour endurcir Crevard Stylé
 
-Gagner plus d'argent ! Ah je la voyais venir celle là ! Pourquoi pas oui mais le concept n'aurait aucun interêt si l'on avait le salaire d'un footballeur pro. Cela dit en ayant un salaire de 3000 Euros par mois n'exclut en rien le fait d'optimiser son porte feuille pour sa penderie et donc dépenser le reste de son argent dans d'autres choses. Chacun possède ses propres priorités.
+Gagner plus d'argent ! Ah je la voyais venir celle là ! Pourquoi pas oui mais le concept n'aurait aucun interêt si l'on avait le salaire d'un footballeur pro. Cela dit en ayant un salaire de 3000 Euros par mois n'exclut en rien le fait d'optimiser son porte feuille pour sa penderie et donc dépenser le reste de son argent dans d'autres choses. Chacun possède ses propres priorités.  
+Quelques réflexes sont à adopter pour limiter la casse :  
+
+* Déjà, prendre conscience du fait qu'acheter des vêtements pas chers ne vous donnera pas toujours des pièces qui tiendront sur le long terme. Mais on a quand même notre quota de produits pas chers de bonne qualité, à condition d'en prendre soin et de ne pas faire n'importe quoi avec. Cela dit, il y a quand même des vêtements à un prix non négligeable qui ne tiennent pas non plus, en général les marques. Parce que prendre de la marque n'est pas essentiellement synonyme de qualité contrairement à ce que l'on peut penser.
 
 ### Crevard Stylé restera à toute patate !
 
