@@ -32,6 +32,8 @@ Quelques réflexes sont à adopter pour limiter la casse :
 
 * Déjà, prendre conscience du fait qu'acheter des vêtements pas chers ne vous donnera pas toujours des pièces qui tiendront sur le long terme. Mais on a quand même notre quota de produits pas chers de bonne qualité, à condition d'en prendre soin et de ne pas faire n'importe quoi avec. Cela dit, il y a quand même des vêtements à un prix non négligeable qui ne tiennent pas non plus, en général les marques. Parce que prendre de la marque n'est pas essentiellement synonyme de qualité contrairement à ce que l'on peut penser.
 
+* Ne pas oublier de toujours essayer le vêtement, pour savoir s'il est à la bonne taille et s'il nous plaît tout simplement. Concernant les achats sur internet, cela peut être problematique, à vous de bien connaître votre taille et ce qui est approprié pour votre silhouette.
+
 ### Crevard Stylé restera à toute patate !
 
 Je vous ai peut-être fait une analyse macabre dans cet article mais Crevard Stylé a de belles années devant lui.
