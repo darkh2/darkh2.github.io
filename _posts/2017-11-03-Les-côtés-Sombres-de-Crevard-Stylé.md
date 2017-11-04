@@ -10,7 +10,7 @@ feature_image: sombrecs.jpg
 
 "Ce n'est pas un talon d'Achille, j'aime l'idée de l'imperfection ! Les gens ne peuvent pas être entiers sans imperfections, tu ne crois pas ?"
 Cette fameuse punchline que sort Otacon à Solid Snake pendant qu'il fait face au Metal Gear le boss final du jeu pour ceux qui connaissent.  
-Tout ça pour dire que derrière le concept de Crevard Stylé, mettant en avant le développement de son propre style à moindre coût, présente quelques zones sombres. En effet malgré toute la bonne foi du monde, Crevard Stylé possède des défauts. Cet article permettra d'expliquer les inconvénients que traversera le Crevard Stylé et comment y faire face.
+Tout ça pour dire que derrière le concept de Crevard Stylé, mettant en avant le développement de son propre style à moindre coût, présente quelques zones sombres. En effet malgré toute la bonne foi du monde, Crevard Stylé possède des défauts. Cet article permettra d'expliquer les obstacles que traversera le Crevard Stylé et comment y faire face.
 
 ### Les faiblesses de Crevard Stylé
 
