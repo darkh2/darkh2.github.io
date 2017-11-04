@@ -8,3 +8,5 @@ feature_image: jackboot.jpg
 ---
 ## Les Jack Boots Légendaires
 
+![jackboottaft]({{site.url}}/{{site.baseurl}}img/jackboottaft.jpg)
+
