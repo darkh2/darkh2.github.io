@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 2017-11-03T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: sombrecs.jpg
@@ -39,3 +39,5 @@ Quelques réflexes sont à adopter pour limiter la casse :
 ### Crevard Stylé restera à toute patate !
 
 Je vous ai peut-être fait une analyse macabre dans cet article mais Crevard Stylé a de belles années devant lui. En respectant ces idées, vous devriez ne pas trop mal vous en sortir. J'en suis une preuve vivante ! Le plus important à ne pas oublier surtout c'est que Crevard Stylé doit vous donner une certaine satisfaction à developper votre style tout en restant serein.
+
+
