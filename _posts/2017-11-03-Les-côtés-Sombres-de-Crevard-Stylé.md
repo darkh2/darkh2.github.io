@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2017-11-03T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: sombrecs.jpg
@@ -34,10 +34,8 @@ Quelques réflexes sont à adopter pour limiter la casse :
 
 * Ne pas oublier de toujours essayer le vêtement, pour savoir s'il est à la bonne taille et s'il nous plaît tout simplement. Concernant les achats sur internet, cela peut être problematique, à vous de bien connaître votre taille et ce qui est approprié pour votre silhouette.
 
-* De temps en temps faut se faire plaisir, on a le droit à nos petites folies. Le Crevard Stylé doit s'accordé quelques écarts occasionnels. On parle de crevard, certes, mais un Crevard Stylé donc juste et raisonnable avec soi-même. La section Exceptions du site est justement réservée aux produits chers mais qui peuvent vraiment donner une valeur ajoutée à votre dressing. Je vous invite à aller la consulter.
+* De temps en temps faut se faire plaisir, on a le droit à nos petites folies. Le Crevard Stylé doit s'accordé quelques écarts occasionnels. On parle de crevard, certes, mais un Crevard Stylé donc juste et raisonnable avec soi-même. La section [Exceptions](http://www.crevardstyle.com/category/exceptions) du site est justement réservée aux produits chers mais qui peuvent vraiment donner une valeur ajoutée à votre dressing. Je vous invite à aller la consulter.
 
 ### Crevard Stylé restera à toute patate !
 
 Je vous ai peut-être fait une analyse macabre dans cet article mais Crevard Stylé a de belles années devant lui. En respectant ces idées, vous devriez ne pas trop mal vous en sortir. J'en suis une preuve vivante ! Le plus important à ne pas oublier surtout c'est que Crevard Stylé doit vous donner une certaine satisfaction à developper votre style tout en restant serein.
-
-
