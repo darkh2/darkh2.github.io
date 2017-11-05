@@ -19,7 +19,7 @@ Pensez également à ne pas trop mettre de couleurs dans vos tenues. On va dire 
 
 ![stylecs]({{site.url}}/{{site.baseurl}}img/stylecs.jpg)
 
-Inutile de vous demander quel est l'élément fort de la tenue ... Bien entendu c'est le blouson ! Donc ici on a bien des éléments basiques : un polo blanc, un chino bleu, et une paire de sneakers blanches simples. En ajoutant cet élément à motifs forts, on peut parler d'originalité
+Inutile de vous demander quel est l'élément fort de la tenue ... Bien entendu, c'est le blouson ! Donc ici on a bien des éléments basiques : un polo blanc, un chino bleu, et une paire de sneakers blanches simples. En ajoutant cet élément à motifs forts, on peut parler d'originalité et de la création de son propre style.
 
 ### La prise de risque
 
