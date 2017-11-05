@@ -13,5 +13,8 @@ Crevard Stylé est toujours assoiffé de développement. La quête d'améliorati
 
 ### Les fondamentaux
 
-Si de base une tenue est simple alors autant s'équiper de basiques. J'entends quoi par basiques ? Cela peut être une chemise blanche, un jean bleu ou gris ou encore une paire de chaussures noires.
+Si de base une tenue est simple alors autant s'équiper de basiques. J'entends quoi par basiques ? Cela peut être une chemise blanche, un jean bleu ou gris ou encore une paire de chaussures noires. En d'autres termes les fondamentaux de son dressing.  
+En s'équipant donc de ces fondamentaux, on va choisir un élement ou deux, (pas plus les gourmands !) et le remplacer par une pièce forte. Cette dernière peut être notamment une
 
+
+![stylecs]({{site.url}}/{{site.baseurl}}img/stylecs.jpg)
