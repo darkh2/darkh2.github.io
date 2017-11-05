@@ -13,7 +13,7 @@ Crevard Stylé est toujours assoiffé de développement. La quête d'améliorati
 
 ### Les fondamentaux
 
-Si de base une tenue est simple alors autant s'équiper de basiques. J'entends quoi par basiques ? Cela peut être une chemise blanche, un jean bleu ou gris ou encore une paire de chaussures noires. En d'autres termes les fondamentaux de son dressing.  
+Pour commencer, partons d'une tenue exclusivement composée de basiques. J'entends quoi par basiques ? Cela peut être une chemise blanche, un jean bleu ou gris ou encore une paire de chaussures noires. En d'autres termes les fondamentaux de son dressing.  
 En s'équipant donc de ces fondamentaux, on va choisir un élement ou deux, (pas plus les gourmands !) et le remplacer par une pièce forte. Cette dernière peut être notamment un blazer rouge velours, une chemise à fleurs, un pantalon chino à carreaux ou encore une paire de chaussures à peau de crocodile. (Clin d'oeil aux sappeurs au passage !). Je pense que vous saisissez l'idée.  
 Pensez également à ne pas trop mettre de couleurs dans vos tenues. On va dire que maximum trois serait raisonnable. Le mieux est de jouer sur les tons de couleurs (bleu foncé et bleu ciel par exemple). Bien entendu, c'est votre style à vous, on ne doit pas forcément se limiter. La partie suivante parle justement de la prise de risque mais juste avant ça, je vais vous donner un exemple concret.
 
