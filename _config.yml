@@ -14,7 +14,7 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 title: Crevard Stylé
-description: 'Un homme se doit de développer son propre style, certes, mais sans pour autant se ruiner.' # A blog about travel, adventure and stories from the road.
+description: 'Un homme se doit de développer son propre style mais sans pour autant se ruiner' # A blog about travel, adventure and stories from the road.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "http://crevardstyle.com/" # the base hostname & protocol for your site
 #url: "https://darkh2.github.io" # the base hostname & protocol for your site
