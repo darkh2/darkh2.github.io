@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 layout: post
 date: 2017-11-05T00:00:00.000Z
 categories: hyke-music
@@ -10,6 +10,4 @@ feature_image: null
 
 [asiantrap]({{site.url}}/{{site.baseurl}}img/asiantrap.mp3)
 
-audio::-internal-media-controls-download-button {
-    display:none;
-}
+<audio controls controlsList="nodownload">
