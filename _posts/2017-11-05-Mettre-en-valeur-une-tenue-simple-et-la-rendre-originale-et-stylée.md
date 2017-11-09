@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 2017-11-05T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: stylecs.png
