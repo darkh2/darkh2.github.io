@@ -18,4 +18,8 @@ Si l'on traverse une période de crise, et qu'on sens que l'on va être limite �
 Ce n'est pas parce qu'un habit est à un bon prix qu'il vaut forcément le coup. On voit parfois des réductions à -70% ou -80% même. Des prix très attractifs qui tendent vers zéro. Même si le but est d'acheter à bas prix, focalisez vous sur le vêtement lui-même. Si le vêtement est ajusté, s'il est de bonne qualité etc ...
 Méfiez vous également des premières démarques. Un jean passant de 50 Euros à 40, je me pose toujours la question si j'attends la seconde démarque ou non. Sauf si bien sûr, le jeu en vaut la chandelle. Mais s'il valait le coup tant que ça dès le départ, je l'aurais déjà pris à 50 sans hésiter. Et puis tant pis s'il n'y a plus ma taille au moment de la seconde démarque. C'est un risque à prendre.
 
-### Réflexe 4 : 
+### Réflexe 4 : Acheter ce dont on a besoin
+
+### Réflexe 5 : Un repérage n'est jamais de refus
+
+### Réflexe 6 : Un Crevard Stylé ne se focus jamais sur la marque
