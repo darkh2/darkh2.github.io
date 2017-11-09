@@ -20,7 +20,7 @@ Tout ça pour dire que l'on était en début de mois, les factures étaient pay�
 
 ### Détails de la paire
 
-Parmi les nombreuses raisons qui m'ont poussé à craquer sur cette paire est que l'on a de très belles finitions.  
+Parmi les nombreuses raisons qui m'ont poussées à craquer sur cette paire est que l'on a de très belles finitions.  
 Une semelle solide en cuir ainsi que l'intérieur donc super confortable. L'esthétique est également à son comble. On a le haut de la botte renforcée par du cuir ainsi que le derrière. Pour plus de détails je vous mets le lien juste en dessous. Comptez **250 Euros** pour cette paire légendaire qui vaut le coup sur le long terme. Pendant les périodes de fêtes ou de soldes, le site fait quelques remises donc parfois le prix peut baisser un peu aux alentours de 200 Euros.
 
 [Jack Boots](https://taftclothing.com/collections/shoes/products/the-jack-boot-in-brown?variant=32691207110)
