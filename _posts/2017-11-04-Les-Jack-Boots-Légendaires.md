@@ -15,7 +15,7 @@ Si l'on devait choisir l'élément le plus crucial d'une tenue, ce serait incont
 
 ### Comment je suis tombé sur cette trouvaille ?
 
-C'était pendant une longue nuit d'hiver, alors que Morphée me boudait. J'étais en train de naviguer sur des comptes Instagram de sapeurs et d'un coup, j'ai remarqué un post sur cette paire de boots. De hashtag en hashtag j'ai réussi à tomber sur le compte en question et le site pour dénicher une paire. En gros c'était le coup de coeur. Je savais que j'allais lâcher un gros billet mais qu'une fois ces précieuses pièces seraient à mes pieds j'allais léviter sur le sol. C'est beau de rêver ...  
+C'était pendant une longue nuit d'hiver, alors que Morphée me boudait. J'étais en train de naviguer sur des comptes Instagram de sapeurs et d'un coup, j'ai remarqué un post sur cette paire de boots. De hashtag en hashtag, j'ai réussi à tomber sur le compte Instagram en question et le site pour dénicher une paire. En gros c'était le coup de coeur. Je savais que j'allais lâcher un gros billet mais qu'une fois ces précieuses pièces seraient à mes pieds j'allais léviter sur le sol. C'est beau de rêver ...  
 Tout ça pour dire que l'on était en début de mois, les factures étaient payées et j'avais pris la décision d'investir pour embellir mes potentielles futures tenues.
 
 ### Détails de la paire
