@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 2017-10-28T00:00:00.000Z
 categories: crevard-style articles
 author_slug: hyke
 feature_image: accueil-cs.jpg
