@@ -7,7 +7,7 @@ Tout au long de son évolution, le Crevard Stylé suivra une ligne de conduite d
 
 ### Réflexe 1 : 
 
-Lors d'un essayage, s'il n'y a pas ce petit coup de coeur au moment où vous vous regardez à travers le miroir avec ce nouveau vêtement, je suis dans le regret de vous dire qu'il ne faut pas l'acheter. Repensez à vos précédents achats que vous avez fait auparavant. Je suis persuadé que si vous aviez pris la décision de le prendre c'est que ça collait. Pas d'hésitation. One shot. La c'est pareil.
+Lors d'un essayage, s'il n'y a pas ce petit coup de coeur au moment où vous vous regardez à travers le miroir avec ce nouveau vêtement, je suis dans le regret de vous dire qu'il ne faut pas l'acheter. Repensez à vos précédents achats que vous avez fait auparavant. Je suis persuadé que si vous aviez pris la décision de le prendre c'est que ça collait. Pas d'hésitation. Ça passe ou Ça casse.
 
 ### Réflexe 2 : Gardez le contrôle même en ayant les poches vides
 
