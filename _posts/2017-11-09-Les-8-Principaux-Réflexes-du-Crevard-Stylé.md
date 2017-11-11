@@ -11,7 +11,7 @@ Lors d'un essayage, s'il n'y a pas ce petit coup de coeur au moment où vous vou
 
 ### Réflexe 2 : Gardez le contrôle même en ayant les poches vides
 
-Si l'on traverse une période de crise, et qu'on sens que l'on va être limite à la fin du mois, on ne prend rien du tout. On se contente de regarder même si l'on sent que c'est une occasion à saisir. Il s'agit de vêtements, ne vous inquiétez pas, ca se renouvelle. Il y aura forcément des pièces qui vous plairont plus tard. Puis, vous pouvez toujours attendre la période des soldes.
+Si l'on traverse une période de crise, et qu'on sens que l'on va être limite à la fin du mois, on ne prend rien du tout. On se contente de regarder même si l'on sent que c'est une occasion à saisir. Il s'agit de vêtements, ne vous inquiétez pas, ça se renouvelle. Il y aura forcément des pièces qui vous plairont plus tard. Puis, vous pouvez toujours attendre la période des soldes.
 
 ### Réflexe 3 : Ne pas tomber dans le piège de l'article pas cher ou de la grosse remise
 
