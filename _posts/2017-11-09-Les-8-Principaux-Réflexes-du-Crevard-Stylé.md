@@ -20,7 +20,7 @@ Méfiez vous également des premières démarques. Un jean passant de 50 Euros �
 
 ### Réflexe 4 : Acheter ce dont on a besoin
 
-L'hiver arrive, vous avez besoin d'un trench ? Vous venez de faire l'acquisition d'un nouveau perfecto et cherchez quelle paire de sneakers iraient avec ? Voila le type d'achat que vous devriez faire. C'est une nécessité ou bien vous avez ce but de combiner les éléments d'une tenue. Voila l'objectif. Si vous ne vous projettez pas à travers une nouvelle pièce, on rejoint le réflexe numéro 1. On ne prend rien.
+L'hiver arrive, vous avez besoin d'un trench ? Vous venez de faire l'acquisition d'un nouveau perfecto et cherchez quelle paire de sneakers iraient avec ? Voila le type d'achat que vous devriez faire. C'est une nécessité ou bien vous avez ce but de combiner les éléments d'une tenue. Voila l'objectif. Si vous ne vous projettez pas à travers une nouvelle pièce, on rejoint le réflexe numéro 1. On ne prend rien. En d'autres termes, même s'il s'agit d'un seul vêtement simple, il faut que vous l'imaginiez avec quoi vous pourriez le porter.
 
 ### Réflexe 5 : Un repérage n'est jamais de refus
 
