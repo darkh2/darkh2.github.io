@@ -9,7 +9,7 @@ published: true
 
 <p>
 De nos jours, nous n'avons que très rarement la possibilité de faire plus d'une fois une bonne première impression que ce soit en entretien ou lors d'une nouvelle rencontre.<br>
-Je suis Hyke et de mes 29 ans, j'ai toujours apprécié mettre en valeur le potentiel de chacun dans tous les domaines et du mieux que je pouvais notamment leur style.
+Je suis Hyke, j'ai toujours apprécié mettre en valeur le potentiel de chacun dans tous les domaines et du mieux que je pouvais notamment leur style.
 </p>
 
 <p>
@@ -45,5 +45,3 @@ Vous trouverez un certain nombre de catégories, en voici le détail :
 <p>
   Si vous avez des questions, des suggestions, des réactions ou bien vous remarquez des bugs sur le site, je vous invite à venir nous en faire part à travers la catégorie Contact.
   </p>
-
-

@@ -1,6 +1,7 @@
 ---
 layout: default
 bodyclass: full-height
+published: true
 ---
 {% assign posts_to_loop = site.categories[page.category_slug] %}
 <div class="container full-container full">
@@ -8,7 +9,7 @@ bodyclass: full-height
 
           <div class="col-sm-12 hero" style="background-image: url({{ site.baseurl }}/img/{{page.category_feature_image}});">
                 <div class="overlay">
-                    <h1 class="animated fadeIn delay-2 hero__title--tag">Posts de la catégorie {{page.category_name}}</h1>
+                    <h1 class="animated fadeIn delay-2 hero__title--tag"> {{page.category_name}}</h1>
                     {% assign num_of_cat_posts = site.categories[page.category_slug] | size  %}
                     {% if num_of_cat_posts <= 0 %}
                       {% assign post_qualifier = "Pas de publication" %}
