@@ -5,9 +5,9 @@ published: false
 
 Tout au long de son évolution, le Crevard Stylé suivra une ligne de conduite directrice qui le facilitera afin de développer et trouver son propre style. J'ai réuni dans cet article les 8 principaux réflexes que devra posseder ce crevard du futur.
 
-### Réflexe 1 : 
+### Réflexe 1 : Tout ou rien
 
-Lors d'un essayage, s'il n'y a pas ce petit coup de coeur au moment où vous vous regardez à travers le miroir avec ce nouveau vêtement, je suis dans le regret de vous dire qu'il ne faut pas l'acheter. Repensez à vos précédents achats que vous avez fait auparavant. Je suis persuadé que si vous aviez pris la décision de le prendre c'est que ça collait. Pas d'hésitation. Ça passe ou Ça casse.
+Lors d'un essayage, s'il n'y a pas ce petit coup de coeur au moment où vous vous regardez à travers le miroir avec ce nouveau vêtement, je suis dans le regret de vous dire qu'il ne faut pas l'acheter. Repensez à vos précédents achats que vous avez fait auparavant. Je suis persuadé que si vous aviez pris la décision de le prendre c'est que ça collait. Vous êtes dans cette cabine d'essayage pour améliorer votre style, pas pour faire un monologue en Yupik avec votre reflet. Pas d'hésitation. Ça passe ou Ça casse.
 
 ### Réflexe 2 : Gardez le contrôle même en ayant les poches vides
 
