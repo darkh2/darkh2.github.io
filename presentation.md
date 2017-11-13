@@ -3,7 +3,7 @@ layout: page
 title: Présentation
 feature_image: hyke-presentation.jpg
 permalink: /presentation/
-footer: '© 2017, Crevard Stylé by Hyke – All rights reserved – Credits. site fait par (fasca)[fascamaker.factory@gmail.com]'
+footer: '© 2017, Crevard Stylé by Hyke – All rights reserved – Credits. site fait par <a href="fascamaker.factory@gmail.com">fasca</a>'
 published: true
 ---
 
