@@ -4,7 +4,7 @@ layout: post
 date: 2017-11-15T00:00:00.000Z
 categories: crevard-style exceptions
 author_slug: hyke
-feature_image: redwinter.jpg
+feature_image: redwinter2.jpg
 ---
 ## Red Winter
 
