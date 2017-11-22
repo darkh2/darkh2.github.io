@@ -30,9 +30,19 @@ Pour clôturer le tout, une belle paire de chaussures marrons habillées à bout
 
 ### Crevard Stylé : On frôle l'exception
 
-Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craquer, mais on a quelques éléments que l'on peut considérer comme des exceptions, des prix un peu excessifs. A vous de juger.
+Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craquer, mais on a quelques éléments que l'on peut considérer comme des exceptions donc des prix un peu trop élevés pour ce que c'est. A vous de juger.
 
-* Chemise blanche à petits points : **25 Euros** chez Zara. 
+* Chemise blanche à petits points : **25 Euros** chez Zara. Un peu excessif pour une chemise blanche ?
+
+* Cardigan rouge foncé : **30 Euros** chez Uniqlo. Au moment où je vous parle, il me semble que ce cardigan soit à 40 Euros. Inflation ?
+
+* Pachmina rouge : **5 Euros** à un vendeur de rue sur Oxford Street. Un souvenir de Londres que j'avais apporté d'un week-end chez nos voisins les Anglais. A vrai dire, j'avais pris un lot de 5 pour 20 Livres Sterling. Même à l'étranger on peut faire des affaires.
+
+* Noeud papillon bleu à points blancs : **10 Euros** chez Zara. Le genre d'article qui est sous-estimé mais qui est tellement important.
+
+* Jean beige : **12 Euros** à Primark. Une boutique dont on ne se lasse pas pour les basiques.
+
+* Chaussures marron : **79 Euros** chez Zara. 
 
 ### Optimisation
 
