@@ -53,7 +53,7 @@ La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Eu
 Concernant le cardigan, c'est une bonne pièce pour son prix. Il en va de même pour le pachmina et le noeud papillon.  
 Une paire de chaussures marrons simple et habillée pour une tenue classe peut parfois demander d'y mettre un peu plus d'argent que prévu. Mais les occasions d'en trouver une autour des **50 Euros** ne sont pas rares.  
 
-La tenue globale peut atteindre les **120 Euros** si l'on optimise bien.
+La tenue globale peut atteindre un peu moins de **120 Euros** si l'on optimise bien.
   
   
 Dépasser la centaine d'Euros pour une tenue simple et habillée serait-il trop excessif ? Peut-on encore optimiser le prix des éléments de cette tenue ? A quoi ressemblerait votre propre Red Winter ? ... 
