@@ -26,7 +26,7 @@ Pour finaliser le haut, on a un pachmina avec un ton de rouge différent de celu
 
 Concernant le bas, et en raison du fort potentiel du haut, on reste sur une base de jean beige slim. On peut très bien remplacer ce jean par un chino de la même couleur.  
 
-Pour clôturer le tout, 
+Pour clôturer le tout, une belle paire de chaussures marrons habillées à bouts mi-pointus, mi-arrondis qui restent assez simples mais permettant de bien terminer la tenue globale.
 
 ### Crevard Stylé : On frôle l'exception
 
