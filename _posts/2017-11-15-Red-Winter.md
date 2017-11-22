@@ -30,8 +30,11 @@ Pour clôturer le tout, une belle paire de chaussures marrons habillées à bout
 
 ### Crevard Stylé : On frôle l'exception
 
+Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craquer, mais on a quelques éléments que l'on peut considérer comme des exceptions, des prix un peu excessifs. A vous de juger.
 
+* Chemise blanche à petits points : **25 Euros** chez Zara. 
 
 ### Optimisation
 
-Le coût total de la tenue peut être largement diminuée. Je dois vous avouer que dans cette tenue, je me suis fait un peu (trop) plaisir. 
+Le coût total de la tenue peut être largement diminuée. Je dois vous avouer que dans cette tenue, je me suis fait un peu (trop) plaisir.  
+La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Euros** chez Primark si l'on cherche bien. Ou la trouver légerment plus chère en période de soldes dans la plupart des enseignes de prêt-à-porter.
