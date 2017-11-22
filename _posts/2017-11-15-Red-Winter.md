@@ -25,6 +25,7 @@ Ensuite, ma pièce favorite de cette tenue. Le cardigan rouge foncé, rouge bord
 Pour finaliser le haut, on a un pachmina avec un ton de rouge différent de celui du cardigan qui fait jouer sur les nuances de rouges. Puis un noeud papillon en maille bleu à points blancs. Pour résumer, on a la pièce forte du cardigan pour mettre en avant la tenue, les tons de couleurs, et tons de matières. Cela fait un beau condensé de détails qui rendent agréable l'aspect visuel de l'ensemble.  
 
 Concernant le bas, et en raison du fort potentiel du haut, on reste sur une base de jean beige slim. On peut très bien remplacer ce jean par un chino de la même couleur.  
+
 Pour clôturer le tout, 
 
 ### Crevard Stylé : On frôle l'exception
