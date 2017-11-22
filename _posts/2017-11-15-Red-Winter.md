@@ -55,5 +55,5 @@ Une paire de chaussures marrons simple et habillée pour une tenue classe peut p
 
 La tenue globale peut atteindre les **120 Euros** si l'on optimise bien.
   
-
+  
 Dépasser la centaine d'Euros pour une tenue simple et habillée serait-il trop excessif ? Peut-on encore optimiser le prix des éléments de cette tenue ? A quoi ressemblerait votre propre Red Winter ? ... 
