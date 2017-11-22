@@ -44,7 +44,7 @@ Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craq
 
 * Chaussures marron : **79 Euros** chez Zara. La plus grosse exception de cette tenue, mais on arrive quand même à attenuer le coût total de l'ensemble grâce aux autres éléments.
 
-	**161 Euros !** On peut faire mieux encore en terme de dépenses. Entrons dans la partie Optimisation sans plus attendre.
+	**161 Euros !** On peut faire mieux encore en terme de dépenses. Un Red Winter où l'argent coûlerait peut-être plus que le vin ? Entrons dans la partie Optimisation sans plus attendre.
 
 ### Optimisation
 
@@ -53,4 +53,7 @@ La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Eu
 Concernant le cardigan, c'est une bonne pièce pour son prix. Il en va de même pour le pachmina et le noeud papillon.  
 Une paire de chaussures marrons simple et habillée pour une tenue classe peut parfois demander d'y mettre un peu plus d'argent que prévu. Mais les occasions d'en trouver une autour des **50 Euros** ne sont pas rares.  
 
-	La tenue
+La tenue globale peut atteindre les **120 Euros** si l'on optimise bien.
+
+
+Dépasser la centaine d'Euros pour une tenue simple et habillée serait-il trop excessif ? Peut-on encore optimiser le prix des éléments de cette tenue ? A quoi ressemblerait votre propre Red Winter ? ... 
