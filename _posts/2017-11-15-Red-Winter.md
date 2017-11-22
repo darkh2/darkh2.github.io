@@ -22,7 +22,7 @@ Si l'on devait déterminer l'élément numéro un du dressing à posséder de l'
 
 
 Ensuite, ma pièce favorite de cette tenue. Le cardigan rouge foncé, rouge bordeaux, mais c'est un beau rouge (j'ai l'impression d'entrer dans la peau d'un oenologue en pleine réflexion). On entre dans le vif du sujet. Du rouge en veux-tu, en voilà. On garde l'esprit des fêtes tout en étant habillé, simple et classe. La chemise et la tenue globale sont donc mis en avant avec cette superposition de couches.  
-Pour finaliser le haut, on a un pachmina avec un ton de rouge différent de celui du cardigan qui fait jouer sur les nuances de rouges. Puis un noeud papillon en maille bleu à points blancs. Pour résumer, on a la pièce forte du cardigan pour mettre en avant la tenue, les tons de couleurs, et tons de matières. Cela fait un beau condensé de détails qui rendent agréable l'aspect visuel de l'ensemble.  
+Pour accessoiriser le haut, on a un pachmina avec un ton de rouge différent de celui du cardigan qui fait jouer sur les nuances de rouges. Puis un noeud papillon en maille bleu à points blancs. Pour résumer, on a la pièce forte du cardigan pour mettre en avant la tenue, les tons de couleurs, et tons de matières. Cela fait un beau condensé de détails qui rendent agréable l'aspect visuel de l'ensemble.  
 
 Concernant le bas, et en raison du fort potentiel du haut, on reste sur une base de jean beige slim. On peut très bien remplacer ce jean par un chino de la même couleur.  
 
