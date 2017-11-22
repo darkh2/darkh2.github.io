@@ -17,6 +17,6 @@ L'association du rouge dans les tenues d'hiver font souvent leur apparition pour
 ### Zoom sur la tenue
 
 Rester classe et simple pour célébrer la venue de la nouvelle année est l'objectif principal. Le reste se fera sur les détails pour accentuer le côté original.  
-
+Si l'on devait déterminer l'élément numéro un du dressing à posséder de l'homme ce serait incontestablement la chemise blanche. Bien entendu, bien ajustée et qui mette en valeur la silhouette de son possesseur.
 
 ### Crevard Stylé : On frôle l'exception
