@@ -42,7 +42,9 @@ Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craq
 
 * Jean beige : **12 Euros** à Primark. Une boutique dont on ne se lasse pas pour les basiques.
 
-* Chaussures marron : **79 Euros** chez Zara. 
+* Chaussures marron : **79 Euros** chez Zara. La plus grosse exception de cette tenue, mais on arrive quand même à attenuer le coût total de l'ensemble grâce aux autres éléments.
+
+	**161 Euros !** 
 
 ### Optimisation
 
