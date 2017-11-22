@@ -51,4 +51,6 @@ Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craq
 Le coût total de la tenue peut être largement diminuée. Je dois vous avouer que dans cette tenue, je me suis fait un peu (trop) plaisir.  
 La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Euros** chez Primark si l'on cherche bien. Ou la trouver légerment plus chère en période de soldes dans la plupart des enseignes de prêt-à-porter (15 ou 20 Euros).  
 Concernant le cardigan, c'est une bonne pièce pour son prix. Il en va de même pour le pachmina et le noeud papillon.  
-Vouloir une paire de chaussures marrons simples et habillées pour une tenue classe peuvent parfois demander d'y mettre 
+Une paire de chaussures marrons simple et habillée pour une tenue classe peut parfois demander d'y mettre un peu plus d'argent que prévu. Mais les occasions d'en trouver une autour des **50 Euros** ne sont pas rares.  
+
+	La tenue
