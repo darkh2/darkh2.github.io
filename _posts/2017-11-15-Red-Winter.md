@@ -18,7 +18,9 @@ L'association du rouge dans les tenues d'hiver font souvent leur apparition pour
 
 Rester classe et simple pour célébrer la venue de la nouvelle année est l'objectif principal. Le reste se fera sur les détails pour accentuer le côté original.  
 
-Si l'on devait déterminer l'élément numéro un du dressing à posséder de l'homme ce serait incontestablement la chemise blanche. Bien entendu, bien ajustée et qui mette en valeur la silhouette de son possesseur. Ici, elle possède de tout petits motifs discrets (des points rouges et bleus). Très discrets, voire même invisibles. En d'autres termes, une chemise blanche bien ajustée suffit amplement. A vous de voir si vous voulez ajouter un peu de fantaisie.  
+Si l'on devait déterminer l'élément numéro un du dressing à posséder de l'homme ce serait incontestablement la chemise blanche. Bien entendu, bien ajustée et qui mette en valeur la silhouette de son possesseur. Ici, elle possède de tout petits motifs discrets (des points rouges et bleus). Très discrets, voire même invisibles. En d'autres termes, une chemise blanche bien ajustée suffit amplement. A vous de voir si vous voulez ajouter un peu de fantaisie. 
+
+
 Ensuite, ma pièce favorite de cette tenue. Le cardigan rouge foncé, rouge bordeaux, mais c'est un beau rouge (j'ai l'impression d'entendre deux oenologues en pleine discussion). On entre dans le vif du sujet. Du rouge en veux-tu, en voilà. On garde l'esprit des fêtes tout en étant habillé, simple et classe. La chemise et la tenue globale sont donc mis en avant avec cette superposition de couches.  
 Pour finaliser le haut, on a un pachmina avec un ton de rouge différent de celui du cardigan qui fait jouer sur les nuances de rouges. Puis un noeud papillon en maille bleu à points blancs. Pour résumer, on a la pièce forte du cardigan pour mettre en avant la tenue, les tons de couleurs, et tons de matières. Cela fait un beau condensé de détails qui rendent agréable l'aspect visuel de l'ensemble.  
 
