@@ -44,9 +44,11 @@ Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craq
 
 * Chaussures marron : **79 Euros** chez Zara. La plus grosse exception de cette tenue, mais on arrive quand même à attenuer le coût total de l'ensemble grâce aux autres éléments.
 
-	**161 Euros !** 
+	**161 Euros !** On peut faire mieux encore en terme de dépenses. Entrons dans la partie Optimisation sans plus attendre.
 
 ### Optimisation
 
 Le coût total de la tenue peut être largement diminuée. Je dois vous avouer que dans cette tenue, je me suis fait un peu (trop) plaisir.  
-La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Euros** chez Primark si l'on cherche bien. Ou la trouver légerment plus chère en période de soldes dans la plupart des enseignes de prêt-à-porter.
+La chemise blanche est un basique que l'on peut trouver aux alentours de **10 Euros** chez Primark si l'on cherche bien. Ou la trouver légerment plus chère en période de soldes dans la plupart des enseignes de prêt-à-porter (15 ou 20 Euros).  
+Concernant le cardigan, c'est une bonne pièce pour son prix. Il en va de même pour le pachmina et le noeud papillon.  
+Vouloir une paire de chaussures marrons simples et habillées pour une tenue classe peuvent parfois demander d'y mettre 
