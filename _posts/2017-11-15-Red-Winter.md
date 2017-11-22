@@ -30,7 +30,7 @@ Pour clôturer le tout, une belle paire de chaussures marrons habillées à bout
 
 ### Crevard Stylé : On frôle l'exception
 
-Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craquer, mais on a quelques éléments que l'on peut considérer comme des exceptions donc des prix un peu trop élevés pour ce que c'est. A vous de juger.
+Je ne sais pas si c'est cette attente de prime de fin d'année qui m'a fait craquer, mais on a quelques éléments que l'on peut considérer comme des exceptions donc des prix qui me semblent un peu trop élevés pour les pièces en question. A vous de juger.
 
 * Chemise blanche à petits points : **25 Euros** chez Zara. Un peu excessif pour une chemise blanche ?
 
