@@ -8,4 +8,4 @@ feature_image: blackfont.png
 ---
 ## La Chance Selon Hyke
 
-
+La plupart des informations recueillies sur Crevard Stylé traite du développement de son propre style. Le fait de traiter du développement du style n'empêche pas de s'ouvrir à d'autres critères à améliorer tant que chacun évolue.
