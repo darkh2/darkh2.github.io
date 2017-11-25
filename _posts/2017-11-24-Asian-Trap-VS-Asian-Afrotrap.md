@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2017-10-29T00:00:00.000Z
+date: 2017-08-01T00:00:00.000Z
 categories: hyke-music
 author_slug: hyke
 feature_image: asiantrap.jpg
