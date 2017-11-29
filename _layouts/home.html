@@ -23,13 +23,9 @@ published: true
             </div>
 
           {% for post in site.posts %}
-              {% rez=0 %}
-              {% for cat in post.categories %}
-                {% if cat == "hyke-music" %}
-                  {% rez=1 %}
-                {% endif %}
-              {% endfor %}
-              {% if rez == 0 %}
+              {% if post.category == "hyke-music" %}
+
+              {% else if %}
               <div class="col-sm-6 col-md-4 col-lg-3 post-preview {% if post.is_featured %} post--featured {% endif %}" style="background-image: url({{ site.baseurl }}/img/{{post.feature_image}});">
                   {% if post.is_featured %}
                   <span class="post-featured-text">New</span>
