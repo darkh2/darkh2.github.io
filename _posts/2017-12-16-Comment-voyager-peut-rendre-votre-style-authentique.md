@@ -16,7 +16,7 @@ Pour ma part l'authenticité d'une tenue est très important. Créer une histoir
 Le fait d'être livré à soi-même au moment de faire du shopping a l'étranger, peut donner un tout autre délire. Rien à perdre, donc ne pas hésiter à négocier. Discuter même avec le vendeur. Vous n'êtes la que pour un laps de temps limité donc l'état d'esprit euphorique de votre voyage devrait et doit vous permettre d'être dans cette dynamique d'oser sans aucune once d'hésitation. Le Crevard Stylé garde ses réflexes où qu'il soit.
 Puis vous savez, le fait que vous soyez a l'étranger donne au vendeur l'opportunité a lui de vous vendre un produit au prix fort puisqu'il se dit que vous n'êtes pas d'ici et qu'il en tirera un bénéfice. C'est la votre chance. Bien sûr il ne faut pas négliger la bonne humeur. Et rester courtois dans sa négociation. Les décisions se prennent de la meilleure manière quand il y a des sourires et des rires.
 
-Voir le style d'autrui dans des pays étrangers peut également vois donner une grande inspiration pour vos goûts vestimentaires.
+Voir le style d'autrui dans des pays étrangers peut également vous donner une grande inspiration pour vos goûts vestimentaires.
 
 En espérant que cet article vous donnera une énorme envie de voyager voire même d'aller déjà réserver un vol pour cet été qui sait.
 Alors quelle sera votre prochaine destination ?
