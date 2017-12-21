@@ -18,5 +18,7 @@ Puis vous savez, le fait que vous soyez a l'étranger donne au vendeur l'opportu
 
 Voir le style d'autrui dans des pays étrangers peut également vous donner une grande inspiration pour vos goûts vestimentaires.
 
+(Article en cours d'élaboration)
+
 En espérant que cet article vous donnera une énorme envie de voyager voire même d'aller déjà réserver un vol pour cet été qui sait.
 Alors quelle sera votre prochaine destination ?
