@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2017-12-16T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: lvelba.jpg
@@ -20,9 +20,11 @@ Puis vous savez, le fait que vous soyez a l'étranger donne au vendeur l'opportu
 
 ### Apporter la touche locale
 
-Voir le style d'autrui dans des pays étrangers peut également vous donner une grande inspiration pour vos goûts vestimentaires. N'auriez-vous pas envie de ressentir la nostalgie de votre voyage au moment où vous porterez une de vos prochaines tenues dont l'origine serait justement l'endroit où vous serez à cet instant ? Ce sont de bons souvenirs. 
+Voir le style d'autrui dans des pays étrangers peut également vous donner une grande inspiration pour vos goûts vestimentaires. La nostalgie se fera ressentir quand vous associerez cette future pièce locale à votre prochaine tenue. Ayez l'esprit ouvert. Soyez curieux. Pour cela, il faudra fouiner au plus d'endroits possibles. Demandez-vous comment réussir à inclure un vêtement ou accessoire du coin tout en restant fidèle à votre propre style.
 
-(Article en cours d'élaboration)
+### Préparation et optimisation
+
+Un homme averti en vaut deux. Pour vraiment profiter pleinement de l'ensemble du séjour même en dehors du shopping, un travail de renseignement au préalable.
 
 En espérant que cet article vous donnera une énorme envie de voyager voire même d'aller déjà réserver un vol pour cet été qui sait.
 Alors quelle sera votre prochaine destination ?
