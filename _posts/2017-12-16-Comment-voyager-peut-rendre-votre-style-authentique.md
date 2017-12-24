@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2017-12-16T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: lvelba.jpg
