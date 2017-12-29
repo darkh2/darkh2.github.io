@@ -27,4 +27,4 @@ Voir le style d'autrui dans des pays étrangers peut également vous donner une 
 Un homme averti en vaut deux. Pour vraiment profiter pleinement de l'ensemble du séjour même en dehors du shopping, un travail de renseignement au préalable. Faire une recherche concernant le style ou même les tenues traditionnelles du pays que vous allez visiter ne serait pas de refus non plus.
 
 En espérant que cet article vous donnera une énorme envie de voyager voire même d'aller déjà réserver un vol pour cet été qui sait.
-Alors quelle sera votre prochaine destination ?
+Alors, quelle sera votre prochaine destination ?
