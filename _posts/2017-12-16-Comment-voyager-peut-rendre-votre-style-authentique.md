@@ -24,7 +24,8 @@ Admirer le style d'autrui dans des pays étrangers peut également vous donner u
 
 ### Préparation et optimisation
 
-Un homme averti en vaut deux. Pour vraiment profiter pleinement de l'ensemble du séjour même en dehors du shopping, un travail de renseignement au préalable. Faire une recherche concernant le style ou même les tenues traditionnelles du pays que vous allez visiter ne serait pas de refus non plus.
+Un homme averti en vaut deux. Pour vraiment profiter pleinement de l'ensemble du séjour même en dehors du shopping, un travail de renseignement au préalable. Faire une recherche concernant le style ou même les tenues traditionnelles du pays que vous allez visiter ne serait pas de refus non plus. En arrivant sur place, prenez un maximum d'informations sur les bons plans et les meilleures boutiques du coin.
+Et surtout n'oubliez pas que vous n'êtes pas la que pour faire du shopping mais profiter pleinement du séjour.
 
 En espérant que cet article vous donnera une énorme envie de voyager voire même d'aller déjà réserver un vol pour cet été qui sait.
 Alors, quelle sera votre prochaine destination ?
