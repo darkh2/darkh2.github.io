@@ -9,3 +9,5 @@ feature_image: fortuneboots.jpg
 ## Fortune Boots
 
 ![fortuneboots]({{site.url}}/{{site.baseurl}}img/fortuneboots.jpg)
+
+Je vous conseille dans un premier temps avant de poursuivre cet article de jeter un oeil sur La chance selon Hyke (ne vous inquiétez pas, ce sera rapide), afin de bien saisir l'entiereté de cet article. Vous pouvez néanmoins poursuivre sans mais dès que les lignes qui vont suivre vous paraitront 
