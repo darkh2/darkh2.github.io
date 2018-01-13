@@ -13,14 +13,16 @@ Nous verrons à quel point il est très important de se focaliser sur cette vari
 La plupart d'entre vous pense au hasard, ou au phénomène aléatoire, ou encore le destin. Mais quand on scrute un peu cette variable, cet aspect devient un peu plus complexe que l'on ne peut l'imaginer.
 Ce qu'on aime chez Crevard Stylé c'est l'optimisation. Devenir la meilleure version de soi-même. Pour y arriver, le mieux est de mettre toutes les chances de son côté (Dis donc, quel jeu de mots!). Mais à force de vivre certaines expériences, j'ai eu une autre vision de la chance. Je la décompose en deux parties : Une partie Absolue et une autre que je qualifie comme Maîtrisable, ou encore relative. 
 
-### La Chance Absolue
+### La chance Absolue
 
-La partie Absolue est celle que l'on connaît comme non maîtrisable. Le phénomène aléatoire. Le lancer de dés. Cette partie que quoi que vous fassiez vous ne maîtrisez aucune variable de cette partie. Ce qui devait arriver, arriva.
+La partie Absolue est celle que l'on connaît comme non maîtrisable. Le phénomène aléatoire. Le lancer de dés ou un pile ou face par exemple. Quoi que vous fassiez, vous ne maîtrisez rien de cette partie. Ce qui devait arriver, arriva.
 
-### La Chance Maîtrisable
+### La chance Maîtrisable
 
-Voici la partie la plus intéressante. Et c'est la que l'on peut devenir maître de son destin en comprenant comment cette partie et la chance dans toute sa globalité peut jouer en notre faveur. Avez vous déjà entendu l'expression "Provoquer le destin" ?
+Voici la partie la plus intéressante. Et c'est là que l'on peut devenir maître de son destin en comprenant comment cette partie et la chance dans toute sa globalité peut jouer en notre faveur. Avez vous déjà entendu l'expression "Provoquer le destin" ?
 
-###
+### Consolider la Chance Absolue et Maîtrisable
+
+
 
 Conclusion
