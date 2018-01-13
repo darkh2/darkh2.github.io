@@ -8,4 +8,4 @@ feature_image: fortuneboots.jpg
 ---
 ## Fortune Boots
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+![fortuneboots]({{site.url}}/{{site.baseurl}}img/fortuneboots.jpg)
