@@ -25,5 +25,5 @@ La partie Maîtrisable est celle que vous pouvez favoriser afin d'optimiser votr
 ### Consolider la Chance Absolue et Maîtrisable
 
 "Mais Jamy ! Pourquoi tu nous parles de chance alors qu'on est sur un site qui parle du développement du style à moindre coût ?" (On se croirait dans un épisode de "C'est pas sorcier"). Vous allez très vite comprendre l'interêt de cet article dans la partie suivante : [Fortune Boots](www.crevardstyle.com/Fortune-Boots)
+Dans cet article, je vous décris comment j'ai fais l'acquisition d'une paire de bottes en optimisant le prix en favorisant la chance.
 
-Conclusion
