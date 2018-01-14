@@ -25,3 +25,5 @@ Je me suis donc mis à chercher vers le rayon des chaussures.
 ### Fortune is here
 
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
+
+Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui allait avec (mettre lien)
