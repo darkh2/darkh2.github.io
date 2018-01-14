@@ -14,4 +14,4 @@ Je vous conseille dans un premier temps avant de poursuivre cet article de jeter
 
 La chance peut nous sourire, et parfois elle peut nous bouder comme jamais (qui parle de sorcellerie ?). Avoir un bon prix sur nos articles que ce soit en période de soldes ou non, est un objectif permanent pour embellir notre style et surtout faire du bien à notre porte-feuille. 
 
-Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maîtrisable.
+Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
