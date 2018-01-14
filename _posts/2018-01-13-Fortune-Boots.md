@@ -23,7 +23,9 @@ Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je j
 ### Le flair
 
 De retour chez moi la semaine qui suivait dans cette belle région parisienne (à vous de voir si je le dis ironiquement ou non), ce conflit de prix m'intriguait toujours autant. Je m'étais dis que si j'allais faire une petite folie pour cette belle paire de boots, autant qu'elles soient à 25 Euros. Cela reste raisonnable pour ce type de pièce.  
-Je me rendis dans la même enseigne de ce magasin dans un centre commercial. Pas le même que précedemment vu que j'étais dans une autre ville. Vous suivez ? Parfait ! Poursuivons ... 
+Je me rendis dans la même enseigne de ce magasin dans un centre commercial. Pas le même que précedemment vu que j'étais dans une autre ville. Vous suivez ? Parfait ! Poursuivons ...  
+En rentrant, j'allais directement dans le rayon des chaussures pour vérifier si dans cette boutique il y avait un conflit de prix entre les articles ou non. 
+
 
 ### Fortune is here
 
