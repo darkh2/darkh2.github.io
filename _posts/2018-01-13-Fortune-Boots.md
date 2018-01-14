@@ -28,6 +28,7 @@ En rentrant, j'allais directement dans le rayon des chaussures pour vérifier si
 
 ### Fortune ou pas fortune ?
 
+
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
 
 ### Morale ? S'il y en a une ...
