@@ -42,3 +42,5 @@ Je vais surement paraître superstitieux mais rien n'arrive au hasard. Au bout d
 Que ce soit dans une situation comme celle-çi ou une autre, quand vous avez un pressentiment et des signes qui ont tendance à le confirmer, il faut foncer. Qu'est-ce que j'entends par foncer ? Favoriser votre chance Maitrisable tout simplement. Agir. Prendre les bonnes décisions. Ici j'ai eu du bol, et des signes qui ont confirmé mes suppositions. J'ai donc agi.
 
 Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui irait avec. Suivez-moi pour les détails de la tenue dont les Fortune Boots en font partie. [Lucky Fit](www.crevardstyle.com/Lucky-Fit)
+
+Que pensez-vous de cette histoire ? Avais-je réellement besoin d'agir ? Aurais-je eu cette paire de bottes à ce prix là si j'avais pris la décision de les prendre directement sans réfléchir ? Faut-il toujours foncer quand on a un pressentiment qu'il soit bon ou mauvais ? J'attends vos réactions ...
