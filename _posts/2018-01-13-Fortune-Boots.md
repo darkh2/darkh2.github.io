@@ -18,7 +18,7 @@ L'acquisition de cette paire de bottes à prix défiant toute concurrence s'est 
 ### Introduction et repérage
 
 C'etait un week-end de fin d'automne. J'étais en train de me balader avec mes soeurs et ma mère dans plusieurs boutiques de vêtements. Au moment de rentrer dans l'un d'eux, je me dirigea vers le secteur homme naturellement. Pendant mon repérage, je vis soudainement une fameuse paire de bottes noires très classes et simples. Elles étaient sur un mannequin de base avec une tenue pour la mettre en valeur. Ils avaient réussi d'ailleurs vu que ça m'avait attiré.  
-Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je jetta un oeil sur le prix. Et elles étaient à 30 Euros. Néanmoins, je voyais certaines autres paires à 25 Euros. Je ne me rappelle plus de l'expression sur mon visage à ce moment là, mais ça devait être bien drôle vu que je faisais ma tête intriguée. A cet instant, je m'étais dis que les paires n'étaient pas les mêmes vu que le prix était différent. Et pourtant. C'etait les mêmes paires saperlipopette !
+Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je jetta un oeil sur le prix. Et elles étaient à 30 Euros. Néanmoins, je voyais certaines autres paires à 25 Euros. Je ne me rappelle plus de l'expression sur mon visage à ce moment là, mais ça devait être bien drôle vu que je faisais ma tête intriguée. A cet instant, je m'étais dis que les paires n'étaient pas les mêmes vu que le prix était différent. Et pourtant. C'etait les mêmes paires saperlipopette ! Même si je les voulais, je me suis dis que ça ne valait pas le coup pour le moment. Pas d'achat compulsif. Je suis sorti du magasin sans enthousiasme. 
 
 ### Le flair
 
