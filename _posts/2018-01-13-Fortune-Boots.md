@@ -22,13 +22,16 @@ Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je j
 
 ### Le flair
 
-De retour chez moi la semaine qui suivait dans cette belle région parisienne (à vous de voir si je le dis ironiquement ou non), ce conflit de prix m'intriguait toujours autant. Je m'étais dis que si j'allais faire une petite folie pour cette belle paire de boots, autant qu'elles soient à 25 Euros. Cela reste raisonnable pour ce type de pièce.  
+Je rentrais chez moi la semaine qui suivait dans cette belle région parisienne (à vous de voir si je le dis ironiquement ou non), ce conflit de prix m'intriguait toujours autant. Je m'étais dis que si j'allais faire une petite folie pour cette belle paire de boots, autant qu'elles soient à 25 Euros. Cela reste raisonnable pour ce type de pièce.  
 Je me rendis dans la même enseigne de ce magasin dans un centre commercial. Pas le même que précedemment vu que j'étais dans une autre ville. Vous suivez ? Parfait ! Poursuivons ...  
 En rentrant, j'allais directement dans le rayon des chaussures pour vérifier si dans cette boutique il y avait un conflit de prix entre les articles ou non. Devinez quoi ? Toutes les paires étaient à 30 Euros. La chance Absolue n'était pas de mon côté visiblement. Ce n'est qu'une histoire de 5 malheureux Euros, mais je tenais quand même à mon optimisation de prix. Un des reflèxes de Crevard Stylé. Et sans ce reflèxe, je ne suis pas digne de tenir ce blog. Je sentais qu'il fallait que je retourne dans la boutique de ma ville natale à la prochaine occasion pour vérifier s'il y a encore cette ambiguité de prix entre ces bottes. Cette décision que j'ai prise d'y retourner était donc pour favoriser ma chance Maitrisable. 
 
 ### Fortune ou pas fortune ?
 
-
+Le week-end d'après, j'étais de retour dans le game. Il fallait que je retourne dans cette boutique pour vérifier si le conflit de prix y était toujours. Y avait-il encore des paires à 25 et à 30 Euros ? ...  
+Toutes les paires étaient à 30 Euros ! Sauf une ! Seulement une qui était à 25 Euros et ce qui était magnifique dans tout ça, c'est que c'était ma pointure. La chance Absolue était avec moi. Elle y était tellement qu'elle voulait encore s'aventurer avec moi.  
+J'arriva à la caisse pour payer. 
+Parfois, la chance Absolue peut vous aider à favoriser votre chance Maitrisable. Comme si la partie Absolue était une sorte de guide de la partie Maitrisable.
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
 
 ### Morale ? S'il y en a une ...
