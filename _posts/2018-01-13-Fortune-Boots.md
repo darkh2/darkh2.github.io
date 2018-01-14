@@ -2,7 +2,7 @@
 published: false
 layout: post
 date: 2018-01-13T00:00:00.000Z
-categories: articles crevard-style
+categories: crevard-style articles
 author_slug: hyke
 feature_image: fortuneboots.jpg
 ---
