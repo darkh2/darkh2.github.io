@@ -30,7 +30,8 @@ En rentrant, j'allais directement dans le rayon des chaussures pour vérifier si
 
 Le week-end d'après, j'étais de retour dans le game. Il fallait que je retourne dans cette boutique pour vérifier si le conflit de prix y était toujours. Y avait-il encore des paires à 25 et à 30 Euros ? ...  
 Toutes les paires étaient à 30 Euros ! Sauf une ! Seulement une qui était à 25 Euros et ce qui était magnifique dans tout ça, c'est que c'était ma pointure. La chance Absolue était avec moi. Elle y était tellement qu'elle voulait encore s'aventurer avec moi.  
-J'arriva à la caisse pour payer. La caissière me demanda si je possedais la carte du magasin. Je ne l'avais pas. Après avoir refuser son invitation à en avoir une vu qu'à ce moment la je manquais de temps, elle m'annonça qu'en la faisant tout de suite, j'aurais le droit à une remise immédiate de 40%. Je la regarda avec un sourire légéndaire ! Le genre de sourire avec lequel on voit 110% de vos dents.
+J'arriva à la caisse pour payer. La caissière me demanda si je possedais la carte du magasin. Je ne l'avais pas. Après avoir refuser son invitation à en avoir une vu qu'à ce moment la je manquais de temps, elle m'annonça qu'en la faisant tout de suite, j'aurais le droit à une remise immédiate de 40%. Je la regarda avec un sourire légéndaire ! Le genre de sourire avec lequel on voit 110% de vos dents. Je lui dis "Ah la c'est SUR je la veux la carte!" C'était Noël avant l'heure.  
+Résultats des courses : j'avais eu les Fortune Boots pour **15 Euros**.  
 Parfois, la chance Absolue peut vous aider à favoriser votre chance Maitrisable. Comme si la partie Absolue était une sorte de guide de la partie Maitrisable.
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
 
