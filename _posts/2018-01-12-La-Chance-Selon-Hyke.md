@@ -25,6 +25,6 @@ Sachant que si vous ratez le bus, en prenant le prochain vous risquez fortement 
 
 ### Consolider la Chance Absolue et Maitrisable
 
-"Mais Jamy ! Pourquoi tu nous parles de chance alors qu'on est sur un site qui parle du développement du style à moindre coût ?" (On se croirait dans un épisode de "C'est pas sorcier"). Vous allez très vite comprendre l'interêt de cet article dans la partie suivante : [Fortune Boots](www.crevardstyle.com/Fortune-Boots)
+"Mais Jamy ! Pourquoi tu nous parles de chance alors qu'on est sur un site qui parle du développement du style à moindre coût ?" (On se croirait dans un épisode de "C'est pas sorcier"). Vous allez très vite comprendre l'interêt de cet article dans la partie suivante : [Fortune Boots](www.crevardstyle.com/Fortune-Boots)  
 Dans cet article, je vous décris comment j'ai fais l'acquisition d'une paire de bottes en optimisant le prix en favorisant la chance.
 
