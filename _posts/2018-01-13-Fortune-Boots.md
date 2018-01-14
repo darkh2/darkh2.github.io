@@ -26,7 +26,6 @@ De retour chez moi la semaine qui suivait dans cette belle région parisienne (�
 Je me rendis dans la même enseigne de ce magasin dans un centre commercial. Pas le même que précedemment vu que j'étais dans une autre ville. Vous suivez ? Parfait ! Poursuivons ...  
 En rentrant, j'allais directement dans le rayon des chaussures pour vérifier si dans cette boutique il y avait un conflit de prix entre les articles ou non. Devinez quoi ? Toutes les paires étaient à 30 Euros. La chance Absolue n'était pas de mon côté visiblement. Ce n'est qu'une histoire de 5 malheureux Euros, mais je tenais quand même à mon optimisation de prix. Un des reflèxes de Crevard Stylé. Je sentais qu'il fallait que je retourne dans la boutique de ma ville natale à la prochaine occasion pour vérifier s'il y a encore cette ambiguité de prix entre ces bottes.
 
-
 ### Fortune ou pas fortune ?
 
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
@@ -36,4 +35,4 @@ Pas eu besoin de négocier, même si le fait de négocier peut justement favoris
 Je vais surement paraître superstitieux mais rien n'arrive au hasard. Au bout du compte, il me fallait cette paire et elles m'appelaient.
 Que ce soit dans une situation comme celle-çi ou une autre, quand vous avez un pressentiment et des signes qui ont tendance à le confirmer, il faut foncer. Qu'est-ce que j'entends par foncer ? Favoriser votre chance Maitrisable tout simplement. Agir. Prendre les bonnes décisions. De toute façon, vous ne pourrez pas tout avoir. Ici j'ai eu du bol, et des signes qui ont confirmé mes suppositions. J'ai agi.
 
-Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui allait avec. Pour les détails de la tenue dont les Fortune Boots, c'est ici que ça se passe : (mettre lien)
+Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui irait avec. Suivez-moi pour les détails de la tenue dont les Fortune Boots en font partie. C'est ici que ça se passe : (mettre lien)
