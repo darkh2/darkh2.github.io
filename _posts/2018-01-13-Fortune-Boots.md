@@ -17,13 +17,20 @@ L'acquisition de cette paire de bottes à prix défiant toute concurrence s'est 
 
 ### Introduction et repérage
 
-C'etait un week-end de fin d'automne. J'étais en train de me balader avec mes soeurs et ma mère dans plusieurs boutiques de vêtements. Au moment de rentrer dans l'un d'eux, je me dirigea vers le secteur homme naturellement. Pendant mon repérage, je vis soudainement une fameuse paire de bottes noires très classes et simples. Elles étaient sur un mannequin de base avec une tenue pour la mettre en valeur. Ils avaient réussi d'ailleurs vu que ça m'avait attiré.  
-Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je jetta un oeil sur le prix. Et elles étaient à 30 Euros. Néanmoins, je voyais certaines autres paires à 25 Euros. Je ne me rappelle plus de l'expression sur mon visage à ce moment là, mais ça devait être bien drôle vu que je faisais ma tête intriguée. A cet instant, je m'étais dis que les paires n'étaient pas les mêmes vu que le prix était différent. Et pourtant. C'etait les mêmes paires saperlipopette ! Même si je les voulais, je me suis dis que ça ne valait pas le coup pour le moment. Pas d'achat compulsif. Je suis sorti du magasin sans enthousiasme. 
+C'etait un week-end de fin d'automne. J'avais décidé de le passer chez mes parents dans ma ville natale. J'étais en train de me balader avec mes soeurs et ma mère dans plusieurs boutiques de vêtements. Au moment de rentrer dans l'un d'eux, je me dirigea vers le secteur homme naturellement. Pendant mon repérage, je vis soudainement une fameuse paire de bottes noires très classes et simples. Elles étaient sur un mannequin de base avec une tenue pour la mettre en valeur. Ils avaient réussi d'ailleurs vu que ça m'avait attiré.  
+Je me suis donc mis à chercher vers le rayon des chaussures. En y arrivant je jetta un oeil sur le prix. Et elles étaient à 30 Euros. Néanmoins, je voyais certaines autres paires à 25 Euros. Je ne me rappelle plus de l'expression sur mon visage à ce moment là, mais ça devait être bien drôle vu que je faisais ma tête intriguée. A cet instant, je m'étais dis que les paires n'étaient pas les mêmes vu que le prix était différent. Et pourtant. C'etait les mêmes paires saperlipopette ! Ne me demandez pas pourquoi je ne me suis pas tourné auprès d'une vendeuse, je n'avais pas envie d'en solliciter une par crainte que le prix soit de 30 plutôt que 25. Même si je les voulais, je me suis dis que ça ne valait pas le coup pour le moment. Pas d'achat compulsif. Je suis sorti du magasin sans enthousiasme. 
 
 ### Le flair
+
+De retour chez moi la semaine qui suivait dans cette belle région parisienne (à vous de voir si je le dis ironiquement ou non), ce conflit de prix m'intriguait toujours autant. Je m'étais dis que si j'allais faire une petite folie pour cette belle paire de boots, autant qu'elles soient à 25 Euros. Cela reste raisonnable pour ce type de pièce.
 
 ### Fortune is here
 
 Pas eu besoin de négocier, même si le fait de négocier peut justement favoriser la chance en exploitant cette partie Maitrisable.
+
+### Morale ? S'il y en a une ...
+
+Je vais surement paraître superstitieux mais rien n'arrive au hasard. Au bout du compte, il me fallait cette paire et elles m'appelaient.
+Que ce soit dans une situation comme celle-çi ou une autre, quand vous avez un pressentiment et des signes qui ont tendance à le confirmer, il faut foncer.  
 
 Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui allait avec (mettre lien)
