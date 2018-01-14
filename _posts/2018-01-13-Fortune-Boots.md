@@ -33,4 +33,4 @@ Pas eu besoin de négocier, même si le fait de négocier peut justement favoris
 Je vais surement paraître superstitieux mais rien n'arrive au hasard. Au bout du compte, il me fallait cette paire et elles m'appelaient.
 Que ce soit dans une situation comme celle-çi ou une autre, quand vous avez un pressentiment et des signes qui ont tendance à le confirmer, il faut foncer. Qu'est-ce que j'entends par foncer ? Favoriser votre chance Maitrisable tout simplement. Agir. Prendre les bonnes décisions. De toute façon, vous ne pourrez pas tout avoir. Ici j'ai eu du bol, et des signes qui ont confirmé mes suppositions. J'ai agi.
 
-Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui allait avec (mettre lien)
+Je ne pouvais pas faire cet article sur les Fortune Boots sans une tenue qui allait avec. Pour les détails de la tenue dont les Fortune Boots, c'est ici que ça se passe : (mettre lien)
