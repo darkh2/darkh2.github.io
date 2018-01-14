@@ -10,8 +10,8 @@ feature_image: chance.jpg
 
 La vie est une succession de péripéties. Au cours de celles-ci, l'homme fera face à des opportunités. A lui de se donner les moyens ou non de les saisir. Un des nombreux facteurs est à prendre en compte pour ces prises d'opportunités : **La Chance**.  
 Nous verrons à quel point il est très important de se focaliser sur cette variable pour se développer dans tous les domaines possibles.
-La plupart d'entre vous pense au hasard, ou au phénomène aléatoire, ou encore le destin. Mais quand on scrute un peu cette variable, cet aspect devient un peu plus complexe que l'on ne peut l'imaginer.
-Ce qu'on aime chez Crevard Stylé c'est l'optimisation. Devenir la meilleure version de soi-même. Pour y arriver, le mieux est de mettre toutes les chances de son côté (Dis donc, quel jeu de mots!). Mais à force de vivre certaines expériences, j'ai eu une autre vision de la chance. Je la décompose en deux parties : Une partie Absolue et une autre que je qualifie comme Maîtrisable, ou encore relative. 
+La plupart d'entre vous pense au hasard, au phénomène aléatoire, ou encore le destin. Mais quand on scrute un peu cette variable, cet aspect devient un peu plus complexe que l'on ne peut l'imaginer.  
+Ce qu'on aime chez Crevard Stylé c'est l'optimisation. Devenir la meilleure version de soi-même. Pour y arriver, le mieux est de mettre toutes les chances de son côté (dis donc, quel jeu de mots!). Mais à force de vivre certaines expériences, j'ai eu une autre vision de la chance. Je la décompose en deux parties :  Une partie Absolue et une autre que je qualifie comme Maîtrisable, ou encore relative. 
 
 ### La chance Absolue
 
