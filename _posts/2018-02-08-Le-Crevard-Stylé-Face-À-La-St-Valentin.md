@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-02-08T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -12,7 +12,12 @@ Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet
 
 ### Watchu gonna do* ? (*Qu'est ce que vous/tu allez/vas faire ?)
 
-Il n'y a pas 36 000 solutions. Déjà, si vous êtes en couple et que vous le fêtez
+Voici les solutions possibles :
+
+* En couple et vous fêtez la Saint Valentin.
+* En couple et vous ne fêtez pas la Saint Valentin.
+* Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
+* Célibataire et vous ne fêtez pas la Saint Valentin.
 
 ### Mise en place d'une optimisation
 
