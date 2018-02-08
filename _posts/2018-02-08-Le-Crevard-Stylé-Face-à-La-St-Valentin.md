@@ -9,3 +9,5 @@ feature_image: blackfont.png
 ## Le Crevard Stylé Face À La St Valentin
 
 Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet évenement fait pour les amoureux qu'est la Saint Valentin. On ne va pas se mentir, c'est aussi une bonne fête commerciale également. On va vouloir s'en prendre à votre porte-feuille.
+
+### Watchu gonna do* ? (*Qu'est ce que tu vas faire?)
