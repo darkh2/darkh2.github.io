@@ -8,4 +8,4 @@ feature_image: blackfont.png
 ---
 ## Le Crevard Stylé Face À La St Valentin
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet évenement fait pour les amoureux qu'est la Saint Valentin. On ne va pas se mentir, c'est aussi une bonne fête commerciale également.
