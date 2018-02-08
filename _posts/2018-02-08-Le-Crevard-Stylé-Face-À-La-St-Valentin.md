@@ -14,13 +14,15 @@ Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet
 
 Voici les solutions possibles :
 
-* En couple et vous fêtez la Saint Valentin.
-* En couple et vous ne fêtez pas la Saint Valentin.
-* Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
-* Célibataire et vous ne fêtez pas la Saint Valentin.
+* A - En couple et vous fêtez la Saint Valentin.
+* B - En couple et vous ne fêtez pas la Saint Valentin :
+		* B1 - Vous n'êtes pas avec votre chérie.
+        * B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement.
+* C - Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
+* D - Célibataire et vous ne fêtez pas la Saint Valentin.
 
 ### Mise en place d'une optimisation
 
-Dans chaque cas de figure, je vous propose une manière de faire quelque chose qui se démarque sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer.
+Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer.
 
 ### Résultats et perspectives
