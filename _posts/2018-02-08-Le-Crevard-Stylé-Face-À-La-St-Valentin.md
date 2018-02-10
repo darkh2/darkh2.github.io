@@ -21,6 +21,8 @@ B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement (j
 * C - Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
 * D - Célibataire et vous ne fêtez pas la Saint Valentin.
 
+Evidemment, je poste les solutions les plus probables, il existe d'autres variantes encore. Notez déjà que si vous avez votre propre solution ne figurant pas dans cette liste, alors vous êtes en très bon chemin pour vous démarquez et faciliter l'évolution dans votre développement personnel.
+
 ### Mise en place d'une optimisation
 
 Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
