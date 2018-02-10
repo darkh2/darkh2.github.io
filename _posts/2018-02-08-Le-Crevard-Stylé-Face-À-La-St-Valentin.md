@@ -29,7 +29,11 @@ Dans chaque cas de figure énoncés precedemment, je vous propose une manière d
 
 #### A - En couple et fêtez la Saint Valentin
 
-#### B - En couple  
+#### B - En couple et vous ne fêtez pas la Saint Valentin
+
+##### B1 - Chérie absente
+
+##### B2 - 
 
 ### Résultats et perspectives
 
