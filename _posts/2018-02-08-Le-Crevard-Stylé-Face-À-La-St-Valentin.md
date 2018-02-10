@@ -27,13 +27,17 @@ Evidemment, je poste les solutions les plus probables. Il existe d'autres varian
 
 Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
 
-#### A - En couple et fêtez la Saint Valentin
+#### A - En couple avec la Saint Valentin
 
-#### B - En couple et vous ne fêtez pas la Saint Valentin
+#### B - En couple sans la Saint Valentin
 
 ##### B1 - Chérie absente
 
-##### B2 - 
+##### B2 - En couple mais sans fêter la Saint Valentin tout simplement
+
+#### C - Célibataire et Saint Valentin, anti-soirée ou autre
+
+#### D - Célibataire sans la Saint Valentin
 
 ### Résultats et perspectives
 
