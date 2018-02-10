@@ -32,3 +32,5 @@ Dans chaque cas de figure énoncés precedemment, je vous propose une manière d
 #### B - En couple  
 
 ### Résultats et perspectives
+
+### Et les femmes alors ?
