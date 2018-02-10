@@ -12,7 +12,7 @@ Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet
 
 ### Watchu gonna do* ? (*Qu'est ce que vous/tu allez/vas faire ?)
 
-Voici les solutions possibles :
+Voici les solutions possibles qui déterminent dans quel cas vous pourriez être :
 
 * A - En couple et vous fêtez la Saint Valentin.
 * B - En couple et vous ne fêtez pas la Saint Valentin :  
@@ -26,5 +26,9 @@ Evidemment, je poste les solutions les plus probables, il existe d'autres varian
 ### Mise en place d'une optimisation
 
 Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
+
+#### A - En couple et fêtez la Saint Valentin
+
+#### B - En couple  
 
 ### Résultats et perspectives
