@@ -23,6 +23,6 @@ B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement (j
 
 ### Mise en place d'une optimisation
 
-Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation.
+Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
 
 ### Résultats et perspectives
