@@ -8,7 +8,7 @@ feature_image: blackfont.png
 ---
 ## Le Crevard Stylé Face À La St Valentin
 
-Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet évenement fait pour les amoureux qu'est la Saint Valentin. On ne va pas se mentir, c'est aussi une bonne fête commerciale également. On va vouloir s'en prendre à votre porte-feuille. En quoi la Saint Valentin va profiter à développer le style (pas que vestimentaire, la je parle de votre style au sens large, c'est à dire, votre état d'esprit, votre personnalité, tout ce qui englobe ce qui est propre à vous-mêmes) en limitant la dépense de ses propres deniers ?
+Impossible que je ne puisse pas pondre un article pour cette fête, ce jour, cet évenement fait pour les amoureux qu'est la Saint Valentin. On ne va pas se mentir, c'est aussi une bonne fête commerciale également. On va vouloir s'en prendre à votre porte-feuille. En quoi la Saint Valentin va profiter à développer le style (pas que vestimentaire, la je parle du style au sens large, c'est à dire, l'état d'esprit, la personnalité, tout ce qui englobe ce qui est propre à soi-même) en limitant la dépense de ses propres deniers ?
 
 ### Watchu gonna do* ? (*Qu'est ce que vous/tu allez/vas faire ?)
 
