@@ -16,8 +16,8 @@ Voici les solutions possibles :
 
 * A - En couple et vous fêtez la Saint Valentin.
 * B - En couple et vous ne fêtez pas la Saint Valentin :
-* B1 - Vous n'êtes pas avec votre chérie.
-* B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement (je serai très curieux de voir 		ça).
+*    B1 - Vous n'êtes pas avec votre chérie.
+*    B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement (je serai très curieux de voir 		ça).
 * C - Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
 * D - Célibataire et vous ne fêtez pas la Saint Valentin.
 
