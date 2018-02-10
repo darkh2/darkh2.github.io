@@ -21,7 +21,7 @@ B2 - Vous êtes avec votre chérie mais vous ne le fêtez pas tout simplement (j
 * C - Célibataire et vous fêtez la Saint Valentin ou bien vous avez décidé de faire une anti-soirée ou je ne sais quel type de soirée entre célibataires.
 * D - Célibataire et vous ne fêtez pas la Saint Valentin.
 
-Evidemment, je poste les solutions les plus probables, il existe d'autres variantes encore. Notez déjà que si vous avez votre propre solution ne figurant pas dans cette liste, alors vous êtes en très bon chemin pour vous démarquez et faciliter l'évolution dans votre développement personnel.
+Evidemment, je poste les solutions les plus probables. Il existe d'autres variantes encore. Notez déjà que si vous avez votre propre solution ne figurant pas dans cette liste, alors vous êtes en très bon chemin pour vous démarquez et faciliter l'évolution dans votre développement personnel.
 
 ### Mise en place d'une optimisation
 
