@@ -36,7 +36,7 @@ Toutes ces belles intentions auront plus d'impact qu'un simple resto ou un prés
 
 #### B1 - En couple sans la Saint Valentin : Chérie absente 
 
-Je suis déjà triste pour vous d'avance. Mais rien ne vous empêche d'appliquer la situation A au moment où vous vous retrouverez. Mais en attendant, l'expression du style et de sa personnalité rentrent en jeu également. Une photo avec une belle tenue que vous portez ou un message doux que vous pourriez lui envoyer.  
+Je suis déjà triste pour vous d'avance. Mais rien ne vous empêche d'appliquer la situation A au moment où vous vous retrouverez. Mais en attendant, l'expression du style et de sa personnalité rentrent en jeu également. Une photo avec une belle tenue accompagné d'un message doux que vous pourriez lui envoyer.  
 Concernant la tenue, vous pourriez réfléchir à une nouvelle tenue ou un habit tout simplement qui pourrait vous permettre de vous démarquer et embellir votre dressing par la même occasion tout en gardant les réflèxes du Crevard Stylé.  
 "Mais Hyke, au lieu de faire le malin, pourquoi tu nous as pas proposé une tenue pour la Saint Valentin ?"  
 Parce que je n'en n'ai nullement besoin. Elle est simple la tenue :  
