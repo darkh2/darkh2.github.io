@@ -45,7 +45,7 @@ Parce que je n'en n'ai nullement besoin. Elle est simple la tenue :
 * Pantalon près du corps.
 * Chaussures en fonction du reste.
 
-Je n'ai rien oublié. Vous êtes torse nu ! Et en plus la tenue ne sera pas chère avec le peu d'éléments. J'avoue, ça fait gay ou streap-teaser MAIS face au problème, j'ai toujours une solution. Vous en avez une autre à proposer ? Très bien ! Je la veux en commentaire s'il vous plaît. Sinon, taisez-vous à jamais malheureux !
+N'oubliez pas de bien faire correspondre les couleurs. Je n'ai rien oublié. Vous êtes torse nu ! Et en plus la tenue ne sera pas chère avec le peu d'éléments. J'avoue, ça fait gay ou streap-teaser MAIS face au problème, j'ai toujours une solution. Vous en avez une autre à proposer ? Très bien ! Je la veux en commentaire s'il vous plaît. Sinon, taisez-vous à jamais malheureux !
 
 #### B2 - En couple mais sans fêter la Saint Valentin tout simplement
 
