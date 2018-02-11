@@ -53,8 +53,8 @@ Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceu
 
 #### C - Célibataire et Saint Valentin, anti-soirée ou autre
 
-Un mal pour un bien ? Est- ce l'occasion rêvée de justement faire une belle rencontre ? Le fait de marquer le coup en ce jour peut être bénéfique pour vous à ce niveau la. Mais encore une fois, l'expression du style est à prendre en compte et surtout vestimentaire. Je vous conseille de calibrer votre style, c'est à dire, de ne pas en faire trop. Personnellement, j'éviterai le costume. Cela risquerait de faire de vous quelqu'un de vraiment désespéré sauf si le dress code de l'evenement s'y prête.  
-Nénamoins, 
+Un mal pour un bien ? Est-ce l'occasion rêvée de faire une belle rencontre ? Le fait de marquer le coup en ce jour peut être bénéfique pour vous à ce niveau la. Mais encore une fois, l'expression du style est à prendre en compte et surtout vestimentaire. Je vous conseille de calibrer votre style, c'est à dire, de ne pas en faire trop. Personnellement, j'éviterai le costume. Cela risquerait de faire de vous quelqu'un de vraiment désespéré sauf si le dress code de l'evenement s'y prête.  
+Nénamoins, il faut quand même mettre toutes les chances de votre côté en apportant quelque chose dans votre tenue qui vous permettrait d'être original. Un accessoire ou même votre coupe de cheveux. Encore une occasion d'exprimer son style ou encore de chercher comment vous pourriez l'exprimer et l'évoluer.
 
 #### D - Célibataire sans la Saint Valentin
 
