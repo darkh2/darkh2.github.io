@@ -69,3 +69,4 @@ Peu importe dans quel cas vous êtes. Ce travail de vous optimiser et de vous d�
 
 Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions vous l'auriez deviner.
 
+Ce fût un article long mais je veux qu'un maximum d'entre vous se sentent concernés par ce sujet. La Saint Valentin est-elle vraiment une journée si importante que ça ? Ou est-elle purement commericale ?
