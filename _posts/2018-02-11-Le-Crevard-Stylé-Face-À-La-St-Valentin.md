@@ -25,11 +25,11 @@ Evidemment, je poste les solutions les plus probables. Il existe d'autres varian
 
 ### Mise en place d'une optimisation
 
-Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
+Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc, soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
 
 #### A - En couple avec la Saint Valentin
 
-Ne vous attendez surtout pas à ce que je vous dise d'aller acheter un parfum ou un bijoux à madame. Bien que je suis loin d'être contre le fait de faire plaisir à votre chére et tendre.  
+Ne vous attendez surtout pas à ce que je vous dise d'aller acheter un parfum ou un bijoux à madame. Bien que je suis loin d'être contre le fait de faire plaisir à votre chère et tendre.  
 Dans ce cas la, je vous verrai bien préparer un bon dîner, oui j'ai bien dis préparer, donc aux fournaux messieurs. Vous savez déjà ce qu'elle aime manger puis des recettes faciles il y en a. Si on arrive à soulever 90 kg voire plus au developpé couché alors on peut bien réussir à faire quelque chose de bon. Des recettes faciles sur internet il y en a à foison. Puis vous ferez plus d'économies plutôt que d'aller payer un restaurant. On garde l'état d'esprit du Crevard Stylé dans chaque situation le permettant.  
 Profitez-en également pour bien vous habillez. De la même manière, vous savez déjà quelle sera la meilleure tenue qu'elle aimerait que vous portiez.  
 Toutes ces belles intentions auront plus d'impact qu'un simple resto ou un présent. Puis vous laissez exprimer votre style. C'est tout bénef.
