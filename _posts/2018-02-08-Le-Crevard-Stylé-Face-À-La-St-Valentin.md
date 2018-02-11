@@ -36,7 +36,7 @@ Toutes ces belles intentions auront plus d'impact qu'un simple resto ou un prés
 
 #### B1 - En couple sans la Saint Valentin : Chérie absente 
 
-Je suis déjà triste pour vous d'avance. Mais rien ne vous empêche d'appliquer la situation A au moment où vous vous retrouverez. Mais en attendant, l'expression du style et de sa personnalité rentrent en jeu également. Une photo avec une belle tenue que vous porterez ou un message doux que vous pourriez lui envoyer.  
+Je suis déjà triste pour vous d'avance. Mais rien ne vous empêche d'appliquer la situation A au moment où vous vous retrouverez. Mais en attendant, l'expression du style et de sa personnalité rentrent en jeu également. Une photo avec une belle tenue que vous portez ou un message doux que vous pourriez lui envoyer.  
 Concernant la tenue, vous pourriez réfléchir à une nouvelle tenue ou un habit tout simplement qui pourrait vous permettre de vous démarquer et embellir votre dressing par la même occasion tout en gardant les réflèxes du Crevard Stylé.  
 "Mais Hyke, au lieu de faire le malin, pourquoi tu nous as pas proposé une tenue pour la Saint Valentin ?"  
 Parce que je n'en n'ai nullement besoin. Elle est simple la tenue :  
@@ -48,7 +48,7 @@ Je n'ai rien oublié. Vous êtes torse nu ! Et en plus la tenue ne sera pas chè
 
 #### B2 - En couple mais sans fêter la Saint Valentin tout simplement
 
-Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceux qui n'ont pas besoin de ce jour pour être un bon chéri bien intentionné, et qui sait faire plaisir à sa copine, femme, concubine. Si ce n'est pas le cas, je vous conseille fortement d'appliquer une des situations précédentes.
+Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceux qui n'ont pas besoin de ce jour pour être un bon chéri bien intentionné et qui sait faire plaisir à sa copine, femme, concubine. Si ce n'est pas le cas, je vous conseille fortement d'appliquer une des situations précédentes.
 
 #### C - Célibataire et Saint Valentin, anti-soirée ou autre
 
