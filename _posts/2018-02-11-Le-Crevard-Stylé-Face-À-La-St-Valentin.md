@@ -53,13 +53,13 @@ Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceu
 
 #### C - Célibataire et Saint Valentin, anti-soirée ou autre
 
-Un mal pour un bien ? Est-ce l'occasion rêvée de faire une belle rencontre ? Le fait de marquer le coup en ce jour peut être bénéfique pour vous à ce niveau la. Mais encore une fois, l'expression du style est à prendre en compte et surtout vestimentaire. Je vous conseille de calibrer votre style, c'est à dire, de ne pas en faire trop. Personnellement, j'éviterai le costume. Cela risquerait de faire de vous quelqu'un de vraiment désespéré sauf si le dress code de l'evenement s'y prête.  
-Nénamoins, il faut quand même mettre toutes les chances de votre côté en apportant quelque chose dans votre tenue qui vous permettrait d'être original. Un accessoire ou même votre coupe de cheveux. Encore une occasion d'exprimer son style ou encore de chercher comment vous pourriez l'exprimer et l'évoluer.
+Un mal pour un bien ? Est-ce l'occasion rêvée de faire une belle rencontre ? Le fait de marquer le coup en ce jour peut être bénéfique pour vous à ce niveau la. Mais encore une fois, l'expression du style est à prendre en compte et surtout vestimentaire. Je vous conseille de calibrer votre style, c'est à dire, de ne pas en faire trop. Personnellement, j'éviterai le costume. Cela risquerait de faire de vous quelqu'un de vraiment désespéré sauf si le dress code de l'événement s'y prête.  
+Néanmoins, mettez toutes les chances de votre côté en apportant quelque chose dans votre tenue qui vous permettrait d'être original. Un accessoire ou même votre coupe de cheveux par exemple. Encore une occasion d'exprimer son style, ou encore de chercher comment vous pourriez l'exprimer et l'évoluer.
 
 #### D - Célibataire sans la Saint Valentin
 
 Premièrement, ne désespérez pas. Bien au contraire. Vous êtes seul avec vous-même certes, mais cela est une bonne occasion pour vous remettre en question. Pas dans le sens où il faut que vous trouviez une chérie. Je pense plutôt à votre développement personnel. J'ai passé enormément d'années la Saint Valentin seul. Et je peux vous promettre que ce n'est rien du tout. J'ai même eu l'idée d'inclure du rose dans mes tenues (ce sera sûrement dans un futur article qui sait ?).  
-Si vous êtes si triste que ça, dîtes-vous que dans un premier temps, vous ne dépensez pas de l'argent et que vous pourriez peut-être l'utiliser pour faire du shopping le lendemain. Puis, entre nous, c'est la société qui "veut" que vous soyez dans cet état la si vous êtes célibataire parce que vous n'allez pas leur faire gagner de l'argent en achetant leur produits. Et dans le pire des cas, appliquez la situation C.
+Si vous êtes si triste que ça, dîtes-vous que dans un premier temps, vous ne dépensez pas d'argent et que vous pourriez peut-être l'utiliser pour faire du shopping le lendemain. Puis, entre nous, c'est la société qui "veut" que vous soyez dans cet état si vous êtes célibataire en raison du fait que vous n'allez pas leur faire gagner de l'argent en achetant leur produits. Et dans le pire des cas, appliquez la situation C.
 
 ### Résultats et perspectives
 
