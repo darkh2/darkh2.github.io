@@ -61,12 +61,8 @@ Néanmoins, mettez toutes les chances de votre côté en apportant quelque chose
 Premièrement, ne désespérez pas. Bien au contraire. Vous êtes seul avec vous-même certes, mais cela est une bonne occasion pour vous remettre en question. Pas dans le sens où il faut que vous trouviez une chérie. Je pense plutôt à votre développement personnel. J'ai passé enormément d'années la Saint Valentin seul. Et je peux vous promettre que ce n'est rien du tout. J'ai même eu l'idée d'inclure du rose dans mes tenues (ce sera sûrement dans un futur article qui sait ?).  
 Si vous êtes si triste que ça, dîtes-vous que dans un premier temps, vous ne dépensez pas d'argent et que vous pourriez peut-être l'utiliser pour faire du shopping le lendemain. Puis, entre nous, c'est la société qui "veut" que vous soyez dans cet état si vous êtes célibataire en raison du fait que vous n'allez pas leur faire gagner de l'argent en achetant leur produits. Et dans le pire des cas, appliquez la situation C.
 
-### Résultats et perspectives
-
-Peu importe dans quel cas vous êtes. Ce travail de vous optimiser et de vous développer n'arrive pas que dans ce jour. C'est quotidien. Mais en fonction des circonstances, n'hésitez jamais de vous en servir à bonne escient pour y trouver votre compte.
-
 ### Et les femmes alors ?
 
-Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions bien entendu.
+Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer pour les femmes. Sauf dans mes suggestions bien entendu.
 
 Ce fût un article long mais je veux qu'un maximum d'entre vous se sentent concernés par ce sujet. La Saint Valentin est-elle vraiment une journée si importante que ça ? Peut-on vraiment profiter de la Saint Valentin pour développer son style ? N'hésitez pas à décrire votre vision de la Saint Valentin ou même de proposer une alternative à cette dernière.
