@@ -25,7 +25,7 @@ Evidemment, je poste les solutions les plus probables. Il existe d'autres varian
 
 ### Mise en place d'une optimisation
 
-Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc, soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
+Dans chaque cas de figure énoncés precedemment, je vous propose une manière de faire quelque chose qui se démarque tout en limitant vos dépenses, sauf si bien sûr , vous êtes plus inspirés que moi à ce sujet. Donc, soit vous laissez exprimer votre style dans vos actes, soit vous sortez de votre zone de confort et allez exploiter de nouveaux horizons pour vous développer. Le but est de montrer comment l'état d'esprit du Crevard Stylé peut s'adapter en fonction de chaque situation. Et ici la situation, est, vous l'aurez deviner, la Saint Valentin.
 
 #### A - En couple avec la Saint Valentin
 
@@ -69,4 +69,4 @@ Peu importe dans quel cas vous êtes. Ce travail de vous optimiser et de vous d�
 
 Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions vous l'auriez deviner.
 
-Ce fût un article long mais je veux qu'un maximum d'entre vous se sentent concernés par ce sujet. La Saint Valentin est-elle vraiment une journée si importante que ça ? Ou est-elle purement commericale ? Peut-on vraiment profiter de la Saint Valentin pour développer son style ?
+Ce fût un article long mais je veux qu'un maximum d'entre vous se sentent concernés par ce sujet. La Saint Valentin est-elle vraiment une journée si importante que ça ? Peut-on vraiment profiter de la Saint Valentin pour développer son style ? N'hésitez pas à décrire votre vision de la Saint Valentin ou même de proposer
