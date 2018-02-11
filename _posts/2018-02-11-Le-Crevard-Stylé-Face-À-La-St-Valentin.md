@@ -49,7 +49,7 @@ Je n'ai rien oublié. Vous êtes torse nu ! Et en plus la tenue ne sera pas chè
 
 #### B2 - En couple mais sans fêter la Saint Valentin tout simplement
 
-Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceux qui n'ont pas besoin de ce jour pour être un bon chéri bien intentionné et qui sait faire plaisir à sa copine, femme, concubine. Si ce n'est pas le cas, je vous conseille fortement d'appliquer une des situations précédentes.
+Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceux qui n'ont pas besoin de ce jour pour être un bon chéri bien intentionné et qui sait faire plaisir à sa copine, femme, concubine. Si ce n'est pas le cas, je vous conseille fortement d'appliquer la situation A.
 
 #### C - Célibataire et Saint Valentin, anti-soirée ou autre
 
