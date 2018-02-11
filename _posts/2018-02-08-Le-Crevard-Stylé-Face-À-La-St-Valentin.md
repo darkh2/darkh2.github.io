@@ -40,11 +40,10 @@ Je suis déjà triste pour vous d'avance. Mais rien ne vous empêche d'appliquer
 Concernant la tenue, vous pourriez réfléchir à une nouvelle tenue ou un habit tout simplement qui pourrait vous permettre de vous démarquer et embellir votre dressing par la même occasion tout en gardant les réflèxes du Crevard Stylé.  
 "Mais Hyke, au lieu de faire le malin, pourquoi tu nous as pas proposé une tenue pour la Saint Valentin ?"  
 Parce que je n'en n'ai nullement besoin. Elle est simple la tenue :  
-
-* Noeud papillon
-* Bretelles
-* Pantalon près du corps
-* Chaussures en fonction du reste
+* Noeud papillon.
+* Bretelles.
+* Pantalon près du corps.
+* Chaussures en fonction du reste.
 
 Je n'ai rien oublié. Vous êtes torse nu ! Et en plus la tenue ne sera pas chère avec le peu d'éléments. J'avoue, ça fait gay ou streap-teaser MAIS face au problème, j'ai toujours une solution. Vous en avez une autre à proposer ? Très bien ! Je la veux en commentaire s'il vous plaît. Sinon, taisez-vous à jamais malheureux !
 
