@@ -56,7 +56,7 @@ Un jour comme un autre. Mais j'espère fortmement que vous faîtes partie de ceu
 
 #### D - Célibataire sans la Saint Valentin
 
-Premièrement, ne désespérez pas. Bien au contraire. Vous êtes seul avec vous-même certes, mais cela est une bonne occasion pour vous remettre en question. Pas dans le sens où il faut que vous trouviez une chérie. Je pense plutôt à votre développement personnel. J'ai passé enormément d'années la Saint Valentin seul. Et je peux vous promettre que ce n'est rien du tout. J'ai même eu l'idée d'inclure du rose dans mes tenues
+Premièrement, ne désespérez pas. Bien au contraire. Vous êtes seul avec vous-même certes, mais cela est une bonne occasion pour vous remettre en question. Pas dans le sens où il faut que vous trouviez une chérie. Je pense plutôt à votre développement personnel. J'ai passé enormément d'années la Saint Valentin seul. Et je peux vous promettre que ce n'est rien du tout. J'ai même eu l'idée d'inclure du rose dans mes tenues (ce sera sûrement dans un futur article qui sait ?).
 
 ### Résultats et perspectives
 
