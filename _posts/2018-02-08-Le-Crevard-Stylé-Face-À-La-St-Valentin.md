@@ -36,6 +36,8 @@ Toutes ces belles intentions auront plus d'impact qu'un simple resto ou un prés
 
 #### B1 - En couple sans la Saint Valentin : Chérie absente 
 
+
+
 #### B2 - En couple mais sans fêter la Saint Valentin tout simplement
 
 #### C - Célibataire et Saint Valentin, anti-soirée ou autre
