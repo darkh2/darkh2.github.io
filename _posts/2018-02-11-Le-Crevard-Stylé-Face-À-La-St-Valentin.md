@@ -63,4 +63,9 @@ Si vous êtes si triste que ça, dîtes-vous que dans un premier temps, vous ne 
 
 ### Résultats et perspectives
 
+Peu importe dans quel cas vous êtes. Ce travail de vous optimiser et de vous développer n'arrive pas que dans ce jour. C'est quotidien. Mais en fonction des circonstances, n'hésitez jamais de vous en servir à bonne escient pour y trouver votre compte.
+
 ### Et les femmes alors ?
+
+Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions vous l'auriez deviner.
+
