@@ -67,6 +67,6 @@ Peu importe dans quel cas vous êtes. Ce travail de vous optimiser et de vous d�
 
 ### Et les femmes alors ?
 
-Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions vous l'auriez deviner.
+Le meilleur pour la fin. Même dans mon article destiné aux hommes, je voudrai terminer par une petite pensée aux femmes quand même. Sachez que cet article peut très bien s'appliquer sur les femmes. Sauf dans mes suggestions bien entendu.
 
 Ce fût un article long mais je veux qu'un maximum d'entre vous se sentent concernés par ce sujet. La Saint Valentin est-elle vraiment une journée si importante que ça ? Peut-on vraiment profiter de la Saint Valentin pour développer son style ? N'hésitez pas à décrire votre vision de la Saint Valentin ou même de proposer une alternative à cette dernière.
