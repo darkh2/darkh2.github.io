@@ -25,7 +25,7 @@ On ne peut pas plaire à tout le monde car plaire à tout le monde, c'est plaire
 ### #4 : Ne jamais se reposer sur ses acquis.
 L'humilité fait partie grandement de ce principe. En effet, ne pas se reposer sur ses lauriers est une forme d'humilité. 
 Je pense que c'est le principe le plus important.  
-Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. N'avez-vous jamais remarqué qu'une personne qui prend trop la confiance sur ce qu'il est ou ce qu'il a, fini toujours par le ratrapper ?
+Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. N'avez-vous jamais remarqué qu'une personne qui prend trop la confiance sur ce qu'il est ou ce qu'il possède, fini toujours par être dépassée par les événements ? C'est justement la conséquence de s'être trop reposé sur ses acquis.
 
 ### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
 La plupart du temps, quand on est face à une difficulté, on a tendance à vouloir abandonner. Il faut cesser avec ces phrases qui ne fait qu'affaiblir l'esprit. Se tourner vers les possibilités de résolutions d'un problème est la dynamique à adopter. S'appitoyer sur son sort n'a jamais été une solution.
