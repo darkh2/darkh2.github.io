@@ -15,6 +15,7 @@ J'applique grandement ces principes et c'est avec le plus grand honneur que je v
 Se comparer à quelqu'un est une des plus grandes erreurs si vous voulez affirmez votre style. Rien n'est productif dans le fait de se comparer aux autres. Soit vous vous trouvez meilleur et vous passez pour une personne hautaine remplie de préjugés, soit vous bridez votre valeur à cause d'une déstabilisation que vous créez vous-même au final. Votre but n'est pas de ressembler à quelqu'un d'autre, ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Vous devez créer votre propre histoire. Vous devez ressembler à la meilleure version de vous même. 
 
 ### #2 : Ne pas Critiquer le style d'autrui 
+Ne pas apprécier la façon dont est habillée une personne est votre droit le plus légitime. Néanmoins, 
 Que cela ne vous plaise pas ok mais dire que c'est de la merde même si un côté vicieux nous le dicte il faut essayer de voir plus loin.
 La confection d'un style se fait avec un t'as de péripéties. Le style est à l'origine d'une histoire d'un vécu. En se moquant c'est comme si l'on rabaissait une histoire alors que toute histoire possède ses bonnes choses. Peut être faudrait il voir comment améliorer le style d'autrui tout en étant diplomate( chose que je galère à faire) ce qui rejoint le principe des bonnes valeurs
 
