@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-02-25T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -12,11 +12,11 @@ Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que c
 J'applique grandement ces principes et c'est avec le plus grand honneur que je vous présente les 7 principes fondamentaux du Crevard Stylé.
 
 ### #1 : Ne pas se comparer aux autres
-Se comparer à quelqu'un est une des plus grandes erreurs si vous voulez affirmez votre style. Rien n'est productif dans le fait de se comparer aux autres. Soit vous vous trouvez meilleur et vous passez pour une personne hautaine remplie de préjugés, soit vous bridez votre valeur à cause d'une déstabilisation que vous créez vous-même au final.  Votre but n'est pas de ressembler à quelqu'un d'autre, ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Vous devez créer votre propre histoire. Vous devez ressembler à la meilleure version de vous même. 
+Se comparer à quelqu'un est une des plus grandes erreurs si l'on veut affirmer son style. Rien n'est productif dans le fait de se comparer aux autres. Soit vous vous trouvez meilleur et vous passez pour une personne hautaine remplie de préjugés, soit vous bridez votre valeur à cause d'une déstabilisation que vous créez vous-même au final.  Le but n'est pas de ressembler à quelqu'un d'autre, ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Le Crevard Stylé crée sa propre histoire. Il doit ressembler à la meilleure version de lui-même. 
 
-### #2 : Ne pas Critiquer le style d'autrui 
+### #2 : Ne pas critiquer le style d'autrui 
 Ne pas apprécier la façon dont est habillée une personne est votre droit le plus légitime. Néanmoins, essayez de voir plus loin que "c'est de la merde!".  
-La confection d'un style se fait grâce à une série de péripéties. Le style est à l'origine d'une histoire, d'un vécu. En se moquant, c'est comme si l'on dénigrait une histoire alors que toute histoire possède ses bons points. Peut-être faudrait-il voir comment améliorer le style d'autrui tout en étant diplomate (chose que je galère à faire, je dois l'avouer).
+La confection d'un style se fait grâce à une série de péripéties. Le style est à l'origine d'une histoire, d'un vécu. En se moquant, c'est comme si l'on dénigrait une histoire alors que toute histoire possède ses bons points. Peut-être faudrait-il voir comment améliorer le style d'autrui tout en étant diplomate ? (chose que je galère à faire, je dois l'avouer). 
 
 ### #3 : S'assumer et ne pas avoir peur de l'avis des autres
 On ne peut pas plaire à tout le monde. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi même.
