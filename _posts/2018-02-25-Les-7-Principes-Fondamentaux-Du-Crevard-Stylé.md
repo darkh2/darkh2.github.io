@@ -28,10 +28,10 @@ Je pense que c'est le principe le plus important.
 Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. N'avez-vous jamais remarqué qu'une personne qui prend trop la confiance sur ce qu'il est ou ce qu'il a, fini toujours par le ratrapper ?
 
 ### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
-La plupart du temps quand on est face à une difficulté on se dit ah c'est chaud je sais pas quoi faire blabla. Arrête avec ces phrases qui ne fait quaffaiblir l'esprit. Se tourner vers les possibilités de résolutions est la dynamique a adopter. S'appitoyer sur son sort n'a jamais été une solution.
+La plupart du temps, quand on est face à une difficulté, on a tendance à vouloir abandonner. Il faut cesser avec ces phrases qui ne fait qu'affaiblir l'esprit. Se tourner vers les possibilités de résolutions d'un problème est la dynamique à adopter. S'appitoyer sur son sort n'a jamais été une solution.
 
 ### #6 : Après l'effort une récompense
-Être dur avec soi même est une bonne chose pour atteindre ses objectifs et avoir des résultats le plus rapidement possible. Néanmoins après quelques efforts on se doit de se donner le droit de faire un break et s'accorder un écart pour bien repartir.
+Être dur avec soi même est une bonne chose pour atteindre ses objectifs et avoir des résultats le plus rapidement possible. Néanmoins, après quelques efforts , s'accorder un écart pour bien repartir ne fera jamais de mal. Sans oublier le principe #4.
 
 ### #7 : Les bonnes valeurs
 Le respect l'honnêteté le sourire. Tous ces principes ne peuvent pas prospérer sans les bonnes valeurs.
