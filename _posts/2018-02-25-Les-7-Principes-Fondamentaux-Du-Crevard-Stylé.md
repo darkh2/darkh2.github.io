@@ -28,7 +28,7 @@ Je pense que c'est le principe le plus important.
 Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. N'avez-vous jamais remarqué qu'une personne qui prend trop la confiance sur ce qu'il est ou ce qu'il possède, fini toujours par être dépassée par les événements ? C'est justement la conséquence de s'être trop reposé sur ses acquis.
 
 ### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
-La plupart du temps, quand on est face à une difficulté, on a tendance à vouloir abandonner. Il faut cesser avec ces pensées qui ne font qu'affaiblir l'esprit. Se tourner vers les possibilités de résolutions d'un problème est la dynamique à adopter. S'appitoyer sur son sort n'a jamais été une solution.
+La plupart du temps, quand on est face à une difficulté, on a tendance à vouloir abandonner. Il faut cesser avec ces pensées qui ne font qu'affaiblir l'esprit. Se tourner vers les possibilités de résolutions d'un problème est la dynamique à adopter. S'appitoyer sur son sort n'a jamais été une solution. Plus on aura des pensées négatives, plus on s'enfermera dans un cercle vicieux qui nous empêchera de nous sortir de cette mauvaise passe. Donc, se focaliser sur l'objectif et trouver des moyens d'y parvenir est un principe que l'on se doit de tenir.
 
 ### #6 : Après l'effort une récompense
 Être dur avec soi même est une bonne chose pour atteindre ses objectifs et avoir des résultats le plus rapidement possible. Néanmoins, après quelques efforts , s'accorder un écart pour bien repartir ne fera jamais de mal. Sans oublier le principe #4.
