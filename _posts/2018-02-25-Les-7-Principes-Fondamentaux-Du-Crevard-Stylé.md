@@ -12,7 +12,7 @@ Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que c
 J'applique grandement ces principes et c'est avec le plus grand honneur que je vous présente les 7 principes fondamentaux du Crevard Stylé.
 
 ### #1 : Ne pas se comparer aux autres
-Se comparer à quelqu'un est une des plus grandes erreurs si vous voulez affirmez votre style. Rien n'est productif dans le fait de se comparer aux autres. Soit vous vous trouvez meilleur et vous passez pour une personne hautaine remplie de préjugés soit vous bridez votre valeur à cause d'une déstabilisation que vous créez vous-même au final. Votre but n'est pas de ressembler à quelqu'un d'autre ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Vous devez créer votre propre histoire. Vous devez ressembler à la meilleure version de vous même. 
+Se comparer à quelqu'un est une des plus grandes erreurs si vous voulez affirmez votre style. Rien n'est productif dans le fait de se comparer aux autres. Soit vous vous trouvez meilleur et vous passez pour une personne hautaine remplie de préjugés, soit vous bridez votre valeur à cause d'une déstabilisation que vous créez vous-même au final. Votre but n'est pas de ressembler à quelqu'un d'autre, ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Vous devez créer votre propre histoire. Vous devez ressembler à la meilleure version de vous même. 
 
 ### #2 : Ne pas Critiquer le style d'autrui 
 Que cela ne vous plaise pas ok mais dire que c'est de la merde même si un côté vicieux nous le dicte il faut essayer de voir plus loin.
@@ -26,7 +26,7 @@ L'humilité fait partie grandement de ce principe. Ne pas se reposer sur ses lau
 Je pense que c'est le principe le plus important. Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré.
 
 ### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
-La plupart du temps quand on est face à une difficulté on se dit ah c'est chaud je sais pas quoi faire blabla. Arrête avec ces phrases qui ne fait quaffaiblir l'esprit. Se tourner vers les possibilités de résolutions est la dynamique a adopter.
+La plupart du temps quand on est face à une difficulté on se dit ah c'est chaud je sais pas quoi faire blabla. Arrête avec ces phrases qui ne fait quaffaiblir l'esprit. Se tourner vers les possibilités de résolutions est la dynamique a adopter. S'appitoyer sur son sort n'a jamais été une solution.
 
 ### #6 : Après l'effort une récompense
 Être dur avec soi même est une bonne chose pour atteindre ses objectifs et avoir des résultats le plus rapidement possible. Néanmoins après quelques efforts on se doit de se donner le droit de faire un break et s'accorder un écart pour bien repartir.
