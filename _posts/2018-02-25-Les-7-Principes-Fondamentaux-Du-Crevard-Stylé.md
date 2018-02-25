@@ -35,8 +35,8 @@ La plupart du temps, quand on est face à une difficulté, on a tendance à voul
 Être dur avec soi même est une bonne chose pour atteindre ses objectifs et avoir des résultats le plus rapidement possible. Néanmoins, après quelques efforts , s'accorder un écart pour bien repartir ne fera jamais de mal. Sans oublier le principe #4.
 
 ### #7 : Les bonnes valeurs
-Le respect l'honnêteté le sourire. Tous ces principes ne peuvent pas prospérer sans les bonnes valeurs.
-Le partage. Quand on dégage du positif notamment a travers son style et sa personnalité on en a revendre. Puis produire du positif créé encore plus de positif et de bonnes choses. Rester altruiste même dans son état d'esprit. Un style fort se dégage également a travers un savoir vivre.
+Le respect, la politesse, l'honnêteté, le partage, le sourire... Tous ces principes ne peuvent pas prospérer sans les bonnes valeurs.
+Quand on dégage du positif notamment a travers son style et sa personnalité on en a revendre. Produire du positif créé encore plus de positif et de bonnes choses. Rester altruiste même dans son état d'esprit. Un style fort se dégage également a travers un savoir vivre.
 
 ### Le 8e Principe ?
 J'ai sûrement oublier quelques principes mais j'ai mis en avant les fondamentaux. Je pense que vous avez remarqué que tous les principes étaient liés entre eux et s'accordent ensemble pour former un état d'esprit : Celui du Crevard Stylé.  
