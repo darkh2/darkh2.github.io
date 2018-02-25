@@ -20,14 +20,14 @@ Ne pas apprécier la façon dont est habillée une personne est le droit le plus
 La confection d'un style se fait grâce à une série de péripéties. Le style est à l'origine d'une histoire, d'un vécu. En se moquant, c'est comme si l'on dénigrait une histoire alors que toute histoire possède ses bons points. Peut-être faudrait-il voir comment améliorer le style d'autrui tout en étant diplomate ? (chose que je galère à faire, je dois l'avouer). 
 
 ### #3 : S'assumer et ne pas avoir peur de l'avis des autres
-On ne peut pas plaire à tout le monde car plaire à tout le monde, c'est plaire à n'importe qui. Je ne me rappelle plus où j'ai entendu cette punchline mythique, mais elle est tellement forte dans sa véracité. De toute façon, quoi que l'on fasse, les gens trouveront toujours un moyen de dire quelque chose donc autant rester soi-même, dégager du positif et attirer le bien. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi même quel qu'en soit le prix. 
+On ne peut pas plaire à tout le monde car plaire à tout le monde, c'est plaire à n'importe qui. Je ne me rappelle plus où j'ai entendu cette punchline mythique, mais elle est tellement forte dans sa véracité. De toute façon, quoi que l'on fasse, les gens trouveront toujours un moyen de dire quelque chose donc autant rester soi-même, dégager du positif et attirer le bien. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi-même quel qu'en soit le prix. 
 
-### #4 : Ne jamais se reposer sur ses acquis.
+### #4 : Ne jamais se reposer sur ses acquis
 L'humilité fait partie grandement de ce principe. En effet, ne pas se reposer sur ses lauriers est une forme d'humilité. 
-Je pense que c'est le principe le plus important.  
+**Je pense que c'est le principe le plus important.**  
 Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. N'avez-vous jamais remarqué qu'une personne qui prend trop la confiance sur ce qu'il est ou ce qu'il possède, fini toujours par être dépassée par les événements ? C'est justement la conséquence de s'être trop reposé sur ses acquis.
 
-### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
+### #5 : Se tourner vers la solution plutôt que de grossir le problème. 
 La plupart du temps, quand on est face à une difficulté, on a tendance à vouloir abandonner. Il faut cesser avec ces pensées qui ne font qu'affaiblir l'esprit. Se tourner vers les possibilités de résolutions d'un problème est la dynamique à adopter. S'appitoyer sur son sort n'a jamais été une solution. Plus on aura des pensées négatives, plus on s'enfermera dans un cercle vicieux qui nous empêchera de nous sortir de cette mauvaise passe. Donc, se focaliser sur l'objectif et trouver des moyens d'y parvenir est un principe que l'on se doit de tenir.
 
 ### #6 : Après l'effort une récompense
@@ -36,5 +36,9 @@ La plupart du temps, quand on est face à une difficulté, on a tendance à voul
 ### #7 : Les bonnes valeurs
 Le respect l'honnêteté le sourire. Tous ces principes ne peuvent pas prospérer sans les bonnes valeurs.
 Le partage. Quand on dégage du positif notamment a travers son style et sa personnalité on en a revendre. Puis produire du positif créé encore plus de positif et de bonnes choses. Rester altruiste même dans son état d'esprit. Un style fort se dégage également a travers un savoir vivre.
+
+### Le 8e Principe ?
+J'ai sûrement oublier quelques principes mais j'ai mis en avant les fondamentaux. J'ai quand même envie d'y ajouter un dernier principe bonus que j'inclurai quand même dans cette liste : **Savoir encaisser !**  
+La vie est faite de hauts et de bas. Accepter de prendre des claques de temps en temps fait partie du game pour évoluer et devenir meilleur.
 
 Quels sont vos principes en tant que Crevard Stylé ? En tant qu'homme ? Etes-vous peut-être un tout autre type de Crevard Stylé possédant ses propres et uniques principes ?
