@@ -12,7 +12,7 @@ Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que c
 J'applique grandement ces principes et c'est avec le plus grand honneur que je vous présente les 7 principes fondamentaux du Crevard Stylé.
 
 ### #1 : Ne pas se comparer aux autres
-C'est la plus grosse erreur si vous voulez affirmez votre style. Votre but n'est pas de ressembler à quelqu'un d'autre puis au fond vous n'y arriverez pas ça sentira le fake a des kilomètres. Vous devez ressembler à la meilleure version de vous même. 
+Se comparer à quelqu'un est une des plus grandes erreurs si vous voulez affirmez votre style. Votre but n'est pas de ressembler à quelqu'un d'autre puis au fond vous n'y arriverez pas ça sentira le fake a des kilomètres. Vous devez ressembler à la meilleure version de vous même. 
 
 ### #2 : Ne pas Critiquer le style d'autrui 
 Que cela ne vous plaise pas ok mais dire que c'est de la merde même si un côté vicieux nous le dicte il faut essayer de voir plus loin.
