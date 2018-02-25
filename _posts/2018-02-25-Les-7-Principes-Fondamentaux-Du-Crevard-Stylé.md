@@ -39,6 +39,6 @@ Le partage. Quand on dégage du positif notamment a travers son style et sa pers
 
 ### Le 8e Principe ?
 J'ai sûrement oublier quelques principes mais j'ai mis en avant les fondamentaux. J'ai quand même envie d'y ajouter un dernier principe bonus que j'inclurai quand même dans cette liste : **Savoir encaisser !**  
-La vie est faite de hauts et de bas. Accepter de prendre des claques de temps en temps fait partie du game pour évoluer et devenir meilleur.
+La vie est faite de hauts et de bas. Accepter de prendre des claques de temps en temps fait partie du game pour évoluer et devenir meilleur. Une mauvaise nouvelle ? Une critique non digérée ? ... Ce n'est pas grave, le Crevard Stylé essaie de garder le contrôle même si ce n'est pas chose aisée.
 
 Quels sont vos principes en tant que Crevard Stylé ? En tant qu'homme ? Etes-vous peut-être un tout autre type de Crevard Stylé possédant ses propres et uniques principes ?
