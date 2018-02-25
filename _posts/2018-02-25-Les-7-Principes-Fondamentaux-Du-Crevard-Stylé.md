@@ -1,15 +1,15 @@
 ---
 published: false
 layout: post
-date: 2018-02-25T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
 ---
 ## Les 7 Principes Fondamentaux Du Crevard Stylé
 
-Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que ce soit dans l'élaboration de son style ou dans sa vie en général. Ses buts ne peuvent être atteints sans une ligne de conduite. Cette dernière contient un certain nombre de principes fondamentaux totalement appliquables à sa personnalité. J'oublie le côté économique (pour ne pas dire le côté crevard) dans cet article, mais je me focalise plutôt sur l'état d'esprit du Crevard Stylé. 
-
+Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que ce soit dans l'élaboration de son style ou dans sa vie en général. Ses objecifs ne peuvent être atteints sans une ligne de conduite. Cette dernière contient un certain nombre de principes fondamentaux totalement appliquables à sa personnalité. J'oublie le côté économique (pour ne pas dire le côté crevard) dans cet article, mais je me focalise plutôt sur l'état d'esprit du Crevard Stylé. 
+J'applique grandement ces principes et c'est avec le plus grand honneur que je vous présente les 7 principes fondamentaux du Crevard Stylé.
 
 ### #1 : Ne pas se comparer aux autres
 C'est la plus grosse erreur si vous voulez affirmez votre style. Votre but n'est pas de ressembler à quelqu'un d'autre puis au fond vous n'y arriverez pas ça sentira le fake a des kilomètres. Vous devez ressembler à la meilleure version de vous même. 
