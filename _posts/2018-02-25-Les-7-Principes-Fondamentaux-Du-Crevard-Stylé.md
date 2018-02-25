@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-02-25T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
