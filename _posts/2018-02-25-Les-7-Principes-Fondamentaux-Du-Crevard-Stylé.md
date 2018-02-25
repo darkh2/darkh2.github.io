@@ -23,8 +23,9 @@ La confection d'un style se fait grâce à une série de péripéties. Le style 
 On ne peut pas plaire à tout le monde car plaire à tout le monde, c'est plaire à n'importe qui. Je ne me rappelle plus où j'ai entendu cette punchline mythique, mais elle est tellement forte dans sa véracité. De toute façon, quoi que l'on fasse, les gens trouveront toujours un moyen de dire quelque chose donc autant rester soi-même, dégager du positif et attirer le bien. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi même quel qu'en soit le prix. 
 
 ### #4 : Ne jamais se reposer sur ses acquis.
-L'humilité fait partie grandement de ce principe. Ne pas se reposer sur ses lauriers est une forme d'humilité. 
-Je pense que c'est le principe le plus important. Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré.
+L'humilité fait partie grandement de ce principe. En effet, ne pas se reposer sur ses lauriers est une forme d'humilité. 
+Je pense que c'est le principe le plus important.  
+Être toujours en quête d'amélioration fera en sorte que vous atteignerez un niveau encore jamais espéré. 
 
 ### #5 : Essayer de se tourner vers la solution plutôt que de grossir le problème. 
 La plupart du temps quand on est face à une difficulté on se dit ah c'est chaud je sais pas quoi faire blabla. Arrête avec ces phrases qui ne fait quaffaiblir l'esprit. Se tourner vers les possibilités de résolutions est la dynamique a adopter. S'appitoyer sur son sort n'a jamais été une solution.
