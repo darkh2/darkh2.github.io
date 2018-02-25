@@ -38,7 +38,8 @@ Le respect l'honnêteté le sourire. Tous ces principes ne peuvent pas prospére
 Le partage. Quand on dégage du positif notamment a travers son style et sa personnalité on en a revendre. Puis produire du positif créé encore plus de positif et de bonnes choses. Rester altruiste même dans son état d'esprit. Un style fort se dégage également a travers un savoir vivre.
 
 ### Le 8e Principe ?
-J'ai sûrement oublier quelques principes mais j'ai mis en avant les fondamentaux. J'ai quand même envie d'y ajouter un dernier principe bonus que j'inclurai quand même dans cette liste : **Savoir encaisser !**  
+J'ai sûrement oublier quelques principes mais j'ai mis en avant les fondamentaux. Je pense que vous avez remarqué que tous les principes étaient liés entre eux et s'accordent ensemble pour former un état d'esprit : Celui du Crevard Stylé.  
+J'ai quand même envie d'y ajouter un dernier principe bonus que j'inclurai quand même dans cette liste : **Savoir encaisser !**  
 La vie est faite de hauts et de bas. Accepter de prendre des claques de temps en temps fait partie du game pour évoluer et devenir meilleur. Une mauvaise nouvelle ? Une critique non digérée ? ... Ce n'est pas grave, le Crevard Stylé essaie de garder le contrôle même si ce n'est pas chose aisée.
 
 Quels sont vos principes en tant que Crevard Stylé ? En tant qu'homme ? Etes-vous peut-être un tout autre type de Crevard Stylé possédant ses propres et uniques principes ?
