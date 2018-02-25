@@ -8,8 +8,8 @@ feature_image: blackfont.png
 ---
 ## Les 7 Principes Fondamentaux Du Crevard Stylé
 
-Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que ce soit dans l'élaboration de son style ou de sa vie en général. Ses buts ne peuvent être atteints sans une ligne de conduite.
-Le développement du style nécessite un certain état d'esprit. Voici les 7 principes fondamentaux que se doit d'avoir le CS
+Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que ce soit dans l'élaboration de son style ou dans sa vie en général. Ses buts ne peuvent être atteints sans une ligne de conduite. Et cette dernière contient un certain nombre de principes fondamentaux totalement appliquables à sa personnalité. Ces principes font partie intégralement 
+Le développement du style nécessite un certain état d'esprit. Voici les 7 principes fondamentaux que se doit d'avoir le CS. Ces principes sont appliquables totalement dans son style et sa personnalité
 
 
 ### #1 : Ne pas se comparer aux autres
@@ -35,3 +35,5 @@ La plupart du temps quand on est face à une difficulté on se dit ah c'est chau
 ### #7 : Les bonnes valeurs
 Le respect l'honnêteté le sourire. Tous ces principes ne peuvent pas prospérer sans les bonnes valeurs.
 Le partage. Quand on dégage du positif notamment a travers son style et sa personnalité on en a revendre. Puis produire du positif créé encore plus de positif et de bonnes choses. Rester altruiste même dans son état d'esprit. Un style fort se dégage également a travers un savoir vivre.
+
+Quels sont vos principes en tant que Crevard Stylé ? En tant qu'homme ? Etes-vous peut-être un tout autre type de Crevard Stylé possédant ses propres et uniques principes ?
