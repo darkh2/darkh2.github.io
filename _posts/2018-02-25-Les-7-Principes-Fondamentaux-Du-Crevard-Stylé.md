@@ -16,11 +16,11 @@ Se comparer à quelqu'un est une des plus grandes erreurs si l'on veut affirmer 
 Le but n'est pas de ressembler à quelqu'un d'autre, ou de faire comme un autre. Ce n'est pas une course non plus. Chacun construit son avancée comme il le désire et comme la vie lui offre. Le Crevard Stylé crée sa propre histoire. Il doit ressembler à la meilleure version de lui-même. 
 
 ### #2 : Ne pas critiquer le style d'autrui 
-Ne pas apprécier la façon dont est habillée une personne est votre droit le plus légitime. Néanmoins, essayez de voir plus loin que "c'est de la merde!".  
+Ne pas apprécier la façon dont est habillée une personne est le droit le plus légitime de quiconque. Néanmoins, il faut voir plus loin que "c'est de la merde!".  
 La confection d'un style se fait grâce à une série de péripéties. Le style est à l'origine d'une histoire, d'un vécu. En se moquant, c'est comme si l'on dénigrait une histoire alors que toute histoire possède ses bons points. Peut-être faudrait-il voir comment améliorer le style d'autrui tout en étant diplomate ? (chose que je galère à faire, je dois l'avouer). 
 
 ### #3 : S'assumer et ne pas avoir peur de l'avis des autres
-On ne peut pas plaire à tout le monde. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi même.
+On ne peut pas plaire à tout le monde car plaire à tout le monde, c'est plaire à n'importe qui. Je ne me rappelle plus où j'ai entendu cette punchline mythique, mais elle est tellement forte dans sa véracité. S'affirmer dans son style permet d'en avoir un très fort ! Rester fidèle à soi même quel qu'en soit le prix. 
 
 ### #4 : Ne jamais se reposer sur ses acquis.
 L'humilité fait partie grandement de ce principe. Ne pas se reposer sur ses lauriers est une forme d'humilité. 
