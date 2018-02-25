@@ -8,7 +8,7 @@ feature_image: blackfont.png
 ---
 ## Les 7 Principes Fondamentaux Du Crevard Stylé
 
-En dehors de la quête du développement du style en optimisant son porte feuille.
+Chaque Crevard Stylé dans ce monde est amené à faire de grandes choses. Que ce soit dans l'élaboration de son style ou de sa vie en général. Ses buts ne peuvent être atteints sans une ligne de conduite.
 Le développement du style nécessite un certain état d'esprit. Voici les 7 principes fondamentaux que se doit d'avoir le CS
 
 
