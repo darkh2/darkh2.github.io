@@ -30,4 +30,4 @@ Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ce
 ...
 * Marque ? Imitation ? On s'en balance.  
 
-Je ne dis pas non plus que porter de la marque est négatif en soi bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore des produits chers. D'où la catégorie Exceptions. Même dans l'habillement il faut être ouvert même si l'on veut optimiser son porte feuille il faut savoir quand même y mettre le prix.
+Je ne dis pas non plus que porter de la marque est négatif en soi, bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore d'autres produits chers qui valent totalement leur investissement. D'où la catégorie [Exceptions](http://www.crevardstyle.com/category/exceptions). Même dans l'habillement, il faut être ouvert même si l'on veut optimiser son porte feuille il faut savoir quand même y mettre le prix.
