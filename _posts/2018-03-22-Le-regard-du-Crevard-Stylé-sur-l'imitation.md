@@ -28,7 +28,8 @@ Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ce
 * 2. Bien taillé et adapté à la morphologie  
 * 3. Prix raisonnable en fonction également de la situation financière  
 ...
-* Marque ? Imitation ? On s'en balance.  
+* Marque ? Imitation ? On s'en balance. 
+
 A partir du moment où les trois premières conditions sont respectéés, je ne me pose pas du tout la question si c'est de la marque ou non. C'est de l'imitation ? Tant pis, j'aime ! Je prends. Merci, et bon dimanche !  
 Je ne dis pas non plus que porter de la marque est négatif en soi, bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore d'autres produits chers qui valent totalement leur investissement. D'où la catégorie [Exceptions](http://www.crevardstyle.com/category/exceptions).
 
