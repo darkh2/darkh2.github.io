@@ -1,18 +1,17 @@
 ---
 published: false
 layout: post
-date: 2018-03-22T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: imitation.jpg
 ---
 ## Le Regard Du Crevard Stylé Sur L'imitation
 
-Voilà un sujet intriguant mais dont on ne parle pas assez souvent pour ma part. Faut-il porter de l'imitation pour être stylé ? Dans quel état d'esprit on entre quand on achète un article de marque ? 
+Voilà un sujet intriguant, mais dont on ne parle pas assez souvent pour ma part. Faut-il porter de l'imitation pour être stylé ? Dans quel état d'esprit on entre quand on achète un article de marque ? On ne se demande que très rarement ce qu'est une marque au juste et pourquoi elle nous attire tant. Quand on est en quête de bons plans sur l'achat de nouveaux habits, faut-il prendre en considération la marque ? Tant de questions pour si peu de réponses. Passons au vif de sujet pour éclaircir tout ça.
 
 ### Qu'est ce qu'une marque au juste ?
 
-Définir ce que c'est une marque et pourquoi elles existent.
 Une marque est une représentation majoritairement graphique ayant pour but de différencier le produit ou le service en question. (Ça y est je commence à faire le mec qui rentre trop dans la théorie).
 Ce qu'il faut savoir concernant les marques, c'est qu'elles sont la pour faire vendre un même produit plutôt qu'un autre. Détendez-vous, je m'explique. Et ensuite je vais passer aux choses sérieuses. Une paire de basket est le produit et donc Nike et Adidas sont deux marques. Chacune possède sa stratégie marketing pour nous faire vendre. Sans transition passons à la partie suivante.
 
