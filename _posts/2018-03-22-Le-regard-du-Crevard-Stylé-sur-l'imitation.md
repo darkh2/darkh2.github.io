@@ -17,7 +17,7 @@ Ce qu'il faut savoir concernant les marques, c'est qu'elles sont la pour faire v
 
 ### La priorité du Crevard Stylé dans le style.
 
-De toute évidence, si la marque était ma priorité dans le style ce site n'aurait jamais vu le jour vu parfois les prix excessifs pour les produits de marque. Aujourd'hui, j'ai l'impression que nous achetons avant tout la marque que le produit. Peut être pour suivre une tendance, le regard des autres ou se dire que vu que c'est de la marque, c'est forcément de la qualité ou que c'est beau. Que nenni ! 
+De toute évidence, si la marque était ma priorité dans le style ce site n'aurait jamais vu le jour, surtout en raison des prix excessifs pour les produits de marque. Aujourd'hui, j'ai l'impression que nous achetons avant tout la marque que le produit. Peut être pour suivre une tendance, le regard des autres ou se dire que vu que c'est de la marque, c'est forcément de la qualité ou que c'est beau. Que nenni ! 
 Le but du CS a toujours été le côté esthétique et le tout en optimisant le porte feuille. Sans bien entendu négliger l'état d'esprit du style qui va avec comme se sentir bien dans son style ainsi que les 7 principes fondamentaux.
 
 ### Le CS face aux marques
