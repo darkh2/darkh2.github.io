@@ -23,11 +23,11 @@ Le but du Crevard Stylé a toujours été le côté esthétique et le tout, en o
 ### Le Crevard Stylé face aux marques
 
 Mettons le dans une situation :  
-Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ces conditions suivantes en respectant la priorité la question de savoir si c'est de la marque ou non ou même si c'est de l'imitation devient totalement obsolète 
--Aspect esthétique validé 
--Bien taillé et adapté à la morphologie 
--Prix raisonnable en fonction également de la situation financière
+Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ces conditions suivantes, en y respectant l'ordre qui suit, la question de savoir si c'est de la marque ou non, ou même si c'est de l'imitation devient totalement obsolète :   
+* Aspect esthétique validé  
+* Bien taillé et adapté à la morphologie  
+* Prix raisonnable en fonction également de la situation financière  
 ...
--Marque ? Imitation ? On s'en balance. 
+* Marque ? Imitation ? On s'en balance.  
 
 Je ne dis pas non plus que porter de la marque est négatif en soi bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore des produits chers. D'où la catégorie Exceptions. Même dans l'habillement il faut être ouvert même si l'on veut optimiser son porte feuille il faut savoir quand même y mettre le prix.
