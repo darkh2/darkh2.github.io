@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-03-22T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: imitation.jpg
@@ -13,7 +13,7 @@ Voilà un sujet intriguant, mais dont on ne parle pas assez souvent pour ma part
 ### Qu'est ce qu'une marque au juste ?
 
 Une marque est une représentation majoritairement graphique ayant pour but de différencier le produit ou le service en question. (Ça y est je commence à faire le mec qui rentre trop dans la théorie).
-Ce qu'il faut savoir concernant les marques, c'est qu'elles sont la pour faire vendre un même produit plutôt qu'un autre. Détendez-vous, je m'explique. Et ensuite je vais passer aux choses sérieuses. Une paire de basket est le produit et donc Nike et Adidas sont deux marques. Chacune possède sa stratégie marketing pour nous faire vendre. Sans transition passons à la partie suivante.
+Ce qu'il faut savoir concernant les marques, c'est qu'elles sont la pour faire vendre un même produit plutôt qu'un autre. Détendez-vous, je m'explique. Et ensuite je vais passer aux choses sérieuses. Une paire de basket est le produit et donc Nike et Adidas sont deux marques. Chacune possède sa stratégie marketing pour nous faire vendre. C'est donc la marque qui va déterminer votre choix entre deux produits identiques. Sans transition passons à la partie suivante.
 
 ### La priorité du Crevard Stylé dans le style.
 
