@@ -24,11 +24,12 @@ Le but du Crevard Stylé a toujours été le côté esthétique et le tout, en o
 
 Mettons le dans une situation :  
 Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ces conditions suivantes, en y respectant l'ordre qui suit, la question de savoir si c'est de la marque ou non, ou même si c'est de l'imitation devient totalement obsolète :   
-* Aspect esthétique validé  
-* Bien taillé et adapté à la morphologie  
-* Prix raisonnable en fonction également de la situation financière  
+* 1. Aspect esthétique validé  
+* 2. Bien taillé et adapté à la morphologie  
+* 3. Prix raisonnable en fonction également de la situation financière  
 ...
 * Marque ? Imitation ? On s'en balance.  
+
 
 Je ne dis pas non plus que porter de la marque est négatif en soi, bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore d'autres produits chers qui valent totalement leur investissement. D'où la catégorie [Exceptions](http://www.crevardstyle.com/category/exceptions).
 
