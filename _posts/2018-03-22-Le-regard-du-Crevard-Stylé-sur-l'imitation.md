@@ -32,7 +32,7 @@ Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ce
 A partir du moment où les trois premières conditions sont respectéés, je ne me pose pas du tout la question si c'est de la marque ou non. C'est de l'imitation ? Tant pis, j'aime ! Je prends. Merci, et bon dimanche !  
 Je ne dis pas non plus que porter de la marque est négatif en soi, bien au contraire. J'ai certains produits de marque comme un bon jean Levi's de qualité ou encore d'autres produits chers qui valent totalement leur investissement. D'où la catégorie [Exceptions](http://www.crevardstyle.com/category/exceptions).
 
-### Le mot de la fin
+### Le mot de la fin (le pavé de la fin plutôt)
 
 Vous avez très bien pu remarquer qu'au final, il y a des bons points dans le fait de porter de la marque ou non. Et le point commun impératif entre ces deux avis est d'être totalement à l'aise avec ceux que l'on porte. L'affirmation du style passe par là. Je n'ai aucun mal à affirmer que certains de mes habits sont de l'imitation. Je n'ai aucun mal à revendiquer que je m'habille pour pas cher, car je me donne un challenge pour être bien habillé, et ne pas dépenser beaucoup. Ce qui visiblement, une certaine catégorie de personnes verrait ça comme radin et négatif, alors que cela peut engendrer beaucoup de bonnes choses (je vous dirai lesquelles dans un futur article ne vous inquiétez pas).  
 De plus, soyons honnêtes. Beaucoup de monde porte de l'imitation ou contrefaçon mais ceux qui l'assument sont beaucoup plus rares. S'il faut que je sois là première personne à mettre en avant une communauté fière qui l'assume, alors je ne peux qu'en être honoré !
