@@ -22,7 +22,7 @@ Le but du Crevard Stylé a toujours été le côté esthétique et le tout, en o
 
 ### Le Crevard Stylé face aux marques
 
-Mettons le face à une situation :
+Mettons le dans une situation :  
 Il est face à un article qui lui plaît. Disons un blouson par exemple. Dans ces conditions suivantes en respectant la priorité la question de savoir si c'est de la marque ou non ou même si c'est de l'imitation devient totalement obsolète 
 -Aspect esthétique validé 
 -Bien taillé et adapté à la morphologie 
