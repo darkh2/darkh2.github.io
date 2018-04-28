@@ -14,7 +14,7 @@ Les beaux jours semblent revenir... Cela va sans dire, après cette vague de fro
 
 ### Zoom sur la tenue
 
-Cette tenue convient parfaitement si vous devez donner une conférence, ou encore si vous avez une soutenance à passer. Pour cette venue de photons à foison, il me fallait une couleur vive. Cette chemise verte claire, (turquoise? On aurait même l'impression qu'elle est bleue ciel) était une façon d'apporter un démarquage fort à la tenue.  
+Cette tenue convient parfaitement si vous devez donner une conférence, ou encore si vous avez une soutenance à passer. Pour cette venue de photons à foison (j'avoue pas sur la photo, comme par hasard le jour du shooting, le soleil jouait à cache-cache, il jouait un peu trop bien), il me fallait une couleur vive. Cette chemise verte claire, (turquoise? On aurait même l'impression qu'elle est bleue ciel) était une façon d'apporter un démarquage fort à la tenue.  
 J'ai tendance à toujours favoriser les noeuds papillons plutôt que les cravates. Pour ne pas rester sur cette zone de confort, j'ai opté cette fois-çi pour une cravate. Puis le thème de la tenue s'y prête également. Cela fait une pierre, deux coups. L'originalité des motifs de cet accessoire sur un fond beige en fait un allié parfait et s'y associe très bien avec la chemise. Les motifs sont des fleurs à vrai dire. Ouh la honte il porte des fleurs.
 
 ![springworkchemcrav]({{site.url}}/{{site.baseurl}}img/springworkchemcrav.jpg)
