@@ -19,3 +19,6 @@ J'ai tendance à toujours favoriser les noeuds papillons plutôt que les cravate
 
 ![springworkchemcrav]({{site.url}}/{{site.baseurl}}img/springworkchemcrav.jpg)
 
+Pour couronner le haut, 
+
+![springworkveste]({{site.url}}/{{site.baseurl}}img/springworkveste.png)
