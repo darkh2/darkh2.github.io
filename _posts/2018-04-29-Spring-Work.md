@@ -19,6 +19,9 @@ J'ai tendance à toujours favoriser les noeuds papillons plutôt que les cravate
 
 ![springworkchemcrav]({{site.url}}/{{site.baseurl}}img/springworkchemcrav.jpg)
 
-Pour couronner le haut, je voulais impérativement assortir la veste avec la chemise en restant sur la même couleur mais un ton différent puisque cette dernière est verte foncée en matière velours.
+Pour couronner le haut, je voulais impérativement assortir la veste avec la chemise en restant sur la même couleur, mais un ton différent puisque cette dernière est verte foncée en matière velours. Le rendu est tout à fait appréciable.
 
 ![springworkveste]({{site.url}}/{{site.baseurl}}img/springworkveste.png)
+
+Mon style se détermine toujours par un ou plusieurs basiques. Le jean (slim) blanc en fait partie. Slim, pour affiner la silhouette globale, et blanc pour la simplicité ainsi que cette couleur se marie bien avec la tenue. Si vous avez bien remarqué, j'utilise le même jean que cette tenue : [Summer Sunset](http://www.crevardstyle.com/Summer-Sunset)
+Vous verrez également un autre point commun encore. Vous allez trouver, je n'en doute point.
