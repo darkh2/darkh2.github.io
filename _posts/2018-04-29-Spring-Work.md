@@ -19,6 +19,6 @@ J'ai tendance à toujours favoriser les noeuds papillons plutôt que les cravate
 
 ![springworkchemcrav]({{site.url}}/{{site.baseurl}}img/springworkchemcrav.jpg)
 
-Pour couronner le haut, 
+Pour couronner le haut, je voulais impérativement assortir la veste avec la chemise en restant sur la même couleur mais un ton différent puisque cette dernière est verte foncée en matière velours.
 
 ![springworkveste]({{site.url}}/{{site.baseurl}}img/springworkveste.png)
