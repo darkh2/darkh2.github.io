@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-04-29T00:00:00.000Z
 categories: crevard-style exceptions
 author_slug: hyke
 feature_image: springwork.jpg
