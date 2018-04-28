@@ -23,5 +23,5 @@ Pour couronner le haut, je voulais impérativement assortir la veste avec la che
 
 ![springworkveste]({{site.url}}/{{site.baseurl}}img/springworkveste.png)
 
-Mon style se détermine toujours par un ou plusieurs basiques. Le jean (slim) blanc en fait partie. Slim, pour affiner la silhouette globale, et blanc pour la simplicité ainsi que cette couleur se marie bien avec la tenue. Si vous avez bien remarqué, j'utilise le même jean que cette tenue : [Summer Sunset](http://www.crevardstyle.com/Summer-Sunset)
-Vous verrez également un autre point commun encore. Vous allez trouver, je n'en doute point.
+Mon style se détermine toujours par un ou plusieurs basiques. Le jean (slim) blanc en fait partie. Slim, pour affiner la silhouette globale, et blanc pour la simplicité de pouvoir associer énormément de couleurs vives avec. Si vous avez bien remarqué, j'utilise le même jean que cette tenue : [Summer Sunset](http://www.crevardstyle.com/Summer-Sunset)
+Vous verrez également une autre similitude encore. Vous allez la trouver, je n'en doute point.
