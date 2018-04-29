@@ -27,7 +27,13 @@ Mon style se détermine toujours par un ou plusieurs basiques. Le jean (slim) bl
 Vous verrez également une autre similitude encore. Vous allez la trouver, je n'en doute point.  
 
 Concernant la ceinture, elle est complètement assortie avec les chaussures. Je la joue simple aussi sur cette ceinture. Elle est bien contrastée par rapport à la couleur du jean, et respecte l'aspect esthétique de l'ensemble.  
-Je ne plaisante jamais avec les chaussures même si je cherche à ne pas dépenser beaucoup. Cette fois-çi, j'y ai mis le prix. Les fameuses [Jack Boots](http://www.crevardstyle.com/Les-Jack-Boots-Légendaires). Consultez l'article correspondant pour plus de détails.
+Je ne plaisante jamais avec les chaussures même si je cherche à ne pas beaucoup dépenser. Cette fois-çi, j'y ai mis le prix. Les fameuses [Jack Boots](http://www.crevardstyle.com/Les-Jack-Boots-Légendaires). Consultez l'article correspondant pour plus de détails.
+
+![springworkaccessoire]({{site.url}}/{{site.baseurl}}img/springworkaccessoire.png)
+
+Blabla sacoche
+
+![springworksac]({{site.url}}/{{site.baseurl}}img/springworksac.jpg)
 
 ### Crevard Stylé : des Exceptions mais pas que !
 
