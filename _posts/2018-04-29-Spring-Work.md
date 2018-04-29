@@ -56,8 +56,14 @@ Pour ce qui est des prix de chaque vêtement, on a des petits prix comme des mon
 
 * Sac Nabeul Style : **14 Euros**. 30 Dinars Tunisiens. Le fameux souk de Nabeul, en Tunisie regorge de bonnes affaires que ce soit dans les accessoires ou autre. De plus, les vendeurs sont toujours prêts à négocier dans la joie et la bonne humeur.  
 
-**
+**348.50 Euros** ! ! ! Calmez-vous, on peut améliorer tout ça. Cap sur l'optimisation !
 
+### Optimisation
 
+Comme vous pouvez le remarquer, le prix est excessif pour cette tenue en tant que Crevard Stylé. Mais on peut apporter certaines modifications :
 
-### Optimisation et perspectives
+* La ceinture marron : On peut en trouver partout de ce genre de ceintures. Que ce soit en boutique, ou sur internet et à moins de 20 Euros. On peut s'en sortir pour une dizaine d'Euros je pense. Voire moins pour les plus talentueux.
+
+* Les Jack Boots : Effectivement, c'était une lourde exception. Une paire de chaussures épique qui vaut totalement son prix en tant que Crevard Stylé. Mais rien ne nous empêche de quand même trouver une paire de chaussures marrons à très bon prix. Là, je n'ai pas de fourchette de prix à vous proposer, c'est à vous d'en décider.  
+
+Sachez qu'au final, sur ces deux éléments, nous pouvons réduire le prix total de la tenue.
