@@ -31,10 +31,17 @@ Je ne plaisante jamais avec les chaussures même si je cherche à ne pas beaucou
 
 ![springworkaccessoire]({{site.url}}/{{site.baseurl}}img/springworkaccessoire.png)
 
-Blabla sacoche
+Pour terminer, et j'en ai même le sourire à travers la rédaction de cet article tellement j'aime cet accessoire. Un trophée que j'ai ramené d'un voyage. Vous comprendrez comment les voyages peuvent vous aider à développer votre style à travers cet article : [Style Authentique](http://www.crevardstyle.com/Comment-voyager-peut-rendre-votre-style-authentique).  
+Voici un sac/sacoche parfait pour contenir des documents ou même un ordinateur portable. Les motifs sont d'une beauté. Ca fait du bien au yeux ! Très original et indispensable pour l'authenticité du style. Sachez que dans le style chaque détail compte. Même s'il n'y a pas énormément d'éléments, alors il faut optimiser la qualité de ces derniers.
 
 ![springworksac]({{site.url}}/{{site.baseurl}}img/springworksac.jpg)
 
 ### Crevard Stylé : des Exceptions mais pas que !
+
+![springworknoir]({{site.url}}/{{site.baseurl}}img/springworknoir.jpg)
+
+Pour ce qui est des prix de chaque vêtement, on a des petits prix comme des montants non négligeables. Mais pour chaque Exception, nous aurons le droit à une vision d'optimisation de prix dans la partie qui suivra.
+
+
 
 ### Optimisation et perspectives
