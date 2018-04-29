@@ -64,6 +64,8 @@ Comme vous pouvez le remarquer, le prix est excessif pour cette tenue en tant qu
 
 * La ceinture marron : On peut en trouver partout de ce genre de ceintures. Que ce soit en boutique, ou sur internet et à moins de 20 Euros. On peut s'en sortir pour une dizaine d'Euros je pense. Voire moins pour les plus talentueux.
 
-* Les Jack Boots : Effectivement, c'était une lourde exception. Une paire de chaussures épique qui vaut totalement son prix en tant que Crevard Stylé. Mais rien ne nous empêche de quand même trouver une paire de chaussures marrons à très bon prix. Là, je n'ai pas de fourchette de prix à vous proposer, c'est à vous d'en décider.  
+* Les Jack Boots : Effectivement, c'était une lourde exception. Une paire de chaussures épique qui vaut totalement son prix en tant que Crevard Stylé. Mais rien ne nous empêche de quand même trouver une paire de chaussures marrons à un prix beaucoup plus bas. Là, je n'ai pas de fourchette de prix à vous proposer, c'est à vous d'en décider. Il y aura deux écoles. Ceux qui sont prêts à débourser pour une paire de très bonne qualité, ou bien ceux qui veulent juste optimiser leur portefeuille et se disent qu'ils verront plus tard si jamais la paire viendrait à flancher. Sur ce coup là, je dois vous avouer que je fais parti de la première école. Même si en temps normal, j'aurais tendance à faire partie de la seconde.  
 
-Sachez qu'au final, sur ces deux éléments, nous pouvons réduire le prix total de la tenue.
+Sachez qu'au final, sur ces deux éléments, nous pouvons réduire le prix total de la tenue.  
+
+Quel est votre ressenti face à cette tenue ? Est-elle un peu "too much" pour aller au travail ? Ne serait-elle pas plus adaptée pour un autre type d'évènement ? Faut-il favoriser la qualité au point d'aller mettre plus de 200 Euros pour une paire de chaussures ? ...
