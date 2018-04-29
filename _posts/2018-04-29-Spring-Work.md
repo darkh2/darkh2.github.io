@@ -26,7 +26,8 @@ Pour couronner le haut, je voulais impérativement assortir la veste avec la che
 Mon style se détermine toujours par un ou plusieurs basiques. Le jean (slim) blanc en fait parti. Slim, pour affiner la silhouette globale, et blanc pour la simplicité de pouvoir associer énormément de couleurs vives avec. Si vous avez bien remarqué, j'utilise le même jean que cette tenue : [Summer Sunset](http://www.crevardstyle.com/Summer-Sunset)
 Vous verrez également une autre similitude encore. Vous allez la trouver, je n'en doute point.  
 
-Concernant la ceinture, elle est complètement assortie avec les chaussures. 
+Concernant la ceinture, elle est complètement assortie avec les chaussures. Je la joue simple aussi sur cette ceinture. Elle est bien contrastée par rapport à la couleur du jean, et respecte l'aspect esthétique de l'ensemble.  
+Je ne plaisante jamais avec les chaussures même si je cherche à ne pas dépenser beaucoup. Cette fois-çi, j'y ai mis le prix. Les fameuses [Jack Boots](http://www.crevardstyle.com/Les-Jack-Boots-Légendaires). Consultez l'article correspondant pour plus de détails.
 
 ### Crevard Stylé : des Exceptions mais pas que !
 
