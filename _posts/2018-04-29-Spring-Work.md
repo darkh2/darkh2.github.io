@@ -42,6 +42,18 @@ Voici un sac/sacoche parfait pour contenir des documents ou même un ordinateur 
 
 Pour ce qui est des prix de chaque vêtement, on a des petits prix comme des montants non négligeables. Mais pour chaque Exception, nous aurons le droit à une vision d'optimisation de prix dans la partie qui suivra.
 
+* Chemise verte : **9 Euros** à Primark. Faudrait peut-être que je fasse un article avec une tenue dont aucun élément ne ferait partie de ce magasin ... Pourquoi pas ?
+
+* Cravate beige florale : **3.50 Euros** à Primark. Pas besoin de fouiner énormément parfois pour tomber sur de beaux accessoires. Il faut juste ouvrir l'oeil.
+
+* Veste verte velours : **40 Euros** à Devred. Dans la période post-soldes, il peut rester quelque fois dans une partie du magasin certains invendus et qui ont un très bon prix, même si parfois ce sont des tailles trop grandes ou des couleurs que personne n'a voulu acheter. Avec du vert, j'ai eu cette chance. La chance Absolue a joué en ma faveur. Si vous voulez savoir pourquoi je parle de chance "Absolue" je vous invite à lire cet article : [La Chance selon Hyke](http://www.crevardstyle.com/La-Chance-Selon-Hyke).
+
+* Ceinture marron simple : Exception pour **20 Euros**. Le modèle m'avait beaucoup plu. Puis je me souviens l'avoir acheté à Zara avec une autre paire de chaussures. Celle de la tenue [Red Winter](http://www.crevardstyle.com/Red-Winter).
+
+* Jean slim blanc : Un basique que l'on peut trouver à **12 Euros** à Primark.
+
+* Jack Boots : **250 Euros**. Sur le site Taftclothing. Comme je suis bon samaritain, je vous remets le lien de l'article dans lequel vous pourrez le retrouver. [Jack Boots](http://www.crevardstyle.com/Les-Jack-Boots-Légendaires).
+
 
 
 ### Optimisation et perspectives
