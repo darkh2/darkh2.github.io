@@ -54,6 +54,10 @@ Pour ce qui est des prix de chaque vêtement, on a des petits prix comme des mon
 
 * Jack Boots : **250 Euros**. Sur le site Taftclothing. Comme je suis bon samaritain, je vous remets le lien de l'article dans lequel vous pourrez le retrouver. [Jack Boots](http://www.crevardstyle.com/Les-Jack-Boots-Légendaires).
 
+* Sac Nabeul Style : **14 Euros**. 30 Dinars Tunisiens. Le fameux souk de Nabeul, en Tunisie regorge de bonnes affaires que ce soit dans les accessoires ou autre. De plus, les vendeurs sont toujours prêts à négocier dans la joie et la bonne humeur.  
+
+**
+
 
 
 ### Optimisation et perspectives
