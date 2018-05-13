@@ -40,3 +40,5 @@ Inutile d'en rajouter, la tenue parle d'elle-même, faisons place à la facture.
 Un petit vent se fait ressentir ? Je vous propose de vous couvrir avec un petit blouson type base-ball college de couleur rouge. J'ai fais cette trouvaille à moins de **15 Euros** sur Aliexpress.
 
 ![montageredjacket]({{site.url}}/{{site.baseurl}}img/montageredjacket.jpg)
+
+**On arrive à un nouveau total de 78 Euros.**
