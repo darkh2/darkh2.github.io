@@ -19,7 +19,7 @@ Pour faciliter les mouvements, le jogging doit être pratique. Mais j'avais déc
 
 ![montagejogging]({{site.url}}/{{site.baseurl}}img/montagejogging.jpg)
 
-Les sneakers finalisent bien les couleurs et l'aspect décontracté de l'ensemble. Je suis vraiment très attaché à cette magnifique paire que je porte de plus en plus souvent. Un bon mélange entre style et utilité.
+Les sneakers finalisent bien les couleurs et l'aspect décontracté de l'ensemble. Je suis vraiment très attaché à cette magnifique paire que je porte de plus en plus souvent. Un bon mélange alliant style et utilité.
 
 ![stylejoggingsneakers]({{site.url}}/{{site.baseurl}}img/stylejoggingsneakers.jpg)
 
