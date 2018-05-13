@@ -22,3 +22,21 @@ Pour faciliter les mouvements, le jogging doit être pratique. Mais j'avais déc
 Les sneakers finalisent bien les couleurs et l'aspect décontracté de l'ensemble. Je suis vraiment très attaché à cette magnifique paire que je porte de plus en plus souvent. Un bon mélange entre style et utilité.
 
 ![stylejoggingsneakers]({{site.url}}/{{site.baseurl}}img/stylejoggingsneakers.jpg)
+
+Inutile d'en rajouter, la tenue parle d'elle-même, faisons place à la facture.
+
+### Crevard Stylé : Simplicité, utilité et originalité à bas prix
+
+* T-shirt blanc New York : **3 Euros** à Primark. On peut toujours se faire plaisir question t-shirts dans ce magasin.
+
+* Jogging cheval : **20 Euros** chez Zara. J'ai bien attendu la période des soldes pour faire cet achat. Il n'était pas question que je dépense plus pour un jogging même si la pièce est originale.
+
+* Sneakers blanches et rouges : **40 Euros** à H&M.
+
+**63 Euros.** Il ne fallait pas s'attendre à un prix énorme pour ce genre de tenue.
+
+#### Amélioration possible
+
+Un petit vent se fait ressentir ? Je vous propose de vous couvrir avec un petit blouson type base-ball college de couleur rouge. J'ai fais cette trouvaille à moins de **15 Euros** sur Aliexpress.
+
+![montageredjacket]({{site.url}}/{{site.baseurl}}img/montageredjacket.jpg)
