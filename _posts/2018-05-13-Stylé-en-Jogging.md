@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-05-13T00:00:00.000Z
 categories: crevard-style
 author_slug: hyke
 feature_image: styleenjogging.jpg
@@ -14,4 +14,4 @@ Au moment où je rédige cet article, l'été arrive comme une grosse boule de p
 
 ### Zoom sur la tenue
 
-Que ce soit pour s'entraîner ou tout simplement se balader de façon décontractée, un bon t-shirt simple ou légèrement nuancé fera l'affaire. 
+Que ce soit pour s'entraîner ou tout simplement se balader de façon décontractée, un bon t-shirt simple ou légèrement nuancé fera l'affaire. Les 
