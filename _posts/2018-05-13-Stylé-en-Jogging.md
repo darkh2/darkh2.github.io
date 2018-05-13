@@ -8,4 +8,4 @@ feature_image: styleenjogging.jpg
 ---
 ## Stylé en Jogging
 
-A ce moment où je rédige cet article, l'été arrive comme une grosse boule de pierre dans Indiana Jones. Pour certains d'entre vous, il est même déjà là. Il me fallait donc faire au moins le partage d'une tenue prévue pour pratiquer un sport ou tout simplement flâner avec tout en gardant un style propre.
+Au moment où je rédige cet article, l'été arrive comme une grosse boule de pierre dans une scène de suspense d'Indiana Jones. Pour certains d'entre vous, il est même déjà là. Il me fallait donc faire au moins le partage d'une tenue prévue pour pratiquer un sport ou tout simplement flâner avec tout en gardant un style propre. 
