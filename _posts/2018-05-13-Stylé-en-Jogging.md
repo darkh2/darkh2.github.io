@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-05-13T00:00:00.000Z
+date: {}
 categories: crevard-style
 author_slug: hyke
 feature_image: styleenjogging.jpg
@@ -31,7 +31,7 @@ Inutile d'en rajouter, la tenue parle d'elle-même, faisons place à la facture.
 
 * Jogging cheval : **20 Euros** chez Zara. J'ai bien attendu la période des soldes pour faire cet achat. Il n'était pas question que je dépense plus pour un jogging même si la pièce est originale.
 
-* Sneakers blanches et rouges : **40 Euros** à H&M.
+* Sneakers blanches et rouges : **40 Euros** à H&M. J'ai voulu attendre la première fois que j'ai vu cette paire. Mais j'ai fini par craquer. J'ai même hésiter à en prendre une seconde paire au cas où elle fatiguerait vite vu que je compte souvent la porter. Je me suis vite calmé aussi ...
 
 **63 Euros.** Il ne fallait pas s'attendre à un prix énorme pour ce genre de tenue.
 
@@ -42,5 +42,3 @@ Un petit vent se fait ressentir ? Je vous propose de vous couvrir avec un petit 
 ![montageredjacket]({{site.url}}/{{site.baseurl}}img/montageredjacket.jpg)
 
 **On arrive à un nouveau total de 78 Euros.**
-
-
