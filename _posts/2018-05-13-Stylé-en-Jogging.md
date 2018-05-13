@@ -14,4 +14,4 @@ Au moment où je rédige cet article, l'été arrive comme une grosse boule de p
 
 ### Zoom sur la tenue
 
-Que ce soit pour s'entraîner ou tout simplement se balader de façon décontractée, 
+Que ce soit pour s'entraîner ou tout simplement se balader de façon décontractée, un bon t-shirt simple ou légèrement nuancé fera l'affaire. 
