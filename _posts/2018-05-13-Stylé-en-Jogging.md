@@ -15,4 +15,10 @@ Au moment où je rédige cet article, l'été arrive comme une grosse boule de p
 ### Zoom sur la tenue
 
 Que ce soit pour s'entraîner ou tout simplement se balader de façon décontractée, un bon t-shirt simple ou légèrement nuancé fera l'affaire.  
-Pour faciliter les mouvements, le jogging doit être pratique. Mais j'avais décidé qu'il faudrait apporter quelque chose en plus. Même si bien entendu, on dirait que je vais faire de l'équitation avec.
+Pour faciliter les mouvements, le jogging doit être pratique. Mais j'avais décidé qu'il faudrait apporter quelque chose en plus. Même si bien entendu, on dirait que je vais faire de l'équitation avec. Le choix de ce bas s'est fait pour favoriser l'harmonie globale de la tenue et assembler les couleurs qui en font partie.
+
+![montagejogging]({{site.url}}/{{site.baseurl}}img/montagejogging.jpg)
+
+Les sneakers finalisent bien les couleurs et l'aspect décontracté de l'ensemble. Je suis vraiment très attaché à cette magnifique paire que je porte de plus en plus souvent. Un bon mélange entre style et utilité.
+
+![stylejoggingsneakers]({{site.url}}/{{site.baseurl}}img/stylejoggingsneakers.jpg)
