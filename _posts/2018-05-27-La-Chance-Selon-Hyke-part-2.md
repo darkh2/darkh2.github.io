@@ -9,7 +9,7 @@ feature_image: multicompetence.jpg
 ## La Chance Selon Hyke part 2 (La multicompétence)
 
 Cet article est la suite de [La Chance Selon Hyke](http://www.crevardstyle.com/La-Chance-Selon-Hyke). Je vous conseille de lire la première partie afin de bien comprendre certains termes employés dans les lignes qui vont suivre.
-Que la chance vous sourit ou non, vous serez toujours amené(e) à faire face à certaines situations. Un jour arrive où malheureusement elle ne vous sourit plus et vous êtes dans une situation où vous vous dîtes j'aurais peut-être dû faire ceci ou cela...  
+Que la chance vous sourit ou non, vous serez toujours amené(e) à faire face à certaines situations. Un jour arrive où malheureusement elle ne vous sourit plus et vous êtes là à vous dire "j'aurais peut-être dû faire ceci ou cela..."  
 Je vous propose aujourd'hui une façon de favoriser cette chance à travers un point essentiel : la multicompétence.
 Voyons en quoi cela peut nous aider dans l'amélioration de soi-même.
 
@@ -25,8 +25,7 @@ Vous bossez dans une entreprise grâce au domaine A dont vous avez les compéten
 
 ### Développer une multicompétence
 
-Sachez que dans la vie, vous devez impérativement acquérir de nouvelles compétences. Rien que déjà pour favoriser votre Chance Maîtrisable et également pour vous-même. Ce n'est pas pour rien que l'on dit que le savoir est une arme. Il y a bien des choses que vous aimez dans la vie. Cultivez votre intêret à de nouvelles choses, de nouvelles expériences, sortez de chez vous, discutez avec des inconnus, apprenez une nouvelle langue... Ouvrez votre esprit ! 
-Favorisation explications/Décomposition de la CM
-Conclusion 6ML?
+Sachez que dans la vie, vous devez impérativement acquérir de nouvelles compétences. Rien que déjà pour favoriser votre Chance Maîtrisable et également pour vous-même. Ce n'est pas pour rien que l'on dit que le savoir est une arme. Il y a bien des choses que vous aimez dans la vie. Cultivez votre intêret à de nouvelles choses, de nouvelles expériences, sortez de chez vous, discutez avec des inconnus, apprenez une nouvelle langue... Ouvrez votre esprit ! Et puis surtout, la vie est remplie d'opportunités que l'on se doit de saisir quand elles se présentent. Et parfois, il faut même les provoquer, justement en optimisant sa partie Maîtrisable de la Chance.
+
 
 (article en préparation)
