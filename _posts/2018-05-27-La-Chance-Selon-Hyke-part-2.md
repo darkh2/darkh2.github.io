@@ -25,6 +25,7 @@ Vous bossez dans une entreprise grâce au domaine A dont vous avez les compéten
 
 ### Développer une multicompétence
 
+Sachez que dans la vie, vous devez impérativement acquérir de nouvelles compétences. Rien que déjà pour favoriser votre Chance Maîtrisable et également pour vous-même. Ce n'est pas pour rien que l'on dit que le savoir est une arme. Il y a bien des choses que vous aimez dans la vie. Cultivez votre intêret à de nouvelles choses, de nouvelles expériences, sortez de chez vous, discutez avec des inconnus, apprenez une nouvelle langue... Ouvrez votre esprit ! 
 Favorisation explications/Décomposition de la CM
 Conclusion 6ML?
 
