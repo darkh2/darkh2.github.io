@@ -16,7 +16,7 @@ Voyons en quoi cela peut nous aider dans l'amélioration de soi-même.
 ### Un petit rappel
 
 **Chance Globale = Chance Absolue + Chance Maîtrisable**  
-La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autres termes le phénomène purement aléatoire ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
+La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autres termes le phénomène purement aléatoire, ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
 
 ### Liaison entre la Chance et la Multicompétence
 
