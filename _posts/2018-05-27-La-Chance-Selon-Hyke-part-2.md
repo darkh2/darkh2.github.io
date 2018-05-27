@@ -20,6 +20,7 @@ La Chance se décompose donc en une partie dont on ne peut rien faire, le phéno
 
 ### Liaison entre la Chance et la Multicompétence
 
+Dans une situation où la Chance Absolue joue en votre défaveur, c'est-à-dire, dont vous n'avez aucune influence sur ce qui arrive.
 
 Liaison entre C et M
 Cas pratique
