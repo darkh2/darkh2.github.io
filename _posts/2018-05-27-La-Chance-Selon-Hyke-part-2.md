@@ -12,4 +12,10 @@ Cet article est la suite de [La Chance Selon Hyke](http://www.crevardstyle.com/L
 Que la chance vous sourit ou non, vous serez toujours amené(e) à faire face à certaines situations. Un jour arrive où malheureusement elle ne vous sourit plus et vous êtes dans une situation où vous vous dîtes j'aurais peut-être dû faire ceci ou cela...  
 Je vous propose aujourd'hui une façon de favoriser cette chance à travers un point essentiel : la multicompétence.
 
+Rappel
+Liaison entre C et M
+Cas pratique
+Favorisation explications
+Conclusion 6ML?
+
 (article en préparation)
