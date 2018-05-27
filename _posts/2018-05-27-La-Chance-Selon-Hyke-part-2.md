@@ -20,7 +20,8 @@ La Chance se décompose donc en une partie dont on ne peut rien faire, le phéno
 
 ### Liaison entre la Chance et la Multicompétence
 
-Dans une situation où la Chance Absolue joue en votre défaveur et dont vous n'avez aucune influence sur ce qui arrive, le mieux pour limiter les dégats serait d'avoir au préalable certaines options afin de parer à un maximum d'éventualités. La multicompétence serait donc une caractéristique essentielle que vous devriez appliquer justement pour parer à ces éventualités. 
+Dans une situation où la Chance Absolue joue en votre défaveur et dont vous n'avez aucune influence sur ce qui arrive, le mieux pour limiter les dégats serait d'avoir au préalable certaines options afin de parer à un maximum d'éventualités. La multicompétence va justement servir à préparer le terrain. Prenons un exemple :  
+
 
 
 Liaison entre C et M
