@@ -12,7 +12,7 @@ Cet article est la suite de [La Chance Selon Hyke](http://www.crevardstyle.com/L
 Que la chance vous sourit ou non, vous serez toujours amené(e) à faire face à certaines situations. Un jour arrive où malheureusement elle ne vous sourit plus et vous êtes là à vous dire "j'aurais peut-être dû faire ceci ou cela..."  
 Je vous propose aujourd'hui une façon de favoriser cette chance à travers un point essentiel : la multicompétence.
 
-### Un petit rappel
+### Rappel de la Chance selon Hyke
 
 **Chance Globale = Chance Absolue + Chance Maîtrisable**  
 La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autres termes le phénomène purement aléatoire, ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
