@@ -16,12 +16,12 @@ Voyons en quoi cela peut nous aider dans l'amélioration de soi-même.
 ### Un petit rappel
 
 **Chance Globale = Chance Absolue + Chance Maîtrisable**  
-La Chance se décompose donc en une partie dont on ne peut rien faire, le phénomène aléatoire ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
+La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autres termes le phénomène purement aléatoire ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
 
 ### Liaison entre la Chance et la Multicompétence
 
 Dans une situation où la Chance Absolue joue en votre défaveur et dont vous n'avez aucune influence sur ce qui arrive, le mieux pour limiter les dégats serait d'avoir au préalable certaines options afin de parer à un maximum d'éventualités. La multicompétence va justement servir à préparer le terrain. Prenons un exemple :  
-
+Vous bossez dans une entreprise grâce au domaine A dont vous avez les compétences.
 
 
 Liaison entre C et M
