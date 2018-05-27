@@ -21,7 +21,7 @@ La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autr
 ### Liaison entre la Chance et la Multicompétence
 
 Dans une situation où la Chance Absolue joue en votre défaveur et dont vous n'avez aucune influence sur ce qui arrive, le mieux pour limiter les dégats serait d'avoir au préalable certaines options afin de parer à un maximum d'éventualités. La multicompétence va justement servir à préparer le terrain. Prenons un exemple :  
-Vous bossez dans une entreprise grâce au domaine A dont vous avez les compétences.
+Vous bossez dans une entreprise grâce au domaine A dont vous avez les compétences. Du jour au lendemain, l'entreprise coule et vous vous faites viré(e) comme un malpropre.
 
 
 Liaison entre C et M
