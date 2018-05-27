@@ -14,6 +14,7 @@ Je vous propose aujourd'hui une façon de favoriser cette chance à travers un p
 
 ### Rappel de la Chance selon Hyke
 
+Si vous vous souvenez bien de l'article précédent :  
 **Chance Globale = Chance Absolue + Chance Maîtrisable**  
 La Chance se décompose donc en une partie dont on ne peut rien faire, en d'autres termes le phénomène purement aléatoire, ainsi qu'une partie qu'on peut optimiser en fonction de chaque situation.
 
