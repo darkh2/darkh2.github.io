@@ -8,4 +8,6 @@ feature_image: imitation.jpg
 ---
 ## La Chance Selon Hyke part 2 (La multicompétence)
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+
+
+(article en préparation)
