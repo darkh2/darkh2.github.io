@@ -30,11 +30,11 @@ Faîtes attention à ne pas tomber dans le piège de ces articles en période de
 
 ### #4. Première bataille : 1ère démarque et bazar
 
-Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas où cela serait impossible pour vous, il sera très important de bien connaître votre taille. Et dans le pire des cas vous pourrez toujours retrouver les articles sur les sites internet.
+Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas où cela serait impossible pour vous, il sera très important de bien connaître votre taille. Sauf si vous avez le temps de faire les longues files d'attente des cabines essayage. Et dans le pire des cas vous pourrez toujours retrouver les articles sur les sites internet des boutiques en question.
 
 Si on possède un budget limité favoriser les basiques plutôt que les pièces fortes. 
-
-Il faut impérativement connaître votre taille. Sauf si vous avez le temps de faire les longues files d'attente des cabines essayage. Après vous pouvez toujours favoriser les jours où il y a moins de monde en semaine. Encore faut il que votre emploi du temps vous le permette mais à vos risques et périls le weekend et encore pire le 1er weekend
+Sachez que la période des soldes est juste une occasion pour vous de trouver la bonne affaire pour mettre à jour votre stuff de basiques donc saisissez l'opportunité sur une pièce forte que si cela vaut vraiment la peine. 
+Il faut impérativement connaître votre taille.  Après vous pouvez toujours favoriser les jours où il y a moins de monde en semaine. Encore faut il que votre emploi du temps vous le permette mais à vos risques et périls le weekend et encore pire le 1er weekend
 
 Parfois a la 1ere démarque les prix restent encore chers. Savoir s'il faut prendre le risque d'attendre les démarques suivantes ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. Loterie. Cela va s'appliquer également aux pièces fortes. En général les pièces fortes partent plus vite que les basiques.
 
