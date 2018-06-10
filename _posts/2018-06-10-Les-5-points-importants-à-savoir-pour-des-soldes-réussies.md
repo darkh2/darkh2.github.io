@@ -46,4 +46,4 @@ Si vous avez décidé de jouer la carte patience alors il se peut que vous puiss
 Il n y en a pas. Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais.
 Exemple : je ne pensais pas que j'allais trouver une bonne veste à C&A et pourtant regardez l'article Keep It 100.
 
-(Article en cours de préparation...)
+(Article en cours de finition...)
