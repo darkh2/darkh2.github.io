@@ -26,7 +26,7 @@ Bien entendu, le budget se décidera en fonction de ce dont vous avez besoin. Il
 
 Profitez quelques jours avant la venue des soldes, de faire du repérage pour anticiper ce qui sera en baisse. Certains pensent que les vendeurs savent quels articles seront en baisse ou non. Donc, rien à perdre de leur poser la question.
 C'est sur que les nouvelles collections ne seront pas en baisse.
-Faîtes attention à ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
+Faîtes attention de ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
 
 ### #4. Première bataille : 1ère démarque et bazar
 
