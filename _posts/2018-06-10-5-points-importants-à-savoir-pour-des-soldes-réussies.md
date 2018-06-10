@@ -39,7 +39,7 @@ Parfois, à la 1ère démarque, les prix restent encore élevés. Savoir s'il fa
 
 ### #5. Les batailles suivantes.
 
-Si vous avez décidé de jouer la carte patience, alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'au premiers jours de soldes. Sinon sachez que rien n'est perdu. Il reste internet et c'est toujours de l'argent d'économisé. Et surtout s'il s'agit de basiques, cela se renouvelle continuellement.
+Si vous avez décidé de jouer la carte patience, alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'aux premiers jours de soldes. Sinon, sachez que rien n'est perdu. Il reste internet, et c'est toujours de l'argent d'économisé. Et surtout s'il s'agit de basiques, cela se renouvelle continuellement.
 
 ### BONUS Dernière astuce
 
