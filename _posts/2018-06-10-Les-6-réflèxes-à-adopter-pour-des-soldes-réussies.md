@@ -24,13 +24,13 @@ Bien entendu, le budget se décidera en fonction de ce dont vous avez besoin. Il
 
 ### #3. Repérage 
 
-Profitez quelques jours avant la venue des soldes de faire du repérage pour anticiper ce qui sera en baisse. Certains pensent que les vendeurs s'ils savent quels articles seront en baisse ou non. Donc, rien à perdre de leur poser la question.
+Profitez quelques jours avant la venue des soldes, de faire du repérage pour anticiper ce qui sera en baisse. Certains pensent que les vendeurs savent quels articles seront en baisse ou non. Donc, rien à perdre de leur poser la question.
 C'est sur que les nouvelles collections ne seront pas en baisse.
-Faire attention à ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
+Faîtes attention à ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
 
-### #4. Première bataille : 1ere démarque et bazar
+### #4. Première bataille : 1ère démarque et bazar
 
-Favoriser les heures ou il y a moins de monde pour essayage. Si essayage impossible bien connaître sa taille. Et dans le pire des cas vous pourrez toujours retrouver les articles sur les sites internet.
+Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas où cela serait impossible pour vous, il sera très important de bien connaître votre taille. Et dans le pire des cas vous pourrez toujours retrouver les articles sur les sites internet.
 
 Si on possède un budget limité favoriser les basiques plutôt que les pièces fortes. 
 
