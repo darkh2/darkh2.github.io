@@ -35,15 +35,15 @@ Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas
 Si on possède un budget limité (oui forcément il le sera), favoriser les basiques plutôt que les pièces fortes.  
 La période des soldes est juste une occasion pour vous de trouver la bonne affaire pour mettre à jour votre stuff de basiques, donc saisissez l'opportunité sur une pièce forte que si cela vaut vraiment la peine.  
 
-Parfois, à la 1ère démarque, les prix restent encore chers. Savoir s'il faut prendre le risque d'attendre les démarques suivantes, ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. Loterie. Cela va s'appliquer également aux pièces fortes. En général les pièces fortes partent plus vite que les basiques.
+Parfois, à la 1ère démarque, les prix restent encore chers. Savoir s'il faut prendre le risque d'attendre les démarques suivantes, ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. C'est un peu la loterie. Cela va s'appliquer également aux pièces fortes. En général les pièces fortes partent plus vite que les basiques.
 
 ### #5. Les batailles suivantes.
 
-Si vous avez décidé de jouer la carte patience alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'au premiers jours de soldes. Sinon sachez que rien n'est perdu. Il reste internet et c'est toujours de l'argent d'économisé. Et surtout s'il s'agit de basiques, cela se renouvelle continuellement.
+Si vous avez décidé de jouer la carte patience, alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'au premiers jours de soldes. Sinon sachez que rien n'est perdu. Il reste internet et c'est toujours de l'argent d'économisé. Et surtout s'il s'agit de basiques, cela se renouvelle continuellement.
 
-### BONUS Quels magasins ?
+### BONUS Dernières astuces
 
-Il n y en a pas. Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais.
-Exemple : je ne pensais pas que j'allais trouver une bonne veste à C&A et pourtant regardez l'article Keep It 100.
+Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais.
+Exemple : je ne pensais pas que j'allais trouver une bonne veste à C&A et pourtant regardez le résultat : [Keep It 100](http://www.crevardstyle.com/Keep-It-100).
 
 (Article en cours de finition...)
