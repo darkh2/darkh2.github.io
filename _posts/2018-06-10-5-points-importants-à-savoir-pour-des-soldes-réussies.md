@@ -35,7 +35,7 @@ Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas
 Si on possède un budget limité (oui forcément il le sera), vos achats se feront dans un premier temps sur les basiques plutôt que les pièces fortes.  
 La période des soldes est juste une occasion pour vous de trouver la bonne affaire, pour ensuite mettre à jour votre stuff de basiques. Saisissez l'opportunité sur une pièce forte que si cela vaut vraiment la peine.  
 
-Parfois, à la 1ère démarque, les prix restent encore élevés. Savoir s'il faut prendre le risque d'attendre les démarques suivantes, ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. C'est un peu la loterie. Cela va s'appliquer également aux pièces fortes. En général les pièces fortes partent plus vite que les basiques.
+Parfois, à la 1ère démarque, les prix restent encore élevés. Savoir s'il faut prendre le risque d'attendre les démarques suivantes, ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. Non ! Ne me demandez surtout pas aux vendeurs si c'est le cas ou non. Il/elle vous dira forcément que ça part comme des petits pains. Mais c'est un peu la loterie. Cela va s'appliquer également aux pièces fortes. En général, elles partent plus vite que les basiques.
 
 ### #5. Les batailles suivantes.
 
