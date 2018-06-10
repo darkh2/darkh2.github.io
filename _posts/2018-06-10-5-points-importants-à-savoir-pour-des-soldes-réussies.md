@@ -30,7 +30,7 @@ Les nouvelles collections ne seront pas en baisse. Faîtes attention de ne pas t
 
 ### #4. Première bataille : 1ère démarque et bazar
 
-Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas où cela serait impossible pour vous, il sera très important de bien connaître votre taille, et même de façon générale. Sauf si vous avez le temps de faire les longues files d'attente des cabines d'essayage. Sachez que dans le pire des cas, vous pourrez toujours retrouver les articles sur les sites internet des boutiques en question. A condition d'être assez rapide pour éviter les ruptures de stock.  
+Favorisez les passages en semaine pour les essayages notamment. Mais dans le cas où cela serait impossible pour vous, il sera très important de bien connaître votre taille, et même de façon générale, vous devez quand même connaître votre taille , pardi ! Sauf si vous avez le temps de faire les longues files d'attente des cabines d'essayage. Sachez que dans le pire des cas, vous pourrez toujours retrouver les articles sur les sites internet des boutiques en question. A condition d'être assez rapide pour éviter les ruptures de stock.  
 
 Si on possède un budget limité (oui forcément il le sera), favoriser les basiques plutôt que les pièces fortes.  
 La période des soldes est juste une occasion pour vous de trouver la bonne affaire pour mettre à jour votre stuff de basiques, donc saisissez l'opportunité sur une pièce forte que si cela vaut vraiment la peine.  
