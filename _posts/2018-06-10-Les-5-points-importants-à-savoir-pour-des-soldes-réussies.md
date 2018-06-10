@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 208-06-10
 categories: articles
 author_slug: hyke
 feature_image: soldes.jpg
