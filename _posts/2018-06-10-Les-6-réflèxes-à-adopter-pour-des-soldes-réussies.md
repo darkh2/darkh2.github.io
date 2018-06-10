@@ -9,10 +9,12 @@ feature_image: soldes.jpg
 ## Les 6 réflèxes à adopter pour des soldes réussies
 
 Quand on pense soldes, on pense souvent bonnes affaires. A vrai dire, ce n'est pas toujours le cas. On sait très bien que c'est juste un prétexte pour que vous achetiez encore et encore. Néanmoins en ayant certains réflexes, on peut profiter de quelques bonnes opportunités. Encore faut-il être bien préparé, et être la au bon endroit au bon moment.
+Voici les six impératifs que vous devez effectuer pour optimiser vos achats lors des soldes.
 
 ### #1. Mise au point de la penderie.
 
-Faire mise au point sur la penderie avant. Reacquerir ses basiques. Ou ses pièces intermédiaires comme perfecto noir ou Chelsea boots.
+Faire une mise au point sur la penderie est le grand point de départ. Le but principal ici va plutôt s'orienter sur la réacquisition des basiques. Ou des pièces "intermédiaires" comme un perfecto noir ou encore des Chelsea boots (j'ai pris ces exemples car ce sont des choses qui manquent dans mon dressing).
+Les questions à se poser sont :
 Qu'est ce qui me manque ? De quoi ai-je besoin ? Et ensuite se laisser une ouverture d'esprit en fonction des circonstances et surtout de son budget.
 
 ### #2. Établir un budget.
