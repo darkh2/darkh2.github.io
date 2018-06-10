@@ -8,7 +8,6 @@ feature_image: soldes.jpg
 ---
 ## Préparation des soldes
 
-
 Le Crevard Stylé face aux soldes.
 
 Quand on pense soldes, on pense souvent bonnes affaires. A vrai dire, ce n'est pas toujours le cas. On sait très bien que c'est juste un prétexte pour que vous achetiez et achetiez encore. Néanmoins en ayant certains réflexes on peut profiter de quelques bonnes opportunités. Encore faut il être bien préparé et être la au bon endroit au bon moment.
