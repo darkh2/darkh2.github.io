@@ -15,7 +15,8 @@ Voici les cinq impératifs que vous devez savoir pour optimiser vos achats lors 
 
 Faire une mise au point sur la penderie est le grand point de départ. Le but principal ici va plutôt s'orienter sur la réacquisition des basiques. Ou des pièces "intermédiaires" comme un perfecto noir ou encore des Chelsea boots (j'ai pris ces exemples car c'est ce qu'il me manque dans mon dressing).
 Les questions à se poser sont :
-Qu'est ce qui me manque pour compléter un certain type de tenue ? De quoi ai-je besoin ? Et ensuite se laisser une ouverture d'esprit en fonction des circonstances et surtout de son budget. J'espère qu'au passage vous connaissez votre liste de basiques à posséder.
+Qu'est ce qui me manque pour compléter un certain type de tenue ? De quoi ai-je besoin ?  
+Et ensuite se laisser une ouverture d'esprit en fonction des circonstances, et surtout de son budget. J'espère qu'au passage, vous connaissez votre liste de basiques à posséder.
 
 ### #2. Établir un budget.
 
@@ -25,8 +26,7 @@ Bien entendu, le budget se décidera en fonction de ce dont vous avez besoin. Il
 ### #3. Repérage 
 
 Profitez quelques jours avant la venue des soldes, de faire du repérage pour anticiper ce qui sera en baisse. Certains pensent que les vendeurs savent quels articles seront en baisse ou non. Donc, rien à perdre de leur poser la question.
-C'est sur que les nouvelles collections ne seront pas en baisse.
-Faîtes attention de ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
+Les nouvelles collections ne seront pas en baisse. Faîtes attention de ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
 
 ### #4. Première bataille : 1ère démarque et bazar
 
