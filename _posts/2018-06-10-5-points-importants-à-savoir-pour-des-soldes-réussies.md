@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2018-06-10T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: soldes.jpg
@@ -41,7 +41,7 @@ Parfois, à la 1ère démarque, les prix restent encore chers. Savoir s'il faut 
 
 Si vous avez décidé de jouer la carte patience, alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'au premiers jours de soldes. Sinon sachez que rien n'est perdu. Il reste internet et c'est toujours de l'argent d'économisé. Et surtout s'il s'agit de basiques, cela se renouvelle continuellement.
 
-### BONUS Dernières astuces
+### BONUS Dernière astuce
 
 Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais. Il n'y a donc pas de boutique dont vous devez vous priver pour ne pas tenter de trouver la bonne affaire.
 Exemple : je ne pensais pas que j'allais trouver une bonne veste à C&A et pourtant regardez le résultat : [Keep It 100](http://www.crevardstyle.com/Keep-It-100).
