@@ -38,7 +38,7 @@ Il faut impérativement connaître votre taille. Sauf si vous avez le temps de f
 
 Parfois a la 1ere démarque les prix restent encore chers. Savoir s'il faut prendre le risque d'attendre les démarques suivantes ou saisir l'opportunité. Bien regarder si c'est le type de pièce qui possède un succès plutôt qu'un autre. Loterie. Cela va s'appliquer également aux pièces fortes. En général les pièces fortes partent plus vite que les basiques.
 
-### #5. Les batailles suivantes et fin de la guerre.
+### #5. Les batailles suivantes.
 
 Si vous avez décidé de jouer la carte patience alors il se peut que vous puissiez vous voir offrir de meilleures offres qu'au premiers jours de soldes. Sinon sachez que rien n'est perdu. Il reste internet et c'est toujours de l'argent d'économisé.
 
