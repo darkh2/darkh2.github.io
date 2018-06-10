@@ -43,7 +43,7 @@ Si vous avez décidé de jouer la carte patience, alors il se peut que vous puis
 
 ### BONUS Dernières astuces
 
-Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais.
+Restez aussi ouverts que d'habitude. Vous pouvez aussi bien trouver votre bonheur dans un magasin de luxe (Exception) que dans un bazar tout à 2 euros. Sait on jamais. Il n'y a donc pas de boutique dont vous devez vous priver pour ne pas tenter de trouver la bonne affaire.
 Exemple : je ne pensais pas que j'allais trouver une bonne veste à C&A et pourtant regardez le résultat : [Keep It 100](http://www.crevardstyle.com/Keep-It-100).
 
 (Article en cours de finition...)
