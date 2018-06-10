@@ -19,12 +19,12 @@ Qu'est ce qui me manque ? De quoi ai-je besoin ? Et ensuite se laisser une ouver
 
 ### #2. Établir un budget.
 
-En cette période estivale (c'est vrai qu'on a eu un temps deguelasse ces derniers jours) si vous avez prévu de dépenser en voyages par exemple fixez vos limites et établissez une priorité. Vous avez sans doutes des dépenses plus importantes a faire.
-Bien sûr le budget se décidera en fonction de ce dont vous avez besoin forcément. Le budget ne sera pas le même si il vous manque une ou deux pièce plutôt que la plupart des basiques. Cela va de soit.
+En cette période estivale (c'est vrai qu'on a eu un temps deguelasse ces derniers jours), si vous avez prévu de dépenser en voyages par exemple, fixez vos limites et établissez une priorité. Vous avez sans doutes des dépenses plus importantes à faire.
+Bien entendu, le budget se décidera en fonction de ce dont vous avez besoin forcément. Le budget ne sera pas le même s'il vous manque une ou deux pièce(s), plutôt que la plupart des basiques. Cela va de soit.
 
 ### #3. Repérage 
 
-Repérage pour anticiper ce qui sera en baisse. 
+Profitez quelques jours avant la venue des soldes de faire du repérage pour anticiper ce qui sera en baisse. Certains pensent que les vendeurs s'ils savent quels articles seront en baisse ou non. Donc, rien à perdre de leur poser la question.
 C'est sur que les nouvelles collections ne seront pas en baisse.
 Faire attention à ne pas tomber dans le piège de ces articles en période de soldes vu que ce n'est pas l'objectif.
 
