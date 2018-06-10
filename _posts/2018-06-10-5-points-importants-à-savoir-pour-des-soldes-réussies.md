@@ -13,7 +13,7 @@ Voici les cinq impératifs que vous devez savoir pour optimiser vos achats lors 
 
 ### #1. Mise au point de la penderie.
 
-Faire une mise au point sur la penderie est le grand point de départ. Le but principal ici va plutôt s'orienter sur la réacquisition des basiques. Ou des pièces "intermédiaires" comme un perfecto noir ou encore des Chelsea boots (j'ai pris ces exemples car ce sont des choses qui manquent dans mon dressing).
+Faire une mise au point sur la penderie est le grand point de départ. Le but principal ici va plutôt s'orienter sur la réacquisition des basiques. Ou des pièces "intermédiaires" comme un perfecto noir ou encore des Chelsea boots (j'ai pris ces exemples car c'est ce qu'il me manque dans mon dressing).
 Les questions à se poser sont :
 Qu'est ce qui me manque ? De quoi ai-je besoin ? Et ensuite se laisser une ouverture d'esprit en fonction des circonstances et surtout de son budget. J'espère qu'au passage vous connaissez votre liste de basiques à posséder.
 
