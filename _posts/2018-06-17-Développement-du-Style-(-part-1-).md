@@ -8,17 +8,14 @@ feature_image: pointzero.jpg
 ---
 ## Développement du Style (part 1) : Le point Zéro
 
-La quête du développement du style ... a moindre coût évidemment.
+La quête du développement du style ... à moindre coût évidemment.
 
-Cette serie darticles servira à D'écrire les étapes d'évolution pour faire en sorte d'évoluer dans son style.
-
-Parler de la quête en general. De devoir chiner. De ne pas avoir peur d'essayer quelque chose de nouveau afin de s'ouvrir.
-
+Cette série d'articles servira à décrire les étapes d'évolution afin d'évoluer dans son style.
 
 
 Cela sera sans doute le premier article d'une longue série traitant du développement du style, sur lequel je me dois de vous apporter certaines informations que j'ai assimilé dans le développement de mon propre style. Et dont je continue d'en apprendre tous les jours. J'ai encore beaucoup de progrès à faire (Ne jamais se reposer sur ses acquis !).  
 Rappelez-vous que je ne suis ni styliste, ni coach, ou tout autre type de métier tournant autour, si vous ne le saviez pas. Je me détermine plutôt comme une sorte de guide, d'intermédiaire. Un homme qui possède certaines informations, et qui souhaite en faire part à travers ce qu'il aime. A savoir, le développement personnel et en l'occurrence, le développement du style (à moindre coût s'il vous plaît !). Et d'une façon particulière. Transmettre tout ça à la Hyke Touch.  
-Une des priorités c'est le plaisir. Même si j'entends bien qu'à travers le développement de son style on attend une certaine finalité comme se sentir bien dans de belles tenues. L'acheminement qui mène à tout ça doit représenter un voyage dont on appréciera chaque minute.
+Une des priorités est le plaisir. Même si j'entends bien qu'à travers le développement de son style, on attend une certaine finalité comme se sentir bien dans de belles tenues. L'acheminement qui mène à tout ça doit représenter un voyage dont on appréciera chaque minute.
 
 Rentrons dans le vif du sujet. Le point de départ est de se munir des fondamentaux. Les basiques. Refaire sa garde robe peut se montrer difficile d'un premier abord. Mais c'est normal car on imagine déjà tout un tas de nouveaux vêtements alors que dans la réalité on va acquérir les basiques au fur et à mesure.
 Ne pensez pas au résultat final. Vous devez vous ouvrir et ne pas vous fermez a un style final donné surtout que ce que vous allez imaginer sera la plupart du temps quelqu'un qui possède déjà ce style. On développe son propre style ps celui des autres. On a tout à fait le droit de s'inspirer mais le but ici est déjà d'avoir de beaux vêtements simples adaptés à votre taille. Comme je ne suis pas styliste je ne vais pas vous dire oui si vous êtes un peu grassouillet ne portez pas de moulant blablabla vous faites ce que vous voulez a ce niveau là c'est uniquement pour vous même c'est vous qui prenez ces décisions vois êtes grands.
