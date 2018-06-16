@@ -32,17 +32,5 @@ Penser à donner un exemple essayage new
 Dans le prochain article, je ferai un point sur les fondamentaux de la garde robe masculine qui que vous soyez et surtout où vous les procurez a bas prix.
 Ne pas oublier de dire à la fin de cet article sur les basiques que l'on peut trouver également de bons basiques partout et qu'il ne faut pas oublier de les renouveler si on est amené à souvent les porter ce qui est logique d'ailleurs.
 
-Plan 
 
-1. Le point zéro 
-2. Réapprendre à s'habiller. 
-3. Refaire sa garde robe de basiques.
-4. Avoir quelques pièces fortes
-5. Tenter de porter des choses inhabituelles juste pour voir ou tenter de déboucher sur quelque chose de nouveau pour s'ouvrir l'esprit dans le développement de son style.
-6. Réflexes a avoir sur les prix. Se fixer un budget.
-7. Essayer de s'habiller en fonction des circonstances. Pas de costard pour soirée tranquille et ne pas venir en basket pour un entretien par exemple.
-8. Remise en question perpétuelle et volonté d'amélioration. S'intéresser à ce qui tourne autour et se mettre a la page sur de nouvelles informations. 
-9. La brèche 
-10. Préparer les soldes. Acheter ses basiques a cette période est le plus approprié.  
-11. Le destin de la sapé : une sorte de spiritualité dans le développement du style
 (Article en préparation)
