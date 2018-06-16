@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-06-17T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: pointzero.jpg
@@ -13,7 +13,7 @@ La quête du développement du style ... à moindre coût évidemment.
 Cette série d'articles servira à décrire les étapes d'évolution afin d'évoluer dans son style.
 
 
-Cela sera sans doute le premier article d'une longue série traitant du développement du style, sur lequel je me dois de vous apporter certaines informations que j'ai assimilé dans le développement de mon propre style. Et dont je continue d'en apprendre tous les jours. J'ai encore beaucoup de progrès à faire. Ne jamais se reposer sur ses acquis ! (voir [Les 7 Principes du Crevard Stylé](http://www.crevardstyle.com/Les-7-Principes-Fondamentaux-Du-Crevard-Styl%C3%A9)
+Cela sera sans doute le premier article d'une longue série traitant du développement du style, sur lequel je me dois de vous apporter certaines informations que j'ai assimilé dans le développement de mon propre style. Et dont je continue d'en apprendre tous les jours. J'ai encore beaucoup de progrès à faire. Ne jamais se reposer sur ses acquis ! (voir [Les 7 Principes du Crevard Stylé](http://www.crevardstyle.com/Les-7-Principes-Fondamentaux-Du-Crevard-Styl%C3%A9)  
 Rappelez-vous que je ne suis ni styliste, ni coach, ou tout autre type de métier tournant autour, si vous ne le saviez pas. Je me détermine plutôt comme une sorte de guide, d'intermédiaire. Un homme qui possède certaines informations, et qui souhaite en faire part à travers ce qu'il aime. A savoir, le développement personnel et en l'occurrence, le développement du style (à moindre coût s'il vous plaît !). Et d'une façon particulière. Transmettre tout ça à la Hyke Touch.  
 Une des priorités est le plaisir. Même si j'entends bien qu'à travers le développement de son style, on attend une certaine finalité comme se sentir bien dans de belles tenues. L'acheminement qui mène à tout ça doit représenter un voyage dont on appréciera chaque minute.
 
