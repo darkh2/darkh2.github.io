@@ -21,14 +21,13 @@ Tout cela va partir d'un changement plus ou moins radical dans sa vie. Ici ce se
 ### Retour à la case départ
 
 Juste après avoir pris conscience de cette volonté de progrès à travers son style, le but va être de se munir des fondamentaux. Les basiques. Refaire sa garde robe peut se montrer difficile d'un premier abord. Mais c'est normal, car on imagine déjà tout un tas de nouveaux vêtements alors que dans la réalité, on va acquérir les basiques au fur et à mesure.
-Ne pensez pas au résultat final. Vous devez vous ouvrir et ne pas vous fermez à un style final donné, surtout que ce que vous allez imaginer sera la plupart du temps, quelqu'un qui possède déjà ce style. On développe son propre style, pas celui d'un autre. On a tout à fait le droit de s'inspirer, mais le but ici est déjà d'avoir de beaux vêtements simples adaptés à votre taille. Comme je ne suis pas styliste, je ne vais pas vous dire "si vous êtes un peu grassouillet ne portez pas de moulant". Vous faites ce que vous voulez à ce niveau là, c'est uniquement pour vous-même et vous prenez vos propres décisions.
+Ne pensez pas au résultat final. Vous devez vous ouvrir et ne pas vous fermez à un style final donné, surtout que ce que vous allez imaginer sera la plupart du temps, quelqu'un qui possède déjà ce style. On développe son propre style, pas celui d'un autre. On a tout à fait le droit de s'inspirer, mais le but ici est déjà d'avoir de beaux vêtements simples adaptés à votre taille. Comme je ne suis pas styliste, je ne vais pas vous dire "si vous êtes un peu grassouillet ne portez pas de moulant". Vous faites ce que vous voulez à ce niveau là, c'est uniquement pour vous-même et vous prenez vos propres décisions. Mais je vous laisse le soin de faire quand même attention à ce que vous dégagerez à travers votre style.
 
 ### It's all about you !
 
-Ce point zéro doit vous permettre de faire une grande remise en question sur vous-même. Qui vous êtes ? Vers où vous allez etc... 
-Le style que vous allez développez va forcément partir de votre univers. Votre identité vos goûts vos occupations. Et en fonction de ça vous allez vous orientez vers un certain style. Le votre évidement. 
-
-Cela tombe bien que ce soit bientôt la période de soldes si vous faîtes a l'heure qu'il est une grosse remise en question sur votre façon de vous mettre en valeur.
+Ce point zéro doit vous permettre de faire une grande remise en question sur vous-même. Qui êtes-vous ? Vers où vous allez etc... 
+Le style que vous allez développer va forcément partir de votre univers. Votre identité, vos goûts, vos occupations. Et en fonction de tout ça, vous allez vous orientez vers un certain style. Le votre évidement. 
+Cela tombe bien que ce soit bientôt la période de soldes, si vous faîtes à l'heure qu'il est, une grosse remise en question sur votre façon de vous mettre en valeur.
 
 Penser à donner un exemple essayage new
 
