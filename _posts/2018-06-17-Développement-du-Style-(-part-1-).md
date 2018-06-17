@@ -28,7 +28,7 @@ Ce point zéro doit vous permettre de faire une grande remise en question sur vo
 Le style que vous allez développer va forcément partir de votre univers. Votre identité, vos goûts, vos occupations. Et en fonction de tout ça, vous allez vous orientez vers un certain style. Le votre évidement. 
 Cela tombe bien que ce soit bientôt la période de soldes, si vous faîtes à l'heure qu'il est, une grosse remise en question sur votre façon de vous mettre en valeur. Ne pas oublier les circonstances, et le contexte dans lequel vous allez vous habiller. Mais nous le verrons dans une prochaine partie de cette lignée d'articles, je vous le promets.
 
-Prenons un exemple : J'aime le basket (mes goûts). J'aime être à l'aise dans mes déplacements (mes occupations). Etre habillé décontracté et en même temps, je suis quelqu'un qui aime se démarquer (qui suis-je). Quand on combine le tout, voilà quel rendu on peut avoir : 
+Prenons un exemple : J'aime le basket (mes goûts). J'aime être à l'aise dans mes déplacements (mes occupations). Etre habillé décontracté, et en même temps, je suis quelqu'un qui aime se démarquer (qui suis-je). Quand on combine le tout, voilà quel rendu on peut avoir : 
 ![stylejoggingfit]({{site.url}}/{{site.baseurl}}img/stylejoggingfit.jpg)  
 
 Détails sur la tenue : Ici -> [Stylé en Jogging](http://http://www.crevardstyle.com/Stylé-en-Jogging).  
