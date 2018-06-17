@@ -8,9 +8,7 @@ feature_image: pointzero.jpg
 ---
 ## Développement du Style (part 1) : Le point Zéro
 
-La quête du développement du style ... à moindre coût évidemment.
-
-Cette série d'articles servira à décrire les étapes d'évolution afin d'évoluer dans son style.
+*Cette série d'articles servira à décrire les étapes d'évolution du style.*
 
 
 Cela sera sans doute le premier article d'une longue série traitant du développement du style, sur lequel je me dois de vous apporter certaines informations que j'ai assimilé dans le développement de mon propre style. Et dont je continue d'en apprendre tous les jours. J'ai encore beaucoup de progrès à faire. Ne jamais se reposer sur ses acquis ! Voir [les 7 Principes du Crevard Stylé](http://www.crevardstyle.com/Les-7-Principes-Fondamentaux-Du-Crevard-Stylé).  
