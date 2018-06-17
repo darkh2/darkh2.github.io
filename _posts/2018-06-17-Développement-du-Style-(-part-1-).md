@@ -33,7 +33,7 @@ Prenons un exemple : J'aime le basket (mes goûts). J'aime être à l'aise dans 
 
 Détails sur la tenue : Ici -> [Stylé en Jogging](http://http://www.crevardstyle.com/Stylé-en-Jogging).  
 
-Encore un autre exemple : J'aime découvrir de nouvelles choses, je suis curieux et j'ai un goût profond pour la prise de risque (même en dehors du style). Je suis d'origine Africaine. J'aime la simplicité tout en restant original. Cela se ressent sur cette tenue.
+Encore un autre exemple : Toujours dans une dynamique décontractée. Je déteste la monotonie. J'aime découvrir de nouvelles choses, je suis curieux et j'ai un goût profond pour la prise de risque (même en dehors du style). Je suis d'origine Africaine. J'aime la simplicité tout en restant original. Cela se ressent sur cette tenue.
 
 ![luckyfitglobal]({{site.url}}/{{site.baseurl}}img/luckyfitglobal.jpg)
 
