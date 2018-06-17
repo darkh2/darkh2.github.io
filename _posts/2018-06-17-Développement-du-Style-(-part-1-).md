@@ -20,7 +20,7 @@ Tout cela va partir d'un changement plus ou moins radical dans sa vie. Ici ce se
 
 Juste après avoir pris conscience de cette volonté de progrès à travers son style, le but va être de se munir des fondamentaux. Les basiques. Refaire sa garde robe peut se montrer difficile d'un premier abord. Mais c'est normal, car on imagine déjà tout un tas de nouveaux vêtements alors que dans la réalité, on va acquérir les basiques au fur et à mesure.
 Ne pensez pas au résultat final. Vous devez vous ouvrir et ne pas vous fermez à un style final donné, surtout que ce que vous allez imaginer sera la plupart du temps, quelqu'un qui possède déjà ce style. On développe son propre style, pas celui d'un autre.  
-On a tout à fait le droit de s'inspirer, mais on se focalise sur l'acquisition de beaux vêtements simples, adaptés à votre taille. Comme je ne suis pas styliste, je ne vais pas vous dire "si vous êtes un peu grassouillet ne portez pas de moulant" etc... Vous faites ce que vous voulez, c'est uniquement pour vous-même et vous prenez vos propres décisions. Mais je vous laisse le soin de faire quand même attention à ce que vous dégagerez à travers votre style.
+On a tout à fait le droit de s'inspirer, mais on se focalise sur l'acquisition de beaux vêtements simples, adaptés à votre taille. Comme je ne suis pas styliste, je ne vais pas vous dire "si vous êtes un peu grassouillet ne portez pas de moulant" etc... Vous faites ce que vous voulez, c'est uniquement pour vous-même, et vous prenez vos propres décisions. Mais je vous laisse le soin de faire quand même attention à ce que vous dégagerez à travers votre style.
 
 ### It's all about you !
 
