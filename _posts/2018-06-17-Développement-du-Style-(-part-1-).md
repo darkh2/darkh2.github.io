@@ -33,8 +33,5 @@ Prenons un exemple : J'aime le basket (mes goûts). J'aime être à l'aise dans 
 ![stylejoggingfit]({{site.url}}/{{site.baseurl}}img/stylejoggingfit.jpg)  
 ![montageredjacket]({{site.url}}/{{site.baseurl}}img/montageredjacket.jpg)
 
-Dans le prochain article, je ferai un point sur les fondamentaux de la garde robe masculine qui que vous soyez et surtout où vous les procurez a bas prix.
-Ne pas oublier de dire à la fin de cet article sur les basiques que l'on peut trouver également de bons basiques partout et qu'il ne faut pas oublier de les renouveler si on est amené à souvent les porter ce qui est logique d'ailleurs.
-
-
-(Article en préparation)
+Dans le prochain article, je ferai un point sur les fondamentaux de la garde robe masculine.  
+A suivre ...
