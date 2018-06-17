@@ -31,6 +31,7 @@ Cela tombe bien que ce soit bientôt la période de soldes, si vous faîtes à l
 
 Prenons un exemple : J'aime le basket (mes goûts). J'aime être à l'aise dans mes déplacements (mes occupations). Etre habillé décontracté et en même temps, je suis quelqu'un qui aime se démarquer (qui suis-je). Quand on combine le tout, voilà quel rendu on peut avoir : 
 
+
 Dans le prochain article, je ferai un point sur les fondamentaux de la garde robe masculine qui que vous soyez et surtout où vous les procurez a bas prix.
 Ne pas oublier de dire à la fin de cet article sur les basiques que l'on peut trouver également de bons basiques partout et qu'il ne faut pas oublier de les renouveler si on est amené à souvent les porter ce qui est logique d'ailleurs.
 
