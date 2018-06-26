@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-06-27T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: basiques3.jpg
@@ -9,7 +9,7 @@ feature_image: basiques3.jpg
 ## Développement du Style (part 2) : Réacquisition des basiques
 
 *Cette série d'articles servira à décrire les étapes d'évolution du style.*
-La partie 1 -> [ICI](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-(-part-1-))
+La partie 1 -> [ICI](http://www.crevardstyle.com/Développement-du-Style-(-part-1-))
 
 Reacquisition des basiques
 
