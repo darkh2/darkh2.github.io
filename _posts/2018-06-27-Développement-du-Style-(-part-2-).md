@@ -8,6 +8,9 @@ feature_image: basiques3.jpg
 ---
 ## Développement du Style (part 2) : Réacquisition des basiques
 
+*Cette série d'articles servira à décrire les étapes d'évolution du style.*
+La partie 1 -> [ICI](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-(-part-1-))
+
 Reacquisition des basiques
 
 Une fois que vous avez bien fait une grande remise en question sur vous même et décider plus ou moins vers quoi aller s'orienter votre style votre premier objectif sera de trouver une bonne base de vêtements que vous pourrez assembler sans trop pre.dre de risques au depart. C'est ensuite que vous pourrez peaufiner votre tenue et ainsi faire vivre votre style.
