@@ -31,6 +31,7 @@ Une autre chose importante qui n'engage que moi : favorisez les chemises à manc
 Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs, même tarif que pour la chemise. Le premier en blanc. Ensuite, vous pourrez opter pour des couleurs comme le bleu ciel et marine, gris, marron, et après des couleurs un peu plus vives, mais ce ne sera plus des supers basiques. Mais des pièces fortes. Le plus important serait de se concentrer sur les supers basiques/supers fondamentaux. Cependant, rien ne m'empêche de vous guider pour les étapes suivantes.
 Posséder un t-shirt de couleur noir ne sera pas de refus non plus. Ce sera mieux qu'une chemise noire, qui est plus difficile à assembler avec d'autres pièces.
 
+* ***Les pulls.***
 Pour ce qui est des pulls. En avoir au moins un avec un col V pour l'assembler avec une chemise derrière ou un polo et faire des combinaisons lors des saisons un peu plus fraîches. Un petit gilet et/ou un cardigan ne fera pas de mal non plus. Prenez des couleurs sobres. Le noir peut faire l'affaire ainsi que des couleurs comme le bleu beige gris ou marron/camel.
 Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson ou même un blazer.
 
