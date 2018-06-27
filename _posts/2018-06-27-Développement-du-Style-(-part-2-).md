@@ -23,10 +23,10 @@ Quand on reprend tout à zéro, la prise de risque est déconseillée. Va falloi
 
 Voici la liste des supers fondamentaux :  
 
-* Chemise blanche ajusté à sa taille.  
+* *Chemise blanche ajusté à sa taille.*  
 Une bonne coupe, un bon col. Dîtes vous bien que cette pièce vous la combinerez avec beaucoup d'autres éléments. C'est la base des bases. Pour l'acquisition des chemises suivantes, faites attention par rapport aux couleurs. Personnellement je n'ai aucune chemise noire. Je ne sais pas pourquoi, mais ça ne me plaît pas. Après, sait-on jamais si j'en trouve vraiment une qui vaut le coup. Ce jour n'est pas encore arrivé. Et pour évoluer sur la diversité des vos chemises, vous pourrez vous tournez vers des motifs, rayures, carreaux etc ...
 
-* Le t-shirt blanc.  
+* *Le t-shirt blanc.*  
 Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs de ces deux derniers basiques il faut impérativement prendre le 1er en blanc. Ensuite vous pourrez opter pour des couleurs comme bleu ciel gris marron et après des couleurs un peu plus vives mais ce ne sera plus des supers basiques. Mais des pièces fortes.
 Avoir un t shirt de couleur noir sera pas de refus non plus. Ce sera mieux qu'une chemise noire qui est plus difficile à assembler avec d'autres pièces.
 
