@@ -23,7 +23,7 @@ Quand on reprend tout à zéro, la prise de risque est déconseillée. Va falloi
 
 Voici la liste des supers fondamentaux :  
 
-* ***Chemise blanche ajusté à sa taille.***  
+* ***La chemise blanche.***  
 Une bonne coupe, un bon col. Dîtes vous bien que cette pièce vous la combinerez avec beaucoup d'autres éléments. C'est la base des bases. Pour l'acquisition des chemises suivantes, faites attention par rapport aux couleurs. Personnellement je n'ai aucune chemise noire. Je ne sais pas pourquoi, mais ça ne me plaît pas. Après, sait-on jamais si j'en trouve vraiment une qui vaut le coup. Ce jour n'est pas encore arrivé. Et pour évoluer sur la diversité des vos chemises, vous pourrez vous tournez vers des motifs, rayures, carreaux etc ...
 
 * ***Le t-shirt blanc.***  
