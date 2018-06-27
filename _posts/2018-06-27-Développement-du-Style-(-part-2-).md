@@ -32,7 +32,7 @@ Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le 
 Posséder un t-shirt de couleur noir ne sera pas de refus non plus. Ce sera mieux qu'une chemise noire, qui est plus difficile à assembler avec d'autres pièces.
 
 Pour ce qui est des pulls. En avoir au moins un avec un col V pour l'assembler avec une chemise derrière ou un polo et faire des combinaisons lors des saisons un peu plus fraîches. Un petit gilet et/ou un cardigan ne fera pas de mal non plus. Prenez des couleurs sobres. Le noir peut faire l'affaire ainsi que des couleurs comme le bleu beige gris ou marron/camel.
-Le sweat à capuche représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport. Pour l'assembler avec un jean. Ou encore mettre par dessus un blouson ou même un blazer.
+Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson ou même un blazer.
 
 Les bas : jeans chino pantalon habillés.
 Le premier est le jean simple bleu brut bien à votre taille. 
