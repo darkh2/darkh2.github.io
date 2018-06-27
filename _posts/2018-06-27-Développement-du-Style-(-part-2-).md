@@ -14,8 +14,14 @@ Je vous invite à lire la première partie concernant le point Zéro (la partie 
   
 Une fois que vous avez fait cette grande remise en question sur vous-même et décidé plus ou moins vers quoi aller s'orienter votre style, votre premier objectif sera de trouver une bonne base de vêtements que vous pourrez assembler sans trop prendre de risque. C'est ensuite que vous pourrez alimenter votre dressing, et ainsi faire vivre votre style.
 
-Avant tout je vous laisse le soin de savoir comment vous allez gérer la coupe de vos vêtements. Une fois n'est pas coutume mais je tiens à vous répéter que je ne suis pas styliste ni conseiller en image. Vous trouverez votre bonheur sur Google si vous avez des questions à ce propos.
-Quand on reprend tout à zéro la prise de risque est déconseillé. Va falloir la jouer simple. Que des basiques. Voici la liste des supers fondamentaux.
+### A noter avant de commencer
+
+Avant tout, je vous laisse le soin de savoir comment vous allez gérer la coupe de vos vêtements. Une fois n'est pas coutume, mais je tiens à vous répéter que je ne suis pas styliste, ni conseiller en image. Vous trouverez votre bonheur sur Google si vous avez des questions à ce propos.  
+Quand on reprend tout à zéro, la prise de risque est déconseillée. Va falloir la jouer simple. Que des basiques.
+
+### Les supers fondamentaux
+
+Voici la liste des supers fondamentaux.
 Lister : chemise blanche ajusté à sa taille.
 Faites attention par rapport aux couleurs. Personnellement je n'ai aucune chemise noire. Je ne sais pas pourquoi mais ça ne me plait pas. Après sait on jamais si j'en trouve vraiment une qui vaut le coup. 
 Le t shirt blanc ! Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs de ces deux derniers basiques il faut impérativement prendre le 1er en blanc. Ensuite vous pourrez opter pour des couleurs comme bleu ciel gris marron et après des couleurs un peu plus vives mais ce ne sera plus des supers basiques. Mais des pièces fortes.
