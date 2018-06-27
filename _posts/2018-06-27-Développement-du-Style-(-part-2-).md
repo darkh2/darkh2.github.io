@@ -32,10 +32,10 @@ Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le 
 Posséder un t-shirt de couleur noir ne sera pas de refus non plus. Ce sera mieux qu'une chemise noire, qui est plus difficile à assembler avec d'autres pièces.
 
 * ***Les pulls.***
-Pour ce qui est des pulls. En avoir au moins un avec un col V pour l'assembler avec une chemise derrière ou un polo et faire des combinaisons lors des saisons un peu plus fraîches. Un petit gilet et/ou un cardigan ne fera pas de mal non plus. Prenez des couleurs sobres. Le noir peut faire l'affaire ainsi que des couleurs comme le bleu beige gris ou marron/camel.
-Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson ou même un blazer.
+Faites l'acquisition d'au moins un pull avec un col V pour l'assembler avec une chemise derrière ou un polo, et ainsi faire des combinaisons lors des saisons un peu plus fraîches. Un petit gilet et/ou un cardigan ne fera pas de mal non plus. Prenez des couleurs sobres dans un premier temps. Le noir peut faire l'affaire ainsi que des couleurs comme le bleu beige gris ou marron/camel.  
+Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson, ou encore un blazer.
 
-Les bas : jeans chino pantalon habillés.
+* ***Les bas : jeans, chinos, pantalons habillés.***
 Le premier est le jean simple bleu brut bien à votre taille. 
 On dit souvent qu'il faut mettre le prix pour un bon jean. C'est sur que c'est bien d'en avoir au moins un ou deux. Mais mes jeans je investis pas tant que ça mais sur le long terme ils ne durent pas. Comme j'aime bien renouveler ma garde robe d'un côté ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article côtés sombres.
 
