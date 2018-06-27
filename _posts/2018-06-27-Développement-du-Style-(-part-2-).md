@@ -12,7 +12,7 @@ feature_image: basiques3.jpg
 Je vous invite à lire la première partie concernant le point Zéro (la partie 1).  
   
   
-Une fois que vous avez bien fait une grande remise en question sur vous même et décider plus ou moins vers quoi aller s'orienter votre style votre premier objectif sera de trouver une bonne base de vêtements que vous pourrez assembler sans trop pre.dre de risques au depart. C'est ensuite que vous pourrez peaufiner votre tenue et ainsi faire vivre votre style.
+Une fois que vous avez fait cette grande remise en question sur vous-même et décidé plus ou moins vers quoi aller s'orienter votre style, votre premier objectif sera de trouver une bonne base de vêtements que vous pourrez assembler sans trop prendre de risque. C'est ensuite que vous pourrez alimenter votre dressing, et ainsi faire vivre votre style.
 
 Avant tout je vous laisse le soin de savoir comment vous allez gérer la coupe de vos vêtements. Une fois n'est pas coutume mais je tiens à vous répéter que je ne suis pas styliste ni conseiller en image. Vous trouverez votre bonheur sur Google si vous avez des questions à ce propos.
 Quand on reprend tout à zéro la prise de risque est déconseillé. Va falloir la jouer simple. Que des basiques. Voici la liste des supers fondamentaux.
