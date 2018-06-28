@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-06-28T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: basiques3.jpg
@@ -37,7 +37,7 @@ Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est d
 
 * ***Les bas : jeans, chinos, pantalons habillés.***
 Le premier est le jean simple bleu brut bien à votre taille. 
-On dit souvent qu'il faut mettre le prix pour un bon jean. C'est sur que c'est bien d'en avoir au moins un ou deux. Mais mes jeans je investis pas tant que ça mais sur le long terme ils ne durent pas. Comme j'aime bien renouveler ma garde robe d'un côté ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article côtés sombres.
+On dit souvent qu'il faut mettre le prix pour un bon jean. Le mieux est d'en avoir au moins un ou deux. Concernant mes jeans, je n'investis pas tant que ça, mais sur le long terme ils ne durent pas tant que ça. Comme j'aime bien renouveler ma garde robe d'un côté, ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article sur les [côtés sombres](http://www.crevardstyle.com/Les-c%C3%B4t%C3%A9s-Sombres-de-Crevard-Styl%C3%A9).
 
 * ***Vestes, manteaux, blousons ...***
 
