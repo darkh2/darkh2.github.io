@@ -43,7 +43,10 @@ Appliquez ces conseils également pour les autres types de pantalons habillés.
 
 * ***Vestes, manteaux, blousons ...***
 
-
+La veste de type blazer est primordial dans toute penderie masculine. Bien ceintrée et pas trop grande. La première question que vous devez vous poser avant l'achat d'un blazer est : pourrais-je la combiner avec un maximum de vêtements que ce soit jeans, chinos, pulls, t-shirts, chemises (forcément), baskets et chaussures. Elle doit être polyvalente. C'est pour ça que l'on parle de basique. Parce qu'elle est combinable avec un tas d'éléments. Le choix de la couleur doit se faire en prénant en compte ces paramètres.  
+Un blouson pour les saisons intermédiaires. Il faudra se tourner sur le côté pratique et simple encore une fois de plus. De même pour les couleurs. Le perfecto noir peut représenter un bon basique pour commencer.  
+Pour ce qui est de l'hiver, envisagez au moins un manteau, trench, caban d'une couleur sobre. la matière va également être important pour rester bien au chaud.  
+Donc un blazer, un blouson et un manteau.
 
 * ***Chaussures, baskets ...***
 
