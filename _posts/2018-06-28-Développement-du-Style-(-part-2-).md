@@ -50,6 +50,8 @@ Donc un blazer, un blouson et un manteau.
 
 * ***Chaussures, baskets ...***
 
+
+
 ### Autres articles
 
 Je ne rentrerai pas dans les détails d'acquisitions des accessoires comme les écharpes, les ceintures, noeuds papillons etc ... Mais ces fondamentaux précédemment cités seront déjà une base lourdement solide pour une belle mise à jour de votre penderie.
