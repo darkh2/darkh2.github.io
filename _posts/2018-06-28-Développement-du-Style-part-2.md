@@ -62,5 +62,5 @@ Les basiques possèdent cet avantage de pouvoir les retrouver dans la plupart de
 Les boutiques les plus favorables sont Primark, Zara, Brice, Célio, Pull & Bear et la plupart des chaînes de prêt-à-porter.  
 
 
-
+Le prochain article concernera l'acquisition de quelques pièces fortes. A suivre ...
 
