@@ -36,8 +36,9 @@ Faites l'acquisition d'au moins un pull avec un col V pour l'assembler avec une 
 Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson, ou encore un blazer.
 
 * ***Les bas : jeans, chinos, pantalons habillés.***
-Le premier est le jean simple bleu brut bien à votre taille. 
-On dit souvent qu'il faut mettre le prix pour un bon jean. Le mieux est d'en avoir au moins un ou deux. Concernant mes jeans, je n'investis pas tant que ça, mais sur le long terme ils ne durent pas tant que ça. Comme j'aime bien renouveler ma garde robe d'un côté, ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article sur les [côtés sombres](http://www.crevardstyle.com/Les-c%C3%B4t%C3%A9s-Sombres-de-Crevard-Styl%C3%A9).
+Le premier est le jean simple bleu brut bien à votre taille. Pour les jeans suivants, préférez un jean noir ou gris pour rester simple.
+On dit souvent qu'il faut mettre le prix pour un bon jean. Le mieux est d'en avoir au moins un ou deux. Concernant mes jeans, je n'investis pas tant que ça, mais sur le long terme ils ne durent pas tant que ça. Comme j'aime bien renouveler ma garde robe d'un côté, ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article sur les [côtés sombres](http://www.crevardstyle.com/Les-c%C3%B4t%C3%A9s-Sombres-de-Crevard-Styl%C3%A9).  
+
 
 * ***Vestes, manteaux, blousons ...***
 
