@@ -39,5 +39,4 @@ Encore un autre exemple : Toujours dans une dynamique décontractée. Je détest
 
 Détails sur la tenue : Ici -> [Lucky Fit](http://http://www.crevardstyle.com/Lucky-Fit).
 
-Dans le prochain article, je ferai un point sur les fondamentaux de la garde robe masculine.  
-A suivre ...
+Voici la partie 2 concernant [la réacquisition des basiques](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2).
