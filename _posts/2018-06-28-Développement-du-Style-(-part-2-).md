@@ -43,6 +43,8 @@ Appliquez ces conseils également pour les autres types de pantalons habillés.
 
 * ***Vestes, manteaux, blousons ...***
 
+
+
 * ***Chaussures, baskets ...***
 
 ### Autres articles
