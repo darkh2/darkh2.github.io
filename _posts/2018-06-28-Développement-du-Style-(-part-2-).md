@@ -38,7 +38,8 @@ Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est d
 * ***Les bas : jeans, chinos, pantalons habillés.***
 Le premier est le jean simple bleu brut bien à votre taille. Pour les jeans suivants, préférez un jean noir ou gris pour rester simple.
 On dit souvent qu'il faut mettre le prix pour un bon jean. Le mieux est d'en avoir au moins un ou deux. Concernant mes jeans, je n'investis pas tant que ça, mais sur le long terme ils ne durent pas tant que ça. Comme j'aime bien renouveler ma garde robe d'un côté, ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article sur les [côtés sombres](http://www.crevardstyle.com/Les-c%C3%B4t%C3%A9s-Sombres-de-Crevard-Styl%C3%A9).  
-
+Ce qui est bien avec les chinos, c'est qu'ils renvoient une image habillée même si on les porte avec des baskets. Imaginez donc le résultat en les portant avec des chaussures. Bon rendu assuré ! De la même manière que les autres basiques, les couleurs doivent impérativement rester sobres : noir, gris, beige, bleu.  
+Appliquez ces conseils pour les autres types de pantalons habillés.
 
 * ***Vestes, manteaux, blousons ...***
 
