@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-06-27T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: basiques3.jpg
@@ -38,5 +38,15 @@ Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est d
 * ***Les bas : jeans, chinos, pantalons habillés.***
 Le premier est le jean simple bleu brut bien à votre taille. 
 On dit souvent qu'il faut mettre le prix pour un bon jean. C'est sur que c'est bien d'en avoir au moins un ou deux. Mais mes jeans je investis pas tant que ça mais sur le long terme ils ne durent pas. Comme j'aime bien renouveler ma garde robe d'un côté ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article côtés sombres.
+
+* ***Vestes, manteaux, blousons ...***
+
+* ***Chaussures, baskets ...***
+
+### Autres articles
+
+Je ne rentrerai pas dans les détails d'acquisitions des accessoires comme les écharpes, les ceintures, noeuds papillons etc ... Mais ces fondamentaux précédemment cités seront déjà une base lourdement solide pour une belle mise à jour de votre penderie.
+
+### Où se procurer ces supers basiques à bas prix ?
 
 (article en cours d'élaboration...)
