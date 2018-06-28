@@ -48,7 +48,8 @@ Pour ce qui est de l'hiver, envisagez au moins un manteau, trench, caban d'une c
 Donc un blazer, un blouson et un manteau.
 
 * ***Chaussures, baskets ...***  
-
+Pour un bon début, j'opterai pour une belle paire de chaussures marrons ou noires, et une paire de baskets blanches (pas montantes). Pourquoi ces choix ? Parce qu'on pourra les combiner facilement. C'est aussi simple que ça.
+Si vous recherchez un peu de fantaisie ensuite, on pourra se tourner vers des montantes, des boots et autres types de variétés. Ce sont les goûts et les couleurs qui feront vos choix.
 
 
 ### Autres articles
