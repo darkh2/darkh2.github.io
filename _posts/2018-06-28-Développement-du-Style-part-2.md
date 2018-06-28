@@ -59,5 +59,8 @@ Je ne rentrerai pas dans les détails d'acquisitions des accessoires comme les �
 ### Où se procurer ces supers basiques à bas prix ?
 
 Les basiques possèdent cet avantage de pouvoir les retrouver dans la plupart des magasins. La meilleure période pour réacquérir ses basiques serait pendant les soldes. Et parfois même en attendant la seconde démarque, car les gens vont se tourner en priorité sur les pièces fortes, mais les basiques sont toujours présents.
-Les boutiques les plus favorables sont Primark, Zara, Brice, Célio, Pull & Bear et la plupart des chaînes de prêt-à-porter.
-(article en cours d'élaboration...)
+Les boutiques les plus favorables sont Primark, Zara, Brice, Célio, Pull & Bear et la plupart des chaînes de prêt-à-porter.  
+
+
+
+
