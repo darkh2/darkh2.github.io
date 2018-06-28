@@ -28,7 +28,7 @@ Une bonne coupe, un bon col. Dîtes vous bien que cette pièce vous la combinere
 Une autre chose importante qui n'engage que moi : favorisez les chemises à manches longues. Je dois avoir deux ou trois chemisettes, pas plus. Je les possède car elles sont bien fittées au niveau des bras. En général, les chemises à manches courtes ne sont pas ajustées au niveau des bras. Si cela ne vous pose pas de problème, ne vous gênez pas.
 
 * ***Le t-shirt blanc.***  
-Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs, même tarif que pour la chemise. Le premier en blanc. Ensuite, vous pourrez opter pour des couleurs comme le bleu ciel et marine, gris, marron, et après des couleurs un peu plus vives, mais ce ne sera plus des supers basiques. Mais des pièces fortes. Le plus important serait de se concentrer sur les supers basiques/supers fondamentaux. Cependant, rien ne m'empêche de vous guider pour les étapes suivantes.
+Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs, même tarif que pour la chemise. Le premier en blanc. Ensuite, vous pourrez opter pour des couleurs comme le bleu ciel et marine, gris, marron, et après des couleurs un peu plus vives, mais ce ne sera plus des supers basiques. Mais des pièces fortes. Le plus important serait de se concentrer sur les supers basiques/fondamentaux. Cependant, rien ne m'empêche de vous guider pour les étapes suivantes.
 Posséder un t-shirt de couleur noir ne sera pas de refus non plus. Ce sera mieux qu'une chemise noire, qui est plus difficile à assembler avec d'autres pièces.
 
 * ***Les pulls.***
