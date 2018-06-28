@@ -31,24 +31,23 @@ Une autre chose importante qui n'engage que moi : favorisez les chemises à manc
 Favorisez le col rond au depart ce sera plus pratique. Et on pourra toujours le porter avec une chemise par dessus. Au niveau des couleurs, même tarif que pour la chemise. Le premier en blanc. Ensuite, vous pourrez opter pour des couleurs comme le bleu ciel et marine, gris, marron, et après des couleurs un peu plus vives, mais ce ne sera plus des supers basiques. Mais des pièces fortes. Le plus important serait de se concentrer sur les supers basiques/fondamentaux. Cependant, rien ne m'empêche de vous guider pour les étapes suivantes.
 Posséder un t-shirt de couleur noir ne sera pas de refus non plus. Ce sera mieux qu'une chemise noire, qui est plus difficile à assembler avec d'autres pièces.
 
-* ***Les pulls.***
+* ***Les pulls.***  
 Faites l'acquisition d'au moins un pull avec un col V pour l'assembler avec une chemise derrière ou un polo, et ainsi faire des combinaisons lors des saisons un peu plus fraîches. Un petit gilet et/ou un cardigan ne fera pas de mal non plus. Prenez des couleurs sobres dans un premier temps. Le noir peut faire l'affaire ainsi que des couleurs comme le bleu beige gris ou marron/camel.  
 Le sweat à capuche (avec zip) représente un très bon allié pour ce qui est du côté pratique. Parfait pour le sport ou pour l'assembler avec un jean. Ou encore mettre par dessus un blouson, ou encore un blazer.
 
-* ***Les bas : jeans, chinos, pantalons habillés.***
+* ***Les bas : jeans, chinos, pantalons habillés.***  
 Le premier est le jean simple bleu brut bien à votre taille. Pour les jeans suivants, préférez un jean noir ou gris pour rester simple.
 On dit souvent qu'il faut mettre le prix pour un bon jean. Le mieux est d'en avoir au moins un ou deux. Concernant mes jeans, je n'investis pas tant que ça, mais sur le long terme ils ne durent pas tant que ça. Comme j'aime bien renouveler ma garde robe d'un côté, ce n'est pas plus mal. Mais c'est le côté sombre des sapes pas chers. Voir article sur les [côtés sombres](http://www.crevardstyle.com/Les-c%C3%B4t%C3%A9s-Sombres-de-Crevard-Styl%C3%A9).  
 Ce qui est bien avec les chinos, c'est qu'ils renvoient une image habillée même si on les porte avec des baskets. Imaginez donc le résultat en les portant avec des chaussures. Bon rendu assuré ! De la même manière que les autres basiques, les couleurs doivent impérativement rester sobres : noir, gris, beige, bleu.  
 Appliquez ces conseils également pour les autres types de pantalons habillés.
 
-* ***Vestes, manteaux, blousons ...***
-
+* ***Vestes, manteaux, blousons ...***  
 La veste de type blazer est primordial dans toute penderie masculine. Bien ceintrée et pas trop grande. La première question que vous devez vous poser avant l'achat d'un blazer est : pourrais-je la combiner avec un maximum de vêtements que ce soit jeans, chinos, pulls, t-shirts, chemises (forcément), baskets et chaussures. Elle doit être polyvalente. C'est pour ça que l'on parle de basique. Parce qu'elle est combinable avec un tas d'éléments. Le choix de la couleur doit se faire en prénant en compte ces paramètres.  
 Un blouson pour les saisons intermédiaires. Il faudra se tourner sur le côté pratique et simple encore une fois de plus. De même pour les couleurs. Le perfecto noir peut représenter un bon basique pour commencer.  
 Pour ce qui est de l'hiver, envisagez au moins un manteau, trench, caban d'une couleur sobre. la matière va également être important pour rester bien au chaud.  
 Donc un blazer, un blouson et un manteau.
 
-* ***Chaussures, baskets ...***
+* ***Chaussures, baskets ...***  
 
 
 
