@@ -1,10 +1,10 @@
 ---
-published: false
+published: true
 layout: post
 date: 2018-07-08T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: testfond.png
+feature_image: hykesunset.jpg
 ---
 ## Le but Ultime de Crevard Stylé
 
