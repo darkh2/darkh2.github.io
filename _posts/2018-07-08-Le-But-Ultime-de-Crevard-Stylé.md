@@ -52,7 +52,7 @@ Donc ce que je veux c'est que les hommes s'élèvent. D'une part dans le style c
 
 Faire des hommes avec un esprit optimisé de partout sachant résoudre chaque problème et endurer toute épreuve possible!
 
-Comment puis-je prétendre vouloir toujours évoluer si je ne suis pas confronté a des épreuves ? C'est absolument ce que je veux. Les perspectives sont que dans un certain futur, je sois capable de résoudre n'importe quel problème dans la vie de tous les jours. Devenir comme un coach de vie, mais s'il vous plaît, je ne veux vraiment pas l'étiquette du coach même si je sais que je suis totalement apte à faire du coaching. La résolution de problèmes se fera dans une méthode de fonctionnement dont je suis pleinement en train d'élaborer au moment où vous lirez ces lignes. Ce sera sous la forme d'un livre/ebook. Vous saurez tout et verrez que la vie au final, est simple ! #SIXMOVESLEAD
+Comment puis-je prétendre vouloir toujours évoluer si je ne suis pas confronté à des épreuves ? C'est absolument ce que je veux. Les perspectives sont que dans un certain futur, je sois capable de résoudre n'importe quel problème dans la vie de tous les jours. Devenir comme un coach de vie, mais s'il vous plaît, je ne veux vraiment pas l'étiquette du coach même si je sais que je suis totalement apte à faire du coaching. La résolution de problèmes se fera dans une méthode de fonctionnement dont je suis pleinement en train d'élaborer au moment où vous lirez ces lignes. Ce sera sous la forme d'un livre/ebook. Vous saurez tout et verrez que la vie au final, est simple ! #SIXMOVESLEAD
 
 
 (Article en cours de rédaction ...)
