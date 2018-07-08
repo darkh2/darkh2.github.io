@@ -1,15 +1,15 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-07-08T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: hykesunset.jpg
 ---
 ## Le but Ultime de Crevard Stylé
 
-Il faut que vous sachiez impérativement pourquoi je fais tout cela. Pourquoi aujourd'hui Hyke moi même ici présent je fais tout cela ?
-Qu'est ce qui m'a motivé pour créer Crevard Stylé et quels objectifs je veux atteindre a travers ce site et l'état d'esprit qui va avec.
+Il faut que vous sachiez impérativement pourquoi aujourd'hui, Hyke, moi-même, je fais tout cela ?
+Qu'est ce qui m'a motivé pour créer Crevard Stylé, et quels objectifs je veux atteindre à travers ce site, et l'état d'esprit qui en découle.
 Vous avez besoin de connaître le but ultime de CS.
 
 ### Origine 
