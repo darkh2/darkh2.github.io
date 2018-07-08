@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2018-07-08T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: hykesunset.jpg
@@ -29,13 +29,13 @@ Grand brainstorming avec moi même... j'en suis sûr que je pourrais mettre a pr
 
 ### La Brèche
 
-Qu'est ce que j'appelle la Brèche ?  A force de travailler sur une thématique, il y a forcément des paramètres qui peuvent potentiellement nous conduire vers des sujets autour de cette thématique. C'est donc une nouvelle porte qui s'ouvre vers d'autres horizons vers un domaine plus ou moins lié au sujet de base. Ici, le sujet de base était le fait d'acheter des vêtements à un prix qui serait le plus avantageux. La Brèche se crée donc vers le développement personnel à savoir, le développement du style, le fait d'évoluer pas que dans son style mais dans la vie en général. On peut également parler d'avoir ce réflèxe économique dans d'autres dépenses en dehors des vêtements.
+Qu'est ce que j'appelle la Brèche ?  A force de travailler sur une thématique, il y a forcément des paramètres qui peuvent potentiellement nous conduire vers des sujets autour de cette thématique. C'est donc une nouvelle porte qui s'ouvre vers d'autres horizons dans un domaine plus ou moins lié au sujet de base. Ici, le sujet de base était le fait d'acheter des vêtements à un prix qui serait le plus avantageux. La Brèche se crée donc vers le développement personnel à savoir, le développement du style, le fait d'évoluer pas que dans son style mais dans la vie en général. On peut également parler d'avoir ce réflèxe économique dans d'autres dépenses en dehors des vêtements.  
 
 ### Conséquences actuelles
 
-Au fur et à mesure de la rédaction des articles, j'ai vu que développer son style n'était qu'une étape. Il faut bien commencer par quelque chose. Ce développement du style ouvre des portes. Effectivement, quand vous sentez que vous évoluez, cela devient une quête interminable. Une fois que vous avez expérimenter le fait de repousser vos limites en ayant vu et vécu ce que cela peut engendrer vous vous dites tout simplement que vous pouvez pleinement l'appliquer dans d'autres domaines.
+Au fur et à mesure de la rédaction des articles, j'ai vu que développer son style n'était qu'une étape. Il faut bien commencer par quelque chose. Ce développement du style ouvre des portes. Effectivement, quand vous sentez que vous évoluez, cela devient une quête interminable. Une fois que vous avez expérimenter le fait de repousser vos limites en ayant vu et vécu ce que cela peut engendrer, vous vous dites tout simplement que vous pouvez pleinement l'appliquer dans d'autres domaines. A condition bien entendu de sortir de sa zone de confort.
 
-#### Multicompetences
+#### Multicompétence
 Parlant du fait d'être multi casquettes. A partir du moment où vous acquérissez une compétence même si vous n'en êtes pas un expert, le fait que vous le sachiez est déjà non négligeable. Parfois, voire souvent, il n'est pas nécessaire d'être un pro dans un domaine pour puiser de cette compétence, pour en générer un revenu, ou tout simplement une utilité dans votre vie.
 Voilà déjà la première chose que cela a débloqué dans la création de ce site. Je ne suis pas styliste ni coach en quoi que ce soit, mais j'ai cette capacité de développer mon style, de mettre en place un site. Puis sans m'en rendre compte de base, j'étais déjà multicompétent en vu de mon job, de mes études, et le fait que je sois beatmaker et DJ. Je suis certain que vous l'êtes également. On l'est tous ! Un de mes objectifs, est justement de vous faire comprendre qu'il faut élever cette multicompétence en vous car elle ne fera que vous ouvrir des portes grâce aux Brèches.
 Maintenant j'apprends à faire mes recherches quand je crée un nouvel article si besoin, je rencontre de nouvelles personnes, je suis blogueur aujourd'hui et je tends à me rapprocher vers le développement personnel de façon plus générale. La liste des compétences va encore s'agrandir au fil du temps. Croyez-moi !
