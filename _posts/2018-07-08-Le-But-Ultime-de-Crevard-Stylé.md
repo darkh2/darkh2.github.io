@@ -39,7 +39,7 @@ Voilà déjà la première chose que cela a débloquer dans la création de ce s
 Maintenant j'apprends à faire mes recherches quand je crée un nouvel article si besoin, je rencontre de nouvelles personnes, je deviens Bloggueur et je tends à me rapprocher vers le développement personnel de façon plus générale. La liste des compétences va encore s'agrandir au fil du temps.
 
 Futur
-Tout ça est bien beau mais quel est l'objectif ultime de Crevard Stylé ?
+Tout ça est bien beau mais quel est l'objectif ultime de Crevard Stylé au final ?
 Quand je me fixe un objectif, je m'y tiens et je ne vois que la réussite de celui ci et rien d'autre. Je suis naturellement guidé par faire en sorte de l'atteindre quel qu'en soit le prix. J'aime voir la finalité. Vu que je l'ai expérimenté sur pas mm de choses. Je sais ce qu'il en coûte. Et j'aime tellement voir ça que je veux le voir pas uniquement sur moi mais sur le monde qui m'entoure. De mon entourage jai plus ou moins le rôle de celui qui pousse à s'élever et proposer des solutions. Ce mode de pensée est forcément liée au fait que je ne vois que le but. Vous comprenez comment je résonne.
 Donc ce que je veux c'est que les hommes s'élèvent. D'une part dans le style certes mais pas que. Je veux voir des hommes bien habillé bien dans leur peau ayant du charisme achevant tout ce qu'ils entreprennent les voir se développer gagner en maturité devenir la meilleure version deux même . Écouter leur magnifique parcours
 
