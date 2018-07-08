@@ -7,4 +7,4 @@ feature_image: blackfont.png
 ---
 ## Six Moves Lead : Introduction à la dynamique des Six Coups d'Avance
 
-(Article caché)
+***Je tiens à vous féliciter d'avoir trouvé cet article caché ! Vous allez avoir un aperçu de mon futur projet. Le concept des Six Coups d'Avance***
