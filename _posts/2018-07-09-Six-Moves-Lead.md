@@ -9,6 +9,18 @@ feature_image: blackfont.png
 
 ***Je tiens à vous féliciter d'avoir trouvé cet article caché ! Vous allez avoir un aperçu de mon futur projet. Le concept des Six Coups d'Avance. Ces écrits ne sont que des notes, veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
 
+### Qu'est ce que cette dynamique et pourquoi ?
+
+Vous n'allez pas avoir 6 coups d'avance à proprement parler. Mais cela est tout de même possible si vous exploitez souvent cette dynamique et que vous optimisez vos piliers.
+C'est pour cela que l'on parle de Dynamique des 6 coups d'avance. Les 6 coups restent un idéal mais cela ne veut pas dire que le fait que vous en ayez moins vous fera échouer. Bien au contraire. Mais à force d'avoir les réflexes de cette dynamique vous serez comment affronter n'importe quelle situation.
+
+Pour quelles autres raisons parle-t-on de Dynamique encore ?
+Grâce aux piliers d'une part et votre capacité à rebondir d'adaptation et de réactivité. 
+Les piliers sont comme des vitamines nécessaires au bon fonctionnement de l'énergie de cette dynamique.
+
+Avant de penser aux piliers. Vous devez vous connaître au plus haut point possible. Vous devrez affronter votre égo par moment et repousser vos instincts orgueilleux.
+
+
 ### Six Moves Lead : Origins
 
 La première fois que j’ai pensé à établir cette dynamique sans pour autant vouloir ou penser la partager a travers des écrits était pendant une période de crise de mon couple.
