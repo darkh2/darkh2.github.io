@@ -14,10 +14,15 @@ Il faut que vous sachiez impérativement pourquoi je fais tout cela. Pourquoi au
 Qu'est ce qui m'a motivé pour créer Crevard Stylé et quels objectifs je veux atteindre a travers ce site et l'état d'esprit qui va avec.
 Vous avez besoin de connaîtle but ultime de CS.
 
-Origine 
+### Origine 
 Tout à commencé le jour ou j'avais un ami qui m'avait demandé où je m'étais procuré une paire de sneakers originale que personne possédait. Je lui avais répondu et s'en était suivi une discussion autour du style et le fait d'acheter des vêtements pas cher tout en étant stylé ainsi que tout un tas d'autres sujets autour du style et que la plupart d'entre nous naccordent pas d'importance à leur façon de s'habiller tout en optimisant leur porte feuille.
 J'ai jeté un oeil sur ma penderie le soir même en rentrant chez moi pour comparer le nombre d'articles que je n'avais pas acheté cher et même ceux avec un prix un peu plus élevé. Pour chaque article je pouvais raconter une histoire sur la façon dont je m'étais procuré le vêtement en question.
 Grand brainstorming avec moi même... j'en suis sûr que je pourrais mettre a profit ces expériences a d'autres hommes pour que l'on soit tout un groupe a posséder cette faculté d'être style à bas prix. Mais ce n'était que le début de ce qu'allait apporter ce site. Néanmoins, avant de créer le concept, je ne savais pas encore que j'avais ouvert une brèche. 
+
+### La Brèche de Crevard Stylé
+
+### Perspectives de Crevard Stylé
+#### Futurs Projets
 
 Aujourd'hui 
 Au fur et à mesure de la rédaction des articles, j'ai vu que développer son style n'était qu'une étape. Il faut bien commencer par quelque chose. Ce développement du style ouvre des portes. Effectivement, quand vous sentez que vous évoluez, cela devient une quête interminable. Une fois que vois avez expérimenter le fait de repousser vos limites en ayant vu et vécu ce que cela peut engendrer vous vous dites tout simplement que vous pouvez pleinement l'appliquer dans d'autres domaines.
