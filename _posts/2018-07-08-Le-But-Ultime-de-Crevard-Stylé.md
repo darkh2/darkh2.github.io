@@ -44,11 +44,9 @@ Maintenant j'apprends à faire mes recherches quand je crée un nouvel article s
 
 Tout ça est bien beau mais quel est l'objectif ultime de Crevard Stylé au final ?  
 Quand je me fixe un objectif, je m'y tiens et je ne vois que la réussite de celui ci et rien d'autre. Je suis naturellement guidé par faire en sorte de l'atteindre quel qu'en soit le prix. J'aime voir la finalité. Vu que je l'ai expérimenté sur un nombre incalculable de situations. Je sais ce qu'il en coûte. Et j'aime tellement voir ça que je veux le voir, pas uniquement sur moi, mais sur le monde qui m'entoure. Mon mode de pensée est forcément liée au fait que je ne vois que le but. Vous comprenez comment je résonne.
-Ce que je veux, c'est que les hommes s'élèvent, et les femmes également. D'une part, dans le style, certes, mais pas que. Je veux voir des hommes bien habillé, bien dans leur peau, ayant du charisme, et achevant tout ce qu'ils entreprennent. Les voir se développer et gagner en maturité afin de devenir la meilleure version d'eux-même. Et écouter leur magnifique parcours
+Ce que je veux, c'est que les hommes s'élèvent, et les femmes également. D'une part, dans le style, certes, mais pas que. Je veux voir des hommes bien habillé, bien dans leur peau, ayant du charisme, et achevant tout ce qu'ils entreprennent. Les voir se développer et gagner en maturité afin de devenir la meilleure version d'eux-mêmes. Et enfin, écouter leur magnifique parcours.
 
 ### Perspectives de Crevard Stylé
-
-Faire des hommes avec un esprit optimisé de partout sachant résoudre chaque problème et endurer toute épreuve possible!
 
 Comment puis-je prétendre vouloir toujours évoluer si je ne suis pas confronté à des épreuves ? C'est absolument ce que je veux. Les perspectives sont que dans un certain futur, je sois capable de résoudre n'importe quel problème dans la vie de tous les jours. Devenir comme un coach de vie, mais s'il vous plaît, je ne veux vraiment pas l'étiquette du coach même si je sais que je suis totalement apte à faire du coaching. La résolution de problèmes se fera dans une méthode de fonctionnement dont je suis pleinement en train d'élaborer au moment où vous lirez ces lignes. Ce sera sous la forme d'un livre/ebook. Vous saurez tout et verrez que la vie au final, est simple ! #SIXMOVESLEAD
 
