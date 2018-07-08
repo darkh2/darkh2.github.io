@@ -9,8 +9,8 @@ feature_image: hykesunset.jpg
 ## Le but Ultime de Crevard Stylé
 
 Il faut que vous sachiez impérativement pourquoi aujourd'hui, Hyke, moi-même, je fais tout cela ?
-Qu'est ce qui m'a motivé pour créer Crevard Stylé, et quels objectifs je veux atteindre à travers ce site, et l'état d'esprit qui en découle.
-Vous avez besoin de connaître le but ultime de CS.
+Qu'est ce qui m'a motivé pour créer Crevard Stylé, et quels objectifs je veux atteindre à travers ce site, et l'état d'esprit qui en découle ?
+Vous avez besoin de connaître le but ultime de Crevard Stylé.
 
 ### Origine 
 
