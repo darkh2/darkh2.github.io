@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-07-08T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: hykesunset.jpg
@@ -12,9 +12,13 @@ Faire des hommes avec un esprit optimisé de partout sachant résoudre chaque pr
 
 Il faut que vous sachiez impérativement pourquoi je fais tout cela. Pourquoi aujourd'hui Hyke moi même ici présent je fais tout cela ?
 Qu'est ce qui m'a motivé pour créer Crevard Stylé et quels objectifs je veux atteindre a travers ce site et l'état d'esprit qui va avec.
-Vous avez besoin de connaîtle but ultime de CS.
+Vous avez besoin de connaître le but ultime de CS.
 
 ### Origine 
+
+J'ai toujours aimé le développement personnel. Le fait d'avoir la possibilité de pouvoir toujours évoluer et devenir la meilleure version de soi-même. Et j'aime le répandre le développement dans mon entourage. J'avais ce rôle dans mon groupe d'amis de conseiller et de toujours essayer de trouver une solution à tout.  
+Mais je ne pouvais pas me lancer dans le développement personnel si je n'avais pas quelque chose qui se démarque de la masse et ce qui donnerait envie aux gens de me suivre dans ma façon de voir les choses. Tant que je n'avais pas ça, je me disais que je ne me lancerai pas.
+
 Tout à commencé le jour ou j'avais un ami qui m'avait demandé où je m'étais procuré une paire de sneakers originale que personne possédait. Je lui avais répondu et s'en était suivi une discussion autour du style et le fait d'acheter des vêtements pas cher tout en étant stylé ainsi que tout un tas d'autres sujets autour du style et que la plupart d'entre nous naccordent pas d'importance à leur façon de s'habiller tout en optimisant leur porte feuille.
 J'ai jeté un oeil sur ma penderie le soir même en rentrant chez moi pour comparer le nombre d'articles que je n'avais pas acheté cher et même ceux avec un prix un peu plus élevé. Pour chaque article je pouvais raconter une histoire sur la façon dont je m'étais procuré le vêtement en question.
 Grand brainstorming avec moi même... j'en suis sûr que je pourrais mettre a profit ces expériences a d'autres hommes pour que l'on soit tout un groupe a posséder cette faculté d'être style à bas prix. Mais ce n'était que le début de ce qu'allait apporter ce site. Néanmoins, avant de créer le concept, je ne savais pas encore que j'avais ouvert une brèche. 
@@ -37,9 +41,7 @@ Tout ça est bien beau mais quel est l'objectif ultime de Crevard Stylé ?
 Quand je me fixe un objectif, je m'y tiens et je ne vois que la réussite de celui ci et rien d'autre. Je suis naturellement guidé par faire en sorte de l'atteindre quel qu'en soit le prix. J'aime voir la finalité. Vu que je l'ai expérimenté sur pas mm de choses. Je sais ce qu'il en coûte. Et j'aime tellement voir ça que je veux le voir pas uniquement sur moi mais sur le monde qui m'entoure. De mon entourage jai plus ou moins le rôle de celui qui pousse à s'élever et proposer des solutions. Ce mode de pensée est forcément liée au fait que je ne vois que le but. Vous comprenez comment je résonne.
 Donc ce que je veux c'est que les hommes s'élèvent. D'une part dans le style certes mais pas que. Je veux voir des hommes bien habillé bien dans leur peau ayant du charisme achevant tout ce qu'ils entreprennent les voir se développer gagner en maturité devenir la meilleure version deux même . Écouter leur magnifique parcours
 
-J'ai toujours aimé le développement personnel. Le fait d'avoir la possibilité de pouvoir toujours évoluer et devenir la meilleure version de soi même. Et j'aime le répandre autour de moi. J'avais ce rôle dans mon groupe d'amis de conseiller et de toujours essayer de trouver une solution à tout.
 
-Mais je ne pouvais pas me lancer dans le développement personnel si je n'avais pas quelque chose qui se démarque de la masse et ce qui donnerait envie aux gens de me suivre dans ma façon de voir les choses.
 
 Jusqu'au jour où j'ai eu l'idée de ce concept avec un nom qui peut faire polémique mais au moins on était explicite et on sait déjà de quoi cela va traiter. J'annonce la couleur des le départ. C'est quitté ou double. On aime ou on n'aime pas.
 
