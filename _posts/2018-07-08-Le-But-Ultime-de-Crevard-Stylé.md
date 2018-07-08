@@ -31,7 +31,7 @@ Qu'est ce que j'appelle la Brèche ?  A force de travailler sur une thématique,
 #### Futurs Projets
 
 Aujourd'hui 
-Au fur et à mesure de la rédaction des articles, j'ai vu que développer son style n'était qu'une étape. Il faut bien commencer par quelque chose. Ce développement du style ouvre des portes. Effectivement, quand vous sentez que vous évoluez, cela devient une quête interminable. Une fois que vois avez expérimenter le fait de repousser vos limites en ayant vu et vécu ce que cela peut engendrer vous vous dites tout simplement que vous pouvez pleinement l'appliquer dans d'autres domaines.
+Au fur et à mesure de la rédaction des articles, j'ai vu que développer son style n'était qu'une étape. Il faut bien commencer par quelque chose. Ce développement du style ouvre des portes. Effectivement, quand vous sentez que vous évoluez, cela devient une quête interminable. Une fois que vous avez expérimenter le fait de repousser vos limites en ayant vu et vécu ce que cela peut engendrer vous vous dites tout simplement que vous pouvez pleinement l'appliquer dans d'autres domaines.
 
 Multicompetences
 Parlant du fait d'être multi casquettes. A partir du moment où vous acquérissez une compétence même si vous n'en êtes pas un expert, le fait que vous le sachiez est déjà quelque chose. Parfois voire souvent il n'est pas nécessaire d'être un pro dans un domaine pour puiser de cette compétence pour en générer un revenu ou tout simplement une utilité dans votre vie.
