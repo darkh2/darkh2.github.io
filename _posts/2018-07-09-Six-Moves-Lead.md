@@ -7,7 +7,7 @@ feature_image: blackfont.png
 ---
 ## Six Moves Lead : Introduction à la dynamique des Six Coups d'Avance
 
-***Je tiens à vous féliciter d'avoir trouvé cet article caché (cétait facile quand même, avouez-le)! Vous allez avoir un aperçu de mon futur projet. Les Six Coups d'Avance. Ces écrits ne sont que des notes, ils seront synthétisés dans un livre et ebook. En attendant, vous pouvez pleinement y jeter un oeil. Veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
+***Je tiens à vous féliciter d'avoir trouvé cet article caché (cétait facile quand même, avouez-le)! Vous allez avoir un aperçu de mon futur projet. Les Six Coups d'Avance. Ces écrits ne sont que des extraits de notes. Ces derniers seront synthétisés dans un livre et ebook. En attendant, vous pouvez pleinement y jeter un oeil. Veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
 
 ### Pourquoi le titre Six Moves Lead ?
 
