@@ -43,4 +43,4 @@ Je n'avais pas du tout penser à ce moment là à en faire un livre mais je deva
 
 ### Les Piliers de la dynamique
 
-Ce sont des principes fondamentaux à respecter si vous voulez optimiser la dynamique et de limiter le risque d'être dépassé par les évenements. Ils sont au nombre de 14. Néanmoins, ils sont modulables. C'est votre personnalité qui fera votre propre liste de Piliers.
+Ce sont des principes fondamentaux à respecter si vous voulez optimiser la dynamique et de limiter le risque d'être dépassé par les évenements. Ils sont au nombre de 14. Néanmoins, ils sont modulables. C'est votre personnalité qui fera votre propre liste de Piliers...
