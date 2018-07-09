@@ -14,7 +14,7 @@ feature_image: blackfont.png
 Vous n'allez pas avoir 6 coups d'avance à proprement parler. Mais cela est tout de même possible si vous exploitez souvent cette dynamique et que vous optimisez vos piliers.
 C'est pour cela que l'on parle de Dynamique des 6 coups d'avance. Les 6 coups restent un idéal mais cela ne veut pas dire que le fait que vous en ayez moins vous fera échouer. Bien au contraire. Mais à force d'avoir les réflexes de cette dynamique vous serez comment affronter n'importe quelle situation.
 
-###### Pour quelles autres raisons parle-t-on de Dynamique encore ?
+#### Pour quelles autres raisons parle-t-on de Dynamique encore ?
 Grâce aux piliers d'une part et votre capacité à rebondir, d'adaptation, et de réactivité. 
 Les piliers sont comme des vitamines nécessaires au bon fonctionnement de l'énergie de cette dynamique.
 
@@ -25,9 +25,9 @@ Avant de penser aux piliers, vous devez vous connaître au plus haut point possi
 
 La première fois que j’ai pensé à établir cette dynamique sans pour autant vouloir ou penser la partager a travers des écrits était pendant une période de crise de mon ancien couple.
 
-##### Pourquoi j'ai réussi à rentrer dans cette dynamique des Six coups d'avance aussi facilement.
-Parce que sans m'en rendre compte mes piliers étaient déjà assez forts pour rentrer dans cette dynamique.
-**Premier Pilier (et sans doute le plus important)** : **Ne jamais se reposer sur ses acquis !**  
+#### Pourquoi j'ai réussi à rentrer dans cette dynamique des Six coups d'avance aussi facilement.
+Parce que sans m'en rendre compte mes piliers étaient déjà assez forts pour rentrer dans cette dynamique.  
+**Premier Pilier (et sans doute le plus important)** : **Ne jamais se reposer sur ses acquis !**   
 Je voulais tellement qu'elle me valide, que je me déchirais pour être plus fort, plus beaux, plus intelligent, plus ce qu'elle aime, mais j'y voyais totalement mon intérêt. Puis c'était comme ça que je manifestais mon amour pour elle.
 Capacité à s'extérioriser (un autre Pilier) : je voyais la relation d'un point de vue extérieur en toute lucidité malgré la passion de mes sentiments.
 
