@@ -7,7 +7,7 @@ feature_image: blackfont.png
 ---
 ## Six Moves Lead : Introduction à la dynamique des Six Coups d'Avance
 
-***Je tiens à vous féliciter d'avoir trouvé cet article caché ! Vous allez avoir un aperçu de mon futur projet. Le concept des Six Coups d'Avance. Ces écrits ne sont que des notes, veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
+***Je tiens à vous féliciter d'avoir trouvé cet article caché (cétait facile quand même, avouez-le)! Vous allez avoir un aperçu de mon futur projet. Le concept des Six Coups d'Avance. Ces écrits ne sont que des notes, veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
 
 ### Qu'est ce que cette dynamique et pourquoi ?
 
