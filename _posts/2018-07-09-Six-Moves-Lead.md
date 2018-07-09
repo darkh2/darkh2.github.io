@@ -47,7 +47,7 @@ Il me fallait impérativement une solution pour remédier à ce problème. Je sa
 
 Et c'est la que j'ai prononcé pour la 1ere fois ces mots tout en étant déboussolé : **"Il me faut Six Coups d'Avance !"**
 
-Je n'avais pas du tout penser à ce moment là à en faire un livre mais je devais me sortir de la. La notion des piliers était inexistante. Mais ce qui a fait que j'y suis parvenu c'était grâce à ces fameux piliers !
+Je n'avais pas du tout penser à ce moment là à en faire un livre mais je devais me sortir de la. La notion des piliers était inexistante encore. Mais ce qui a fait que j'y suis parvenu c'était justement grâce à ces fameux piliers !
 
 ### Les Piliers de la dynamique
 
