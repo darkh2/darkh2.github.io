@@ -27,7 +27,7 @@ La première fois que j’ai pensé à établir cette dynamique sans pour autant
 
 ##### Pourquoi j'ai réussi à rentrer dans cette dynamique des Six coups d'avance aussi facilement.
 Parce que sans m'en rendre compte mes piliers étaient déjà assez forts pour rentrer dans cette dynamique.
-**1er Pilier** : Ne jamais se reposer sur ses acquis : je voulais tellement quelle me valide que je me voyais pour être plus fort plus beaux plus intelligents plus ce qu'elle aime mais j'y voyais totalement mon intérêt puis c'était comme ça que je manifestais mon amour pour elle.
+**Premier Pilier (et sans doute le plus important)** : Ne jamais se reposer sur ses acquis : je voulais tellement quelle me valide que je me voyais pour être plus fort plus beaux plus intelligents plus ce qu'elle aime mais j'y voyais totalement mon intérêt puis c'était comme ça que je manifestais mon amour pour elle.
 Capacité à s'extérioriser : je voyais la relation d'un point de vue extérieur en toute lucidité malgré la passion de mes sentiments.
 
 La relation battait de l'aile a un point ou plus le temps passait moins je me voyais a long terme avec elle. Les péripéties et ses agissements étaient en total désaccord avec ma projection sur le futur avec elle. Mes sentiments gardaient ces espoirs quand on arrivait à s'entendre et se pardonner. Mais cela restait des pensées idylliques. On se fourvoyait sans le savoir. Après un certain temps d'espoir il y avait toujours quelque chose pour me faire redescendre et d'abandonner l'idée de continuer avec elle malgré qu'elle représentait pour moi tout ce qui correspondait pour une belle vie de couple sur le long terme. Du coup pas tant que ça.
