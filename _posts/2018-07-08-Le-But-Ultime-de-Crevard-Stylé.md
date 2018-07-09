@@ -45,7 +45,7 @@ Maintenant j'apprends à faire mes recherches quand je crée un nouvel article s
 ### Futurs Projets
 
 Tout ça est bien beau mais quel est l'objectif ultime de Crevard Stylé au final ?  
-Quand je me fixe un objectif, je m'y tiens et je ne vois que la réussite de celui-ci et rien d'autre. Je suis naturellement guidé par faire en sorte de l'atteindre quel qu'en soit le prix. J'aime voir la finalité. Vu que je l'ai expérimenté sur un nombre incalculable de situations. Je sais ce qu'il en coûte. Et j'aime tellement voir ça, que je veux le voir, pas uniquement sur moi-même, mais sur le monde qui m'entoure. Mon mode de pensée est forcément liée au fait que je ne vois que le but. Vous comprenez comment je résonne.
+Quand je me fixe un objectif, je m'y tiens et je ne vois que la réussite de celui-ci et rien d'autre. Je suis naturellement guidé par faire en sorte de l'atteindre quel qu'en soit le prix. J'aime voir la finalité. Vu que je l'ai expérimenté sur un nombre incalculable de situations. Je sais ce qu'il en coûte. Et j'aime tellement voir ça, que je veux le voir, pas uniquement sur moi-même, mais sur le monde qui m'entoure. Mon mode de pensée est forcément lié au fait que je ne vois que le but. Vous comprenez comment je résonne.
 Ce que je veux, c'est que les hommes s'élèvent, et les femmes également. D'une part, dans le style, certes, mais pas que. Je veux voir des hommes bien habillé, bien dans leur peau, ayant du charisme, et achevant tout ce qu'ils entreprennent. Les voir se développer et gagner en maturité afin de devenir la meilleure version d'eux-mêmes. Et enfin, écouter leur magnifique parcours.
 
 ### Perspectives de Crevard Stylé
