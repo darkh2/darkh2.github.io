@@ -48,7 +48,4 @@ Ce que je veux, c'est que les hommes s'élèvent, et les femmes également. D'un
 
 ### Perspectives de Crevard Stylé
 
-Comment puis-je prétendre vouloir toujours évoluer si je ne suis pas confronté à des épreuves ? C'est absolument ce que je veux. Les perspectives sont que dans un certain futur, je sois capable de résoudre n'importe quel problème dans la vie de tous les jours. Devenir comme un coach de vie, mais s'il vous plaît, je ne veux vraiment pas l'étiquette du coach même si je sais que je suis totalement apte à faire du coaching. La résolution de problèmes se fera dans une méthode de fonctionnement dont je suis pleinement en train d'élaborer au moment où vous lirez ces lignes. Ce sera sous la forme d'un livre/ebook. Vous saurez tout et verrez que la vie au final, est simple ! #SIXMOVESLEAD
-
-
-(Article en cours de rédaction ...)
+Comment puis-je prétendre vouloir toujours évoluer si je ne suis pas confronté à des épreuves ? C'est absolument ce que je veux. Provoquer ces situations. Les perspectives sont que dans un certain futur, je sois capable de résoudre n'importe quel problème dans la vie de tous les jours. Devenir comme un coach de vie, mais s'il vous plaît, je ne veux vraiment pas l'étiquette du coach. Même si je sais que je suis totalement apte à faire du coaching. La résolution de problèmes se fera dans une méthode de fonctionnement dont je suis pleinement en train d'élaborer au moment où vous lirez ces lignes. Ce sera sous la forme d'un livre/ebook. Vous saurez tout et verrez que la vie au final, est simple ! #SIXMOVESLEAD (Article caché)
