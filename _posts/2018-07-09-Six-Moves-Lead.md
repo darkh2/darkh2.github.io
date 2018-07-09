@@ -9,9 +9,13 @@ feature_image: blackfont.png
 
 ***Je tiens à vous féliciter d'avoir trouvé cet article caché (cétait facile quand même, avouez-le)! Vous allez avoir un aperçu de mon futur projet. Les Six Coups d'Avance. Ces écrits ne sont que des notes, ils seront synthétisés dans un livre et ebook. En attendant, vous pouvez pleinement y jeter un oeil. Veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
 
-Avoir six coups d'avance.
+### Pourquoi le titre Six Moves Lead ?
+
+Avoir Six Coups d'Avance.
 Pourquoi 6 ? Car c'est le minimum requis ... Oui mais pourquoi 6 et pas 5 ou 10 ?
-Peut-être parce qu'en avoir moins aurait une probabilité plus forte de se faire dépasser par les événements et que d'en avoir plus serait une charge trop lourde et nous empêcherait de vivre et d'apprécier le moment présent.
+Peut-être parce qu'en avoir moins aurait une probabilité plus forte de se faire dépasser par les événements et que d'en avoir plus serait une charge trop lourde et nous empêcherait de vivre et d'apprécier le moment présent.  
+
+Imaginez qu'une situation décisive de votre vie se résume à un échiquier au point de départ. Vous possédez vos pièces et en face de vous votre adversaire s'appelle l'Avenir. L'avenir on l'appelle comme ça car il représente les choses qui peuvent se dérouler sans que vous en maîtrisiez l'arrivée. C'est pour cela que votre but sera de vous adapter en fonctions de ses coups et de vous en sortir sur la vie que vous allez mener. Nous sommes d'accord, vous ne pouvez pas voir l'avenir mais vous pouvez toujours anticiper certaines pertes et remporter la partie. 
 
 ### Qu'est ce que cette dynamique et pourquoi ?
 
