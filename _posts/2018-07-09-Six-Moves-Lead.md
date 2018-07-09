@@ -9,6 +9,10 @@ feature_image: blackfont.png
 
 ***Je tiens à vous féliciter d'avoir trouvé cet article caché (cétait facile quand même, avouez-le)! Vous allez avoir un aperçu de mon futur projet. Les Six Coups d'Avance. Ces écrits ne sont que des notes, ils seront synthétisés dans un livre et ebook. En attendant, vous pouvez pleinement y jeter un oeil. Veuillez m'excuser par avance si vous ne saisissez pas tout au départ et si mon orthographe laisse à désirer.***
 
+Avoir six coups d'avance.
+Pourquoi 6 ? Car c'est le minimum requis ... Oui mais pourquoi 6 et pas 5 ou 10 ?
+Peut-être parce qu'en avoir moins aurait une probabilité plus forte de se faire dépasser par les événements et que d'en avoir plus serait une charge trop lourde et nous empêcherait de vivre et d'apprécier le moment présent.
+
 ### Qu'est ce que cette dynamique et pourquoi ?
 
 Vous n'allez pas avoir 6 coups d'avance à proprement parler. Mais cela est tout de même possible si vous exploitez souvent cette dynamique et que vous optimisez vos piliers.
