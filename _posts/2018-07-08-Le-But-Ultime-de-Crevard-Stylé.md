@@ -17,7 +17,7 @@ Vous avez besoin de connaître le but ultime de Crevard Stylé.
 J'ai toujours aimé le développement personnel. Le fait d'avoir la possibilité de pouvoir toujours évoluer et devenir la meilleure version de soi-même. J'ai cette satisfaction quand je vois le développement dans mon entourage. Dans ce dernier, je possèdais ce rôle de conseiller, de guide, et de toujours essayer de trouver une solution à tout. Puis, c'est ce qui me correspond : faire toujours mieux que la veille.  
 Mais je ne pouvais pas me lancer dans le développement personnel si je n'avais pas quelque chose qui se démarque de la masse, et qui donnerait envie aux gens de me suivre dans ma façon de voir les choses. Tant que je n'avais pas ça, je me disais que je ne me lancerai pas.  
 
-Jusqu'au jour où j'ai eu l'idée de ce concept avec un nom qui peut faire polémique mais du moins explicite. Et on sait déjà de quoi cela va traiter. J'annonce la couleur des le départ. C'est quitte ou double. On aime ou on n'aime pas.  
+Jusqu'au jour où j'ai eu l'idée de ce concept avec un nom qui peut faire polémique mais du moins explicite. Et on sait déjà de quoi cela va traiter. J'annonce la couleur dès le départ. C'est quitte ou double. On aime ou on n'aime pas.  
 
 Il fallait bien entendu une utilité à ce que j'allais apporter. Je ne pouvais pas débarquer dans le milieu inutilement. Je n'avais pas pensé au style au départ, parce que je me disais que je n'étais pas pro dans le domaine. Puis au final, j'en ai conclu que ce serait sûrement le fait que je ne sois pas expert qui allait faire ma force justement ! Et pour montrer qu'il ne faut pas être expert dans le domaine, vu que j'arrive pleinement à le faire.
 
