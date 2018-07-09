@@ -33,7 +33,8 @@ Avant de penser aux piliers, vous devez vous connaître au plus haut point possi
 
 La première fois que j’ai pensé à établir cette dynamique sans pour autant vouloir ou penser la partager a travers des écrits était pendant une période de crise de mon ancien couple.
 
-#### Pourquoi j'ai réussi à rentrer dans cette dynamique des Six coups d'avance aussi facilement.
+#### Pourquoi j'ai réussi à rentrer dans cette dynamique des Six coups d'avance aussi facilement ?
+
 Parce que sans m'en rendre compte mes piliers étaient déjà assez forts pour rentrer dans cette dynamique.  
 **Premier Pilier (et sans doute le plus important)** : **Ne jamais se reposer sur ses acquis !**   
 Je voulais tellement qu'elle me valide, que je me déchirais pour être plus fort, plus beaux, plus intelligent, plus ce qu'elle aime, mais j'y voyais totalement mon intérêt. Puis c'était comme ça que je manifestais mon amour pour elle.
