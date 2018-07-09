@@ -19,7 +19,7 @@ Mais je ne pouvais pas me lancer dans le développement personnel si je n'avais 
 
 Jusqu'au jour où j'ai eu l'idée de ce concept avec un nom qui peut faire polémique mais du moins explicite. Et on sait déjà de quoi cela va traiter. J'annonce la couleur dès le départ. C'est quitte ou double. On aime ou on n'aime pas.  
 
-Il fallait bien entendu une utilité à ce que j'allais apporter. Je n'avais pas pensé au style au départ, parce que je me disais que je n'étais pas pro dans le domaine. Puis au final, j'en ai conclu que ce serait sûrement le fait que je ne sois pas expert qui allait faire ma force justement ! Et pour montrer qu'il ne faut pas être expert dans le domaine, vu que j'arrive pleinement à le faire.
+Il fallait bien entendu une utilité à ce que j'allais apporter. Je n'avais pas pensé au style au départ, parce que je me disais que je n'étais pas pro dans le domaine. Puis au final, j'en ai conclu que ce serait sûrement le fait que je ne sois pas expert qui allait faire ma force ! Et pour montrer qu'il ne faut pas être expert dans le domaine, vu que j'arrive pleinement à le faire.
 
 Pour moi, c'est totalement impossible d'être dans un secteur sans apporter de la valeur. Je dis souvent que l'homme est amené à faire de grandes choses en ce monde. C'est mon but à travers tous mes concepts et projets. Je veux que tout le monde trouve son compte dans ce que je ferai.  
 
