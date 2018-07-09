@@ -29,7 +29,8 @@ Grand brainstorming avec moi même... Je commençais à penser que je pourrais m
 
 ### La Brèche
 
-Qu'est ce que j'appelle la Brèche ?  A force de travailler sur une thématique, il y a forcément des paramètres qui peuvent potentiellement nous conduire vers des sujets autour de cette thématique. C'est donc une nouvelle porte qui s'ouvre vers d'autres horizons dans un domaine plus ou moins lié au sujet de base. Ici, le sujet de base était le fait d'acheter des vêtements à un prix qui serait le plus avantageux. La Brèche se crée donc vers le développement personnel à savoir, le développement du style, le fait d'évoluer pas que dans son style mais dans la vie en général. On peut également parler d'avoir ce réflèxe économique dans d'autres dépenses en dehors des vêtements.  
+Qu'est ce que j'appelle la Brèche ?   
+A force de travailler sur une thématique, il y a forcément des paramètres qui peuvent potentiellement nous conduire vers des sujets autour de cette thématique. C'est donc une nouvelle porte qui s'ouvre vers d'autres horizons dans un domaine plus ou moins lié au sujet de base. Ici, le sujet de base était le fait d'acheter des vêtements à un prix qui serait le plus avantageux. La Brèche se crée donc vers le développement personnel à savoir, le développement du style, le fait d'évoluer pas que dans son style mais dans la vie en général. On peut également parler d'avoir ce réflèxe économique dans d'autres dépenses en dehors des vêtements.  
 
 ### Conséquences actuelles
 
