@@ -8,9 +8,7 @@ feature_image: dcw_main2.jpg
 ---
 ## Décontracté, Chic & Wax (DCW)
 
-Voilà un thème original que Claudia ...
-
-Claudia ma très gentillement proposé d'intervenir dans un shooting afin de partager nos styles respectifs dans un thème décontracté chic avec une touche de wax. Si vous me e suivez sur les réseaux vous savez pertinemment que j'aime le wax et relever des nouveaux défis dans le développement de mon style. Vous verrez. Les brèches sont infinies. Je vais pour la première fois détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu c'est une première.  Honneur aux femmes (détailler sa tenue avant). Et ensuite vous montrer une nouvelle étape dans le développement de mon style.
+Un article riche en exceptions que j'ai le très grand plaisir de vous concocté. Claudia, conseillère en image, m'a très gentillement proposé d'intervenir dans un shooting afin de partager nos styles respectifs dans un thème Décontracté, Chic, avec une touche de Wax. Si vous me suivez sur les réseaux, vous savez pertinemment que j'aime le wax et relever de nouveaux défis dans le développement de mon style. Vous verrez. Les brèches sont infinies. Je vais pour la première fois détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu c'est une première.  Honneur aux femmes (détailler sa tenue avant). Et ensuite vous montrer une nouvelle étape dans le développement de mon style.
 
 ### Who is Claudia ?
 Décrire qui elle est et ce qu'elle fait et mettre en avant ce qu'elle apporte aussi bien dans cette expérience qu'en général. 
