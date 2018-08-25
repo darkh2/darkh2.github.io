@@ -20,6 +20,8 @@ Dire dans le détail que j'espère que Claudia apportera une touche Crevarde Sty
 
 ### DCW by Claudia
 
+J'ai l'honneur plaisir de décrire la tenue de notre chère styliste. 
+
 ### DCW by Hyke
 
 Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de mariage de mon ami et sa femme, je n'aurais pas eu ce tissu. Et sans ce tissu cette veste bombers n'aurait sans doute jamais vu le jour. Voyez vous a quel point savoir faire plusieurs choses est important. Même si les domaines sont totalement différents. Croyez aux brèches! Elles peuvent vous apporter énormément. 
