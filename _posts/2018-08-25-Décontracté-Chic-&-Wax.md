@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 2018-08-26T00:00:00.000Z
 categories: crevard-style exceptions
 author_slug: hyke
 feature_image: dcw_main2.jpg
@@ -13,7 +13,8 @@ Un article riche en exceptions que j'ai le très grand plaisir de vous concocté
 Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime le wax et relever de nouveaux défis. Je vais pour la première fois, détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu, c'est une première. Et ensuite vous montrer une nouvelle étape dans le développement de mon style. Honneur aux femmes ... 
 
 ### Who is Claudia ?
-Décrire qui elle est et ce qu'elle fait et mettre en avant ce qu'elle apporte aussi bien dans cette expérience qu'en général. 
+
+Claudia est une conseillère en image. Mais pas que. Elle prône également la multicompétence grâce à ses compétences en stylisme, personal shopper et blogueuse. Son blog est très intéressant. Et même en tant qu'homme, les articles que j'ai lu m'ont appris beaucoup sur le style même si elle s'occupe majoritairement des femmes. Voici le lien de son blog :  
 
 ### Rencontre et shooting
 Dire dans le détail que j'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
