@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: {}
+date: 2018-08-26T00:00:00.000Z
 categories: crevard-style exceptions articles
 author_slug: hyke
 feature_image: dcw_main2.jpg
