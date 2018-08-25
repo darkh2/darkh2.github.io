@@ -4,7 +4,7 @@ layout: post
 date: 2018-08-26T00:00:00.000Z
 categories: crevard-style exceptions articles
 author_slug: hyke
-feature_image: dcw_main2.jpg
+feature_image: dcw_main3.jpg
 ---
 ## Décontracté, Chic & Wax (DCW)
 
@@ -12,13 +12,14 @@ Un article riche en exceptions que j'ai le très grand plaisir de vous concocté
 ***Décontracté, Chic, avec une touche de Wax.***  
 Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime le wax et relever de nouveaux défis. Je vais pour la première fois, détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu, c'est une première. Et ensuite vous montrer une nouvelle étape dans le développement de mon style. Honneur aux femmes ... 
 
-![dcw_main2]({{site.url}}/{{site.baseurl}}img/dcw_main2.jpg)
+![dcw_main2]({{site.url}}/{{site.baseurl}}img/dcw_main3.jpg)
 
 ### Who is Claudia ?
 
 Claudia est consultante en image. Mais pas que. Elle prône également la multicompétence grâce à ses fonctions de styliste, personal shopper et blogueuse. Elle relooke aussi bien les femmes que les hommes. Je suis certain qu'elle possède encore d'autres compétences enfouies en elle. Des Brèches cachées qui verront sans doute le jour au fil du temps... La partie blog de son site est très intéressante. Et même en tant qu'homme, les articles que j'ai lu m'ont beaucoup appris sur le style. Elle propose également ses services sur son site. Voici le lien : [BDS Relooking](https://www.bds-relooking.com) 
 
 ### Rencontre et shooting
+
 Dire dans le détail que j'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
 
 ### DCW by Claudia
