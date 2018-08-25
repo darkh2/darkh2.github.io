@@ -2,7 +2,7 @@
 published: true
 layout: post
 date: {}
-categories: crevard-style exceptions
+categories: crevard-style exceptions articles
 author_slug: hyke
 feature_image: dcw_main2.jpg
 ---
