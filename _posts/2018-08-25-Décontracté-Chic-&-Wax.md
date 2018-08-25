@@ -14,7 +14,7 @@ Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime l
 
 ### Who is Claudia ?
 
-Claudia est consultante en image. Mais pas que. Elle prône également la multicompétence grâce à ses compétences en stylisme, personal shopper et blogueuse. Je suis certain qu'elle possède encore d'autres compétences enfouies en elle. Des Brèches cachées qui verront le jour au fil du temps... Son blog est très intéressant. Et même en tant qu'homme, les articles que j'ai lu m'ont appris beaucoup sur le style, même si elle s'occupe majoritairement des femmes. Voici le lien de son blog :  
+Claudia est consultante en image. Mais pas que. Elle prône également la multicompétence grâce à ses compétences en stylisme, personal shopper et blogueuse. Elle relooke aussi bien les femmes que les hommes. Je suis certain qu'elle possède encore d'autres compétences enfouies en elle. Des Brèches cachées qui verront le jour au fil du temps... Son blog est très intéressant. Et même en tant qu'homme, les articles que j'ai lu m'ont appris beaucoup sur le style, même si elle s'occupe majoritairement des femmes. Voici le lien de son blog :  
 
 ### Rencontre et shooting
 Dire dans le détail que j'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
