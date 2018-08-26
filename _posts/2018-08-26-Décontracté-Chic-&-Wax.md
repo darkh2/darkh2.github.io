@@ -8,7 +8,7 @@ feature_image: dcw_main3.jpg
 ---
 ## Décontracté, Chic & Wax (DCW)
 
-Un article riche en exceptions que j'ai le très grand plaisir de vous concocté. Claudia, conseillère en image, m'a très gentillement proposé d'intervenir dans un shooting afin de partager nos styles respectifs dans un thème qu'elle a choisit :  
+Un article riche en exceptions que j'ai le très grand plaisir de vous avoir concocté. Claudia, conseillère en image, m'a très gentillement proposé d'intervenir dans un shooting afin de partager nos styles respectifs dans un thème qu'elle a choisit :  
 ***Décontracté, Chic, avec une touche de Wax.***  
 Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime le wax et relever de nouveaux défis. Je vais pour la première fois, détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu, c'est une première. Et ensuite je vous ferai part d'une nouvelle étape dans le développement de mon style. Honneur aux femmes ... 
 
