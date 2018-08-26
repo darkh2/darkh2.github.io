@@ -34,7 +34,7 @@ En restant dans la dynamique simple et originale, la paire de sandales mettent s
 
 ![dcw_c_shoes]({{site.url}}/{{site.baseurl}}img/dcw_c_shoes.jpg)
 
-Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec ces motifs me donnent le sourire. On gagne en originalité. En fait, on gagne en tout !
+Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec ces motifs me donnent le sourire. On gagne en originalité. En fait, on gagne en tout ! Nous ne savions même pas avant notre shooting que la couleur de la veste de l'un et l'autre serait la même. Mais avec un ton différent.
 
 #### Crevard Stylé : ça va elle pèse dans le game Claudia !
 
