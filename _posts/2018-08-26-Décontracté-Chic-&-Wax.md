@@ -61,6 +61,8 @@ Le prochain projet serait peut-être que je sois le personal shopper de notre fa
 
 (Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de mariage de mon ami et sa femme, je n'aurais pas eu ce tissu. Et sans ce tissu cette veste bombers n'aurait sans doute jamais vu le jour. Voyez vous a quel point savoir faire plusieurs choses est important. Même si les domaines sont totalement différents. Croyez aux brèches! Elles peuvent vous apporter énormément.) 
 
+Toujours et encore les basiques. Rien de tel que de commencer avec une pièce avec laquelle je vais pouvoir avoir un maximum d'options. Puis n'oublions pas que nous avons un thème à respecter. Qui dit Chic pour nous les hommes impliquent à 95% des cas une chemise. Et dans ce cas précis, elle est blanche.
+
 ![dcw_chemise]({{site.url}}/{{site.baseurl}}img/dcw_chemise.jpg)
 
 Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les touches de wax pour peaufiner. Les motifs du tissus sont très forts donc j'ai du rester simple pour ne pas gâcher la tenue globale et en faire trop.
