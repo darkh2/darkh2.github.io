@@ -67,6 +67,10 @@ Toujours et encore les basiques. Rien de tel que de commencer par une pièce ave
 
 Le jean bleu pour le décontracté. Pour eviter de sortir du dress code, je n'ai pas mis de pantalon habillé ou de chino. Puis en voyant que Claudia portait un jean, je me suis dis que j'avais bien fais de choisir cet élément.
 
+![dcw_jean]({{site.url}}/{{site.baseurl}}img/dcw_jean.jpg)
+
+
+
 ![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
 
 ![dcw_custom]({{site.url}}/{{site.baseurl}}img/dcw_custom.jpg)
