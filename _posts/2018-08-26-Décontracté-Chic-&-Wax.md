@@ -53,6 +53,10 @@ J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mo
 
 * Sandales : **38 Euros** sur Nasty Gal. [Lien](https://www.nastygal.com/eu/loud-and-clear-heel/AGG89851.html)
 
+Total : **209 Euros.**  
+
+Le prochain projet serait peut-être que je sois le personal shopper de notre fameuse styliste. Ce sera la relookeuse relookée qui sait.  
+
 ### DCW by Hyke
 
 Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de mariage de mon ami et sa femme, je n'aurais pas eu ce tissu. Et sans ce tissu cette veste bombers n'aurait sans doute jamais vu le jour. Voyez vous a quel point savoir faire plusieurs choses est important. Même si les domaines sont totalement différents. Croyez aux brèches! Elles peuvent vous apporter énormément. 
