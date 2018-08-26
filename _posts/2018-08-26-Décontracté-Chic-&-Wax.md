@@ -43,7 +43,7 @@ Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec
 
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné ! Je suis sûr que grâce à notre rencontre, elle fera plus attention aux prix. Chacun apprenant de l'autre. La vie est belle !
 
-* Veste verte Wax : **60 Euros** chez Bonobo.
+* Veste verte wax : **60 Euros** chez Bonobo.
 
 * Body blanc : **25 Euros** à Naanaa ? (Vous avez de ces noms de magasins très atypiques dîtes donc !).
 
@@ -72,6 +72,12 @@ Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les 
 * Sneakers blanches plates : **20 Euros** chez Zara. Vous pouvez également les retrouver dans la tenue [Keep It 100 part 2](http://www.crevardstyle.com/Keep-It-100-part-2).
 
 * Ceinture avec tissu wax : c'est la ceinture de la tenue [Lucky Fit](http://www.crevardstyle.com/Lucky-Fit) que j'avais eu pour **5 Euros** sur aliexpress et que j'ai customisé avec le même tissu que la veste.
+
+* Noeud papillon en bois avec tissu wax : de la même manière que la ceinture, j'ai acheté un noeud papillon en bois sur aliexpress à moins de **3 Euros** et j'y ai collé le tissu par dessus. Vive les Brèches !
+
+* Veste bomber réversible wax : la confection par le couturier m'a coûté 70 Euros pour du sur-mesure sachant que j'ai également acheté la fermeture zip à 5 Euros. Le tissu du côté inverse m'a coûté 20 Euros les 6 yards. Mais il me reste 3 yards. Donc le calcul est de 70 + 5 + 10 = **85 Euros**.
+
+Total : **141 Euros**. Un très bon compromis pour avoir sa propre veste avec un coût relativement bas. 
 
 L'avantage de cet article est qu'il est aussi bien destiné aux femmes qu'aux hommes. Quand bien même qu'il y ait une prédominance pour hommes. Comment je gonfle les pecs là ! 
 
