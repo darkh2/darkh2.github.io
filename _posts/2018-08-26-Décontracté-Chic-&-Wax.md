@@ -107,4 +107,4 @@ Total : **141 Euros**. Un très bon compromis pour avoir sa propre veste avec un
 
 L'avantage de cet article est qu'il est aussi bien destiné aux femmes qu'aux hommes. Quand bien même qu'il y ait une prédominance pour hommes. Comment je gonfle les pecs là ! 
 
-(Article en cours d'élaboration...)
+![dcw_end]({{site.url}}/{{site.baseurl}}img/dcw_end.jpg)
