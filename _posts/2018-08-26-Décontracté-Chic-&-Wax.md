@@ -20,7 +20,7 @@ Claudia est consultante en image. Mais pas que. Elle prône également la multic
 
 ### Rencontre et shooting
 
-J'ai été fortement impressioné que Claudia me propose de faire ce shooting afin de mettre en valeur nos styles. Cela nous a permis de nous rencontrer et d'échanger sur nos visions de la vie et également sur tout ce qui tourne autour de la mise en valeur d'une personne. Lucia, notre photographe, nous a également fait l'honneur d'être notre fidèle sniper du cliché.
+J'ai été fortement impressioné que Claudia me propose de faire ce shooting afin de mettre en valeur nos styles. Cela nous a permis de nous rencontrer et d'échanger sur nos visions de la vie et également sur tout ce qui tourne autour de la mise en valeur d'une personne. Lucia, notre photographe, nous a également fait l'honneur d'être notre fidèle sniper du cliché. Son profil Instagram : [@lpszk](https://www.instagram.com/lpszk)
 
 
 ### DCW by Claudia
