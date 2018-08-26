@@ -41,7 +41,17 @@ Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec
 
 #### Crevard Stylé : ça va elle pèse dans le game Claudia !
 
-J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
+J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné ! Je suis sûr que grâce à notre rencontre, elle fera plus attention aux prix. Chacun apprenant de l'autre. La vie est belle !
+
+* Veste verte Wax : **60 Euros** chez Bonobo.
+
+* Body blanc : **25 Euros** à Naanaa ? (Vous avez de ces noms de magasins très atypiques dîtes donc !).
+
+* Bretelles noires : **35 Euros** chez Sacred Hawk.
+
+* Jean bleu : **51 Euros** sur Asos.
+
+* Sandales : **38 Euros** sur Nasty Gal. [Lien](https://www.nastygal.com/eu/loud-and-clear-heel/AGG89851.html)
 
 ### DCW by Hyke
 
