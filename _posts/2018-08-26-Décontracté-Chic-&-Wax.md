@@ -69,7 +69,9 @@ Le jean bleu pour le décontracté. Pour eviter de sortir du dress code, je n'ai
 
 ![dcw_jean]({{site.url}}/{{site.baseurl}}img/dcw_jean.jpg)
 
+De la même manière que pour le jean, le choix de la paire de sneakers blanches est lié encore une fois pour le côté décontracté. J'ai déjà porté cette paire dans la précédente tenue [Keep It 100 part 2](http://www.crevardstyle.com/Keep-It-100-part-2).
 
+![dcw_jump]({{site.url}}/{{site.baseurl}}img/dcw_jump.jpg)
 
 ![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
 
