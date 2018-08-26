@@ -16,7 +16,7 @@ Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime l
 
 ### Who is Claudia ?
 
-Claudia est consultante en image. Mais pas que. Elle prône également la multicompétence grâce à ses fonctions de styliste, personal shopper et blogueuse. Elle relooke aussi bien les femmes que les hommes. Je suis certain qu'elle possède encore d'autres compétences enfouies en elle. Des Brèches cachées qui verront sans doute le jour au fil du temps... La partie blog de son site est très intéressante. Et même en tant qu'homme, les articles que j'ai lu m'ont beaucoup appris sur le style. Elle propose également ses services sur son site. Voici le lien : [BDS Relooking](https://www.bds-relooking.com) 
+Claudia est consultante en image. Mais pas que. Elle prône également la [multicompétence](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-2) grâce à ses fonctions de styliste, personal shopper et blogueuse. Elle relooke aussi bien les femmes que les hommes. Je suis certain qu'elle possède encore d'autres compétences enfouies en elle. Des Brèches cachées qui verront sans doute le jour au fil du temps... La partie blog de son site est très intéressante. Et même en tant qu'homme, les articles que j'ai lu m'ont beaucoup appris sur le style. Elle propose également ses services sur son site. Voici le lien : [BDS Relooking](https://www.bds-relooking.com) 
 
 ### Rencontre et shooting
 
