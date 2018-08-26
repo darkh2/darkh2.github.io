@@ -39,7 +39,7 @@ Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec
 ![dcw_c_veste2]({{site.url}}/{{site.baseurl}}img/dcw_c_veste2.jpg)
 ![dcw_c_veste3]({{site.url}}/{{site.baseurl}}img/dcw_c_veste3.jpg)
 
-#### Crevard Stylé : ça va elle pèse dans le game Claudia !
+### Crevard Stylé : ça va elle pèse dans le game Claudia !
 
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné ! Je suis sûr que grâce à notre rencontre, elle fera plus attention aux prix. Chacun apprenant de l'autre. La vie est belle !
 
@@ -63,7 +63,7 @@ Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de
 
 Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les touches de wax pour peaufiner. Les motifs du tissus sont très forts donc j'ai du rester simple pour ne pas gâcher la tenue globale et en faire trop.
 
-#### Crevard Stylé : la consolidation entre économie et bons investissements.
+### Crevard Stylé : la consolidation entre économie et bons investissements.
 
 * Chemise blanche : **8 Euros** à Primark.
 
