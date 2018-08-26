@@ -36,6 +36,9 @@ En restant dans la dynamique simple et originale, la paire de sandales mettent s
 
 Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec ces motifs me donnent le sourire. On gagne en originalité. En fait, on gagne en tout ! Nous ne savions même pas avant notre shooting que la couleur de la veste de l'un et l'autre serait la même. Mais avec un ton différent.
 
+![dcw_c_veste2]({{site.url}}/{{site.baseurl}}img/dcw_c_veste2.jpg)
+![dcw_c_veste3]({{site.url}}/{{site.baseurl}}img/dcw_c_veste3.jpg)
+
 #### Crevard Stylé : ça va elle pèse dans le game Claudia !
 
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
