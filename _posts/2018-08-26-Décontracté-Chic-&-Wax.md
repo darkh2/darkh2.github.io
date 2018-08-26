@@ -65,6 +65,12 @@ Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les 
 
 #### Crevard Stylé : la consolidation entre économie et bons investissements.
 
+* Chemise blanche : **8 Euros** à Primark.
+
+* Jean bleu : **20 Euros** à Pull & Bear.
+
+* Sneakers blanches plates : **20 Euros** chez Zara. Vous pouvez également les retrouver dans la tenue [Keep It 100 part 2](http://www.crevardstyle.com/Keep-It-100-part-2).
+
 L'avantage de cet article est qu'il est aussi bien destiné aux femmes qu'aux hommes. Quand bien même qu'il y ait une prédominance pour hommes. Comment je gonfle les pecs là ! 
 
 (Article en cours d'élaboration...)
