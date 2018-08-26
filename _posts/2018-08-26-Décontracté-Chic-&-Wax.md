@@ -69,6 +69,8 @@ Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les 
 
 ![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
 
+![dcw_custom]({{site.url}}/{{site.baseurl}}img/dcw_custom.jpg)
+
 ### Crevard Stylé : la consolidation entre économie et bons investissements.
 
 * Chemise blanche : **8 Euros** à Primark.
