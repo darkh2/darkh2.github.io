@@ -26,7 +26,7 @@ J'ai été fortement impressioné que Claudia me propose de faire ce shooting af
 
 ### DCW by Claudia
 
-Baptisez-moi mes frères ! Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qui est... Non ! On le sait déjà. Ce que j'apprécie dans un premier temps, c'est le côté décontracté. Un bon jean bleu simple. Avec lequel elle a assemblé un body blanc en dentelle très original. Les bretelles noires sont magnifiques et donnent un rendu non négligeable. On sent que les détails peuvent vraiment faire gagner dans la puissance du style.
+Baptisez-moi mes frères ! Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qui est... Non ! On le sait déjà. Ce que j'apprécie dans un premier temps, c'est le côté décontracté. Un bon jean bleu simple. Avec lequel elle a assemblé un body blanc en dentelle très original. Les bretelles noires sont magnifiques et mettent en avant le côté chic de la tenue pour donner un rendu loin d'être négligeable. On sent que les détails peuvent vraiment faire gagner dans la puissance du style.
 
 ![dcw_c_decontracte]({{site.url}}/{{site.baseurl}}img/dcw_c_decontracte.jpg)
 
