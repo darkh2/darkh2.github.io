@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2018-08-26T00:00:00.000Z
+date: {}
 categories: crevard-style exceptions articles
 author_slug: hyke
 feature_image: dcw_main3.jpg
@@ -12,7 +12,7 @@ Un article riche en exceptions que j'ai le très grand plaisir de vous concocté
 ***Décontracté, Chic, avec une touche de Wax.***  
 Si vous me suivez sur les réseaux sociaux, vous savez pertinemment que j'aime le wax et relever de nouveaux défis. Je vais pour la première fois, détailler la tenue d'une femme tout en restant dans mon registre du Crevard Stylé. Faîtes un voeu, c'est une première. Et ensuite je vous ferai part d'une nouvelle étape dans le développement de mon style. Honneur aux femmes ... 
 
-![dcw_main2]({{site.url}}/{{site.baseurl}}img/dcw_main3.jpg)
+![dcw_main3]({{site.url}}/{{site.baseurl}}img/dcw_main3.jpg)
 
 ### Who is Claudia ?
 
@@ -21,6 +21,8 @@ Claudia est consultante en image. Mais pas que. Elle prône également la multic
 ### Rencontre et shooting
 
 J'ai été fortement impressioné que Claudia me propose de faire ce shooting afin de mettre en valeur nos styles. Cela nous a permis de nous rencontrer et d'échanger sur nos visions de la vie et également sur tout ce qui tourne autour de la mise en valeur d'une personne. Lucia, notre photographe, nous a également fait l'honneur d'être notre fidèle sniper du cliché. Son profil Instagram : [@lpszk](https://www.instagram.com/lpszk)
+
+![dcw_shooting]({{site.url}}/{{site.baseurl}}img/dcw_shooting.jpg)
 
 ### DCW by Claudia
 
