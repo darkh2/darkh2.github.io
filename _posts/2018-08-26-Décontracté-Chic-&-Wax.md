@@ -20,11 +20,13 @@ Claudia est consultante en image. Mais pas que. Elle prône également la multic
 
 ### Rencontre et shooting
 
-Dire dans le détail que j'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
+J'ai été fortement impressioné que Claudia me propose de faire ce shooting afin de mettre en valeur nos styles. Cela nous a permis de nous rencontrer et d'échanger sur nos visions de la vie et également sur tout ce qui tourne autour de la mise en valeur d'une personne. Lucia, notre photographe, nous a également fait l'honneur d'être notre fidèle sniper du cliché.
+
 
 ### DCW by Claudia
 
 J'ai l'honneur plaisir de décrire la tenue de notre chère styliste. 
+J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
 
 ### DCW by Hyke
 
