@@ -26,7 +26,10 @@ J'ai été fortement impressioné que Claudia me propose de faire ce shooting af
 
 ### DCW by Claudia
 
-J'ai l'honneur plaisir de décrire la tenue de notre chère styliste. 
+Baptisez-moi mes frères ! Je vais décrire la tenue de notre chère styliste. Rappelons le thème qui est... Non ! On le sait déjà. Ce que j'apprécie dans un premier temps, c'est le côté décontracté. Un bon jean bleu simple. Avec lequel elle a assemblé un body blanc en dentelle très original. Les bretelles noires sont magnifiques et donnent un rendu non négligeable. On sent que les détails peuvent vraiment faire gagner dans la puissance du style.
+
+![dcw_main3]({{site.url}}/{{site.baseurl}}img/dcw_main3.jpg)
+
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
 
 ### DCW by Hyke
