@@ -67,6 +67,8 @@ Toujours et encore les basiques. Rien de tel que de commencer avec une pièce av
 
 Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les touches de wax pour peaufiner. Les motifs du tissus sont très forts donc j'ai du rester simple pour ne pas gâcher la tenue globale et en faire trop.
 
+![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
+
 ### Crevard Stylé : la consolidation entre économie et bons investissements.
 
 * Chemise blanche : **8 Euros** à Primark.
