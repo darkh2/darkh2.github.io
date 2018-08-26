@@ -26,13 +26,15 @@ J'ai été fortement impressioné que Claudia me propose de faire ce shooting af
 
 ### DCW by Claudia
 
-Baptisez-moi mes frères ! Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qui est... Non ! On le sait déjà. Ce que j'apprécie dans un premier temps, c'est le côté décontracté. Un bon jean bleu simple. Avec lequel elle a assemblé un body blanc en dentelle très original. Les bretelles noires sont magnifiques et mettent en avant le côté chic de la tenue pour donner un rendu loin d'être négligeable. On sent que les détails peuvent vraiment faire augmenter la puissance du style.
+Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qui est... Non ! On le sait déjà. Ce que j'apprécie dans un premier temps, c'est le côté décontracté. Un bon jean bleu simple. Avec lequel elle a assemblé un body blanc en dentelle très original. Les bretelles noires sont magnifiques et mettent en avant le côté chic de la tenue pour donner un rendu loin d'être négligeable. On sent que les détails peuvent vraiment faire augmenter la puissance du style.
 
 ![dcw_c_decontracte]({{site.url}}/{{site.baseurl}}img/dcw_c_decontracte.jpg)
 
 En restant dans la dynamique simple et original, la paire de sandales donnent un très bon impact sur la continuité de la tenue. Le fait que ses pieds soient découverts accompagnés de l'ourelet du jean, ajoute une meilleure vue sur l'harmonie générale de la tenue. Les talons donnent leur effet de puissance supplémentaire.
 
 ![dcw_c_shoes]({{site.url}}/{{site.baseurl}}img/dcw_c_shoes.jpg)
+
+
 
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné !
 
