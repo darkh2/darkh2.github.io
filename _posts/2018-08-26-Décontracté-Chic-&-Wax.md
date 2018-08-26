@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2018-08-26T00:00:00.000Z
+date: {}
 categories: crevard-style exceptions articles
 author_slug: hyke
 feature_image: dcw_main3.jpg
@@ -34,7 +34,7 @@ En restant dans la dynamique simple et originale, la paire de sandales mettent s
 
 ![dcw_c_shoes]({{site.url}}/{{site.baseurl}}img/dcw_c_shoes.jpg)
 
-Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec ces motifs me donnent le sourire. On gagne en originalité. En fait, on gagne en tout ! Nous ne savions même pas avant notre shooting que la couleur de la veste de l'un et l'autre serait la même. Mais avec un ton différent.
+Et enfin la pièce maîtresse ! Cette superbe veste verte en imprimé wax ! Ce tissu avec ces motifs me donnent le sourire. On gagne en originalité. En fait, on gagne en tout ! Nous ne savions même pas avant notre shooting que la couleur de la veste de l'un et l'autre serait la même. Mais avec un ton différent.
 
 ![dcw_c_veste2]({{site.url}}/{{site.baseurl}}img/dcw_c_veste2.jpg)
 ![dcw_c_veste3]({{site.url}}/{{site.baseurl}}img/dcw_c_veste3.jpg)
@@ -43,7 +43,7 @@ Et enfin la pièce maîtresse ! Cette superbe veste verte en wax ! Ce tissu avec
 
 J'espère que Claudia apportera une touche Crevarde Stylée la prochaine fois mouhahaha. Mais le rendu au final est très soigné ! Je suis sûr que grâce à notre rencontre, elle fera plus attention aux prix. Chacun apprenant de l'autre. La vie est belle !
 
-* Veste verte wax : **60 Euros** chez Bonobo.
+* Veste verte imprimé wax : **60 Euros** chez Bonobo.
 
 * Body blanc : **25 Euros** à Naanaa ? (Vous avez de ces noms de magasins très atypiques dîtes donc !).
 
