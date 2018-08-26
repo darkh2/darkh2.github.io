@@ -73,11 +73,15 @@ De la même manière que pour le jean, le choix de la paire de sneakers blanches
 
 ![dcw_jump]({{site.url}}/{{site.baseurl}}img/dcw_jump.jpg)
 
-
+#### Nouvelle étape dans le développement du style
 
 ![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
 
+Avant d'arriver à la pièce forte, il me fallait jouer sur les accessoires afin de toujours garder en puissance sur le style au moment d'enlever la veste qui possède vraiment ce qui finalise la tenue. J'ai dû user d'imagination. Pourquoi ne pas customiser moi-même mes accessoires ? J'ai l'impression qu'il n'y a pas de limite dans le développement de son style et donc en général.
+
 ![dcw_custom]({{site.url}}/{{site.baseurl}}img/dcw_custom.jpg)
+
+
 
 ### Crevard Stylé : la consolidation entre économie et bons investissements.
 
