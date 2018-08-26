@@ -57,9 +57,7 @@ Total : **209 Euros.**
 
 Le prochain projet serait peut-être que je sois le personal shopper de notre fameuse styliste. Ce sera la relookeuse relookée qui sait.  
 
-### DCW by Hyke
-
-(Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de mariage de mon ami et sa femme, je n'aurais pas eu ce tissu. Et sans ce tissu cette veste bombers n'aurait sans doute jamais vu le jour. Voyez vous a quel point savoir faire plusieurs choses est important. Même si les domaines sont totalement différents. Croyez aux brèches! Elles peuvent vous apporter énormément.) 
+### DCW by Hyke 
 
 Toujours et encore les basiques. Rien de tel que de commencer par une pièce avec laquelle je vais pouvoir avoir un maximum d'options. Puis n'oublions pas que nous avons un thème à respecter. Qui dit Chic pour nous les hommes, impliquent à 95% des cas, une chemise. Et dans ce cas précis, elle est blanche.
 
@@ -81,7 +79,13 @@ Avant d'arriver à la pièce forte, il me fallait jouer sur les accessoires afin
 
 ![dcw_custom]({{site.url}}/{{site.baseurl}}img/dcw_custom.jpg)
 
+Customiser ses accessoires c'est bien mais je ne me repose jamais sur mes acquis. J'ai décidé de créer ma propre veste bomber également. Surtout que j'ai reçu ce tissu en cadeau pour avoir donné une prestation de DJ.
 
+![dcw_wax]({{site.url}}/{{site.baseurl}}img/dcw_wax.jpg)
+
+Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de mariage de mon ami et sa femme, je n'aurais pas eu ce tissu. Et sans ce tissu, cette veste n'aurait sans doute jamais vu le jour. Voyez-vous à quel point savoir faire plusieurs choses est important. Même si les domaines sont totalement différents. Croyez aux brèches! Elles peuvent vous apporter énormément.
+
+![dcw_bomber]({{site.url}}/{{site.baseurl}}img/dcw_bomber.jpg)
 
 ### Crevard Stylé : la consolidation entre économie et bons investissements.
 
