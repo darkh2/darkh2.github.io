@@ -71,6 +71,8 @@ Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les 
 
 * Sneakers blanches plates : **20 Euros** chez Zara. Vous pouvez également les retrouver dans la tenue [Keep It 100 part 2](http://www.crevardstyle.com/Keep-It-100-part-2).
 
+* Ceinture avec tissu wax : c'est la ceinture de la tenue [Lucky Fit](http://www.crevardstyle.com/Lucky-Fit) que j'avais eu pour **5 Euros** sur aliexpress et que j'ai customisé avec le même tissu que la veste.
+
 L'avantage de cet article est qu'il est aussi bien destiné aux femmes qu'aux hommes. Quand bien même qu'il y ait une prédominance pour hommes. Comment je gonfle les pecs là ! 
 
 (Article en cours d'élaboration...)
