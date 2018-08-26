@@ -30,7 +30,7 @@ Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qu
 
 ![dcw_c_decontracte]({{site.url}}/{{site.baseurl}}img/dcw_c_decontracte.jpg)
 
-En restant dans la dynamique simple et original, la paire de sandales donnent un très bon impact sur la continuité de la tenue. Le fait que ses pieds soient découverts accompagnés de l'ourelet du jean, ajoute une meilleure vue sur l'harmonie générale de la tenue. Les talons donnent leur effet de puissance supplémentaire.
+En restant dans la dynamique simple et originale, la paire de sandales mettent ses pieds à découvert plus que des sandales classiques. Accompagnés de l'ourelet du jean, cela ajoute une meilleure harmonie à la tenue. Ce n'est pas une styliste pour rien. Elle a l'oeil du faucon ! Les talons donnent leur effet de puissance supplémentaire.
 
 ![dcw_c_shoes]({{site.url}}/{{site.baseurl}}img/dcw_c_shoes.jpg)
 
