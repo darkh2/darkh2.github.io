@@ -71,13 +71,12 @@ De la même manière que pour le jean, le choix de la paire de sneakers blanches
 
 ![dcw_jump]({{site.url}}/{{site.baseurl}}img/dcw_jump.jpg)
 
-#### Nouvelle étape dans le développement du style
-
-![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
+### Nouvelle étape dans le développement du style  
 
 Avant d'arriver à la pièce forte, il me fallait jouer sur les accessoires afin de toujours garder en puissance sur le style au moment d'enlever la veste qui possède vraiment ce qui finalise la tenue. J'ai dû user d'imagination. Pourquoi ne pas customiser moi-même mes accessoires ? J'ai l'impression qu'il n'y a pas de limite dans le développement de son style et donc en général.
 
 ![dcw_custom]({{site.url}}/{{site.baseurl}}img/dcw_custom.jpg)
+![dcw_accessoires]({{site.url}}/{{site.baseurl}}img/dcw_accessoires.jpg)
 
 Customiser ses accessoires c'est bien mais je ne me repose jamais sur mes acquis. J'ai décidé de créer ma propre veste bomber également. Surtout que j'ai reçu ce tissu en cadeau pour avoir donné une prestation de DJ.
 
