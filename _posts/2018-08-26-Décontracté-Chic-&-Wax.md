@@ -30,7 +30,7 @@ Je vais enfin décrire la tenue de notre chère styliste. Rappelons le thème qu
 
 ![dcw_c_decontracte]({{site.url}}/{{site.baseurl}}img/dcw_c_decontracte.jpg)
 
-En restant dans la dynamique simple et originale, la paire de sandales mettent ses pieds à découvert plus que des sandales classiques. Accompagnés de l'ourelet du jean, cela ajoute une meilleure harmonie à la tenue. Ce n'est pas une styliste pour rien. Elle a l'oeil du faucon ! Les talons donnent leur effet de puissance supplémentaire.
+En restant dans la dynamique simple et originale, la paire de sandales mettent ses pieds à découvert plus que des sandales classiques. Accompagnés de l'ourlet du jean, cela ajoute une meilleure harmonie à la tenue. Ce n'est pas une styliste pour rien. Elle a l'oeil du faucon ! Les talons donnent leur effet de puissance supplémentaire.
 
 ![dcw_c_shoes]({{site.url}}/{{site.baseurl}}img/dcw_c_shoes.jpg)
 
@@ -63,7 +63,7 @@ Toujours et encore les basiques. Rien de tel que de commencer par une pièce ave
 
 ![dcw_chemise]({{site.url}}/{{site.baseurl}}img/dcw_chemise.jpg)
 
-Le jean bleu pour le décontracté. Pour eviter de sortir du dress code, je n'ai pas mis de pantalon habillé ou de chino. Puis en voyant que Claudia portait un jean, je me suis dis que j'avais bien fais de choisir cet élément.
+Le jean bleu pour le décontracté. Pour eviter de sortir du dress code, je n'ai pas mis de pantalon habillé ou de chino. Puis en voyant que Claudia portait un jean, je me suis dis que j'avais bien fait de choisir cet élément.
 
 ![dcw_jean]({{site.url}}/{{site.baseurl}}img/dcw_jean.jpg)
 
