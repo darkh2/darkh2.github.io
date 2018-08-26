@@ -87,6 +87,8 @@ Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de
 
 ![dcw_bomber]({{site.url}}/{{site.baseurl}}img/dcw_bomber.jpg)
 
+Mission accompli ! Thème respecté avec cette veste dont je tiens un réel intêret. De plus, elle est réversible. Vous serez sans doute amenés à voir l'autre côté si vous êtes sages.
+
 ### Crevard Stylé : la consolidation entre économie et bons investissements.
 
 * Chemise blanche : **8 Euros** à Primark.
