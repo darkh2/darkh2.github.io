@@ -46,7 +46,7 @@ Les bienfaits de la multicompétence. Si je n'avais pas mixé pour la soirée de
 
 Le jean bleu pour le décontracté. La chemise pour le côté chic et enfin les touches de wax pour peaufiner. Les motifs du tissus sont très forts donc j'ai du rester simple pour ne pas gâcher la tenue globale et en faire trop.
 
-#### Crevard Stylé : la consolidation entre économie et bons investissements
+#### Crevard Stylé : la consolidation entre économie et bons investissements.
 
 L'avantage de cet article est qu'il est aussi bien destiné aux femmes qu'aux hommes. Quand bien même qu'il y ait une prédominance pour hommes. Comment je gonfle les pecs là ! 
 
