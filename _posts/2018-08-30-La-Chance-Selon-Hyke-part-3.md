@@ -40,9 +40,9 @@ Et puis de toute façon, plaire à tout le monde, c'est plaire à n'importe qui.
 
 Faire cette abstraction de ce que l'on va penser de vous à travers votre style ou autre est déjà une prise de décision d'inconfort donc un sacrifice de Chance Maîtrisable. Ensuite, appliquer les actions, c'est à dire, de s'habiller sans se soucier de l'avis d'autrui est une action risquée, donc une refavorisation excessive de la Chance Maîtrisable. C'est tout ou rien. On plaît ou pas. Voilà le lien entre l'audace et le style.
 
-### L'audace au delà du style.
+### L'audace au delà du style : le charisme.
 
-Si le charisme est lié au style alors cela veut dire que le charisme est lié à la Chance Maîtrisable par conséquence la Chance Globale. Une personne audacieuse est forcément une personne charismatique.
+Le charisme est souvent énoncé quand on parle de style. S'il est lié au style, alors cela veut dire que le charisme est également lié à la Chance Maîtrisable et par conséquent, la Chance Globale. Une personne audacieuse est forcément une personne charismatique. C'est dans les actes que le charisme va se mettre en avant.
 
 Le charisme l'audace et la maîtrise des piliers favorisent la prise de risque et la saisie d'opportunités dans la vie en général. Ce qui va favoriser le nombre d'opportunités et la fréquence sera fortement lié à la Chance Absolue. En d'autres termes l'opportunité A viendra a un instant T. C'est la Chance Absolue qui déterminera T et la nature de A.
 
