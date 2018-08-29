@@ -46,6 +46,3 @@ Le charisme est souvent énoncé quand on parle de style. S'il est lié au style
 
 Le charisme l'audace et la maîtrise des piliers favorisent la prise de risque et la saisie d'opportunités dans la vie en général. Ce qui va favoriser le nombre d'opportunités et la fréquence sera fortement lié à la Chance Absolue. En d'autres termes l'opportunité A viendra a un instant T. C'est la Chance Absolue qui déterminera T et la nature de A.
 
-4. L'avantage de préparer le terrain (Pilier?)
-
-Lien avec le style : Repérage et essayage
