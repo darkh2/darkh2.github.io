@@ -23,7 +23,7 @@ Cette audace, elle commence de vous-même. Elle est révélatrice de votre capac
 
 ### L'audace et le style.
 
-J'ai toujours mis en avant le fait de me démarquer d'être unique. Et le refléter a travers mon style, ce que je dégage et ma façon d'être. Pour cela il faut prendre conscience que si l'on veut se démarquer il faut avoir cette tendance à faire des choses que la masse ne ferait pas. Même si vous vous exposez à la critique. Rien à foutre. Fidèle à soi-même quoi qu'il en coûte.
+J'ai toujours mis en avant le fait de me démarquer d'être unique. Et le refléter a travers mon style, ce que je dégage et ma façon d'être. Pour cela il faut prendre conscience que si l'on veut se démarquer il faut avoir cette tendance à faire des choses que la masse ne ferait pas. Même si vous vous exposez à la critique. Rien à foutre. Oh mais quelle vulgarité, dîtes-donc ! Fidèle à soi-même quoi qu'il en coûte.
 
 ### L'audace au dela du style.
 
