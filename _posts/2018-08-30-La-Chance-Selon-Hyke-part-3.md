@@ -13,7 +13,7 @@ Pour cette troisième partie d'articles liée à la Chance, j'aimerais approfond
 [La Chance Selon Hyke part 2](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-2)  
 
 
-Une forme optimisée de la Chance Maîtrisable !
+### Une forme optimisée de la Chance Maîtrisable !
 
 Parler de la situation où par moment il faut faire en sorte de défavoriser la Chance Maîtrisable pour provoquer une situation où on va la refavoriser excessivement. Ça s'appelle tout simplement la prise de risque. Se mettre dans une situation d'inconfort et l'audace en fait pleinement partie.
 
@@ -21,10 +21,11 @@ Si vous avez lu les parties précédentes concernant la Chance, vous avez pu vou
 
 Cette audace, elle commence de vous-même. Elle est révélatrice de votre capacité à prendre des risques. Faire abstraction de toute forme de négatif même si vous savez pertinemment qu'au fond il y en a.
 
-2. L'audace et le style.
+### L'audace et le style.
+
 J'ai toujours mis en avant le fait de me démarquer d'être unique. Et le refléter a travers mon style, ce que je dégage et ma façon d'être. Pour cela il faut prendre conscience que si l'on veut se démarquer il faut avoir cette tendance à faire des choses que la masse ne ferait pas. Même si vous vous exposez à la critique. Rien à foutre. Fidèle à soi-même quoi qu'il en coûte.
 
-3. L'audace au dela du style.
+### L'audace au dela du style.
 
 Si le charisme est lié au style alors cela veut dire que le charisme est lié à la Chance Maîtrisable par conséquence la Chance Globale. Une personne audacieuse est forcément une personne charismatique.
 
