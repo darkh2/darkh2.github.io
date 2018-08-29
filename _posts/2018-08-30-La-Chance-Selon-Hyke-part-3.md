@@ -23,8 +23,13 @@ Souvenez-vous de la situation que j'avais énoncé dans la [première partie](ht
 "Vous comptez prendre votre bus pour vous rendre à votre travail à 7h13 donc vous faîtes en sorte d’être à l’arrêt de bus à 7h10. Vous prévoyez le temps nécéssaire du trajet de votre domicile jusqu’à l’arrêt de bus. Au moment de vous rapprocher de l’arrêt, vous apercevez votre bus arriver au loin qui possède un peu d’avance comme par hasard (la partie Absolue ne joue pas en votre faveur). Que faîtes-vous ?  
 Sachant que si vous ratez le bus, en prenant le prochain vous risquez fortement d’être en retard et ce n’est pas ce que vous voulez. C’est là que la partie Maitrisable entre en jeu. Le simple fait de courrir jusqu’à l’arrêt de bus va vous optimiser les chances d’avoir le bus et vous éviter d’arriver en retard au boulot. En d’autres termes vous avez saisi l’occasion de mettre toutes les chances de votre côté en dépit du fait que certains imprévus se sont produits. Comprenez bien que vous devez impérativement vous mettre dans la tête que la seule variable dépendante de cette partie Maitrisable c’est uniquement vous-même donc sachez prendre les bonnes décisions."
 
-Par moment, il faudra faire en sorte de sacrifier une partie de la Chance Maîtrisable, pour provoquer une situation où l'on va la refavoriser excessivement. Cela s'appelle tout simplement la prise de risque. Se mettre dans une situation d'inconfort et l'audace en fait pleinement partie. Détendez-vous, vous allez très vite comprendre.  
-Reprenons l'exemple du bus. Le fait de prendre la décision de courrir après ce dernier, entraîne un sacrifice, un inconfort, ainsi que l'action qui en résulte. Le risque de rater votre bus est toujours non-négligeable, mais il se tend à se réduire.
+Par moment, il faudra faire en sorte de sacrifier une partie de la Chance Maîtrisable, pour provoquer une situation où l'on va la refavoriser excessivement. Cela s'appelle tout simplement la prise de risque. Se mettre dans une situation d'inconfort. Détendez-vous, vous allez très vite comprendre.  
+Reprenons l'exemple du bus. Le fait de prendre la décision de courrir après ce dernier, entraîne un sacrifice, un inconfort, ainsi que l'action qui en résulte. Le risque de rater votre bus est toujours présent, mais il tend à se réduire.  
+* Décision d'inconfort : sacrifice de Chance Maîtrisable.
+* Action risquée : refavorisation excessive de la Chance Maîtrisable.
+* Résultats : positifs, et donc assurance d'avoir effectué cette prise de risque. Ou négatifs, mais on en tire un enseignement pour les futures situations.  
+
+La décision de prise de risque ainsi que le(s) action(s) qui en résultent, entraînent donc une optimisation de la Chance Maîtrisable et donc de la Chance Globale. Voilà ce que j'appelle l'Audace. J'aime mettre des majuscules. Je souffre de majusculonite mais cela reste bénin.
 
 Si vous avez lu les parties précédentes concernant la Chance, vous avez pu vous rendre compte que la Chance peut jouer en votre faveur si vous cherchez toujours à l'optimiser. Même s'il y a une partie que vous ne pouvez pas contrôler.
 
