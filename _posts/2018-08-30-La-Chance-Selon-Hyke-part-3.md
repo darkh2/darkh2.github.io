@@ -35,7 +35,10 @@ Si vous avez lu les parties précédentes concernant la Chance, vous avez pu vou
 
 ### L'audace et le style.
 
-J'ai toujours mis en avant le fait de me démarquer d'être unique. Et le refléter a travers mon style, ce que je dégage et ma façon d'être. Pour cela il faut prendre conscience que si l'on veut se démarquer il faut avoir cette tendance à faire des choses que la masse ne ferait pas. Même si vous vous exposez à la critique. Rien à foutre. Oh mais quelle vulgarité, dîtes-donc ! Fidèle à soi-même quoi qu'il en coûte.
+J'ai toujours mis en avant le fait de me démarquer et d'être unique. Et le refléter à travers mon style, ce que je dégage, et ma façon d'être. Pour cela, il faut prendre conscience que si l'on veut se démarquer, il faut avoir cette tendance à faire des choses que la masse ne ferait pas. Même si vous vous exposez à la critique. Rien à foutre. Oh mais quelle vulgarité, dîtes-donc ! Fidèle à soi-même quoi qu'il en coûte.  
+Et puis de toute façon, plaire à tout le monde, c'est plaire à n'importe qui.  
+
+Faire cette abstraction de ce que l'on va penser de vous à travers votre style ou autre est déjà une prise de décision d'inconfort donc un sacrifice de Chance Maîtrisable. Ensuite, appliquer les actions, c'est à dire, de s'habiller sans se soucier de l'avis d'autrui est une action risquée, donc une refavorisation excessive de la Chance Maîtrisable. C'est tout ou rien. On plaît ou pas. Voilà le lien entre l'audace et le style.
 
 ### L'audace au dela du style.
 
