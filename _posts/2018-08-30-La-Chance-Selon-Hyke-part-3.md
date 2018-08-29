@@ -6,9 +6,11 @@ categories: articles
 author_slug: hyke
 feature_image: audace.jpeg
 ---
-## La Chance selon Hyke (part. 3) : l'Audace.
+## La Chance selon Hyke part 3 (l'audace).
 
-1. Une forme optimisée de la Chance Maîtrisable !
+Pour cette troisième partie d'articles liée à la Chance, j'aimerais approfondir sur la partie Maîtrisable de celle-ci.
+
+Une forme optimisée de la Chance Maîtrisable !
 
 Parler de la situation où par moment il faut faire en sorte de défavoriser la Chance Maîtrisable pour provoquer une situation où on va la refavoriser excessivement. Ça s'appelle tout simplement la prise de risque. Se mettre dans une situation d'inconfort et l'audace en fait pleinement partie.
 
