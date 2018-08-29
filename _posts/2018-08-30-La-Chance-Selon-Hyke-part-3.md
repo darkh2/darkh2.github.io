@@ -8,7 +8,7 @@ feature_image: audace.jpeg
 ---
 ## La Chance selon Hyke part 3 (l'audace).
 
-Pour cette troisième partie d'articles liée à la Chance, j'aimerais approfondir sur la partie Maîtrisable de celle-ci. N'hésitez pas à aller consulter les précédentes parties sur les liens suivants :  
+Pour cette troisième partie d'articles liée à la Chance, j'aimerais approfondir sur la partie Maîtrisable de celle-ci. N'hésitez pas à aller consulter les précédentes parties afin de mieux comprendre les fondements de ce qui va suivre sur les liens suivants :  
 [La Chance Selon Hyke part 1](http://www.crevardstyle.com/La-Chance-Selon-Hyke)  
 [La Chance Selon Hyke part 2](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-2)  
 
