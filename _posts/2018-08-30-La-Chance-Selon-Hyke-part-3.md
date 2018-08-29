@@ -12,8 +12,17 @@ Pour cette troisième partie d'articles liée à la Chance, j'aimerais approfond
 [La Chance Selon Hyke part 1](http://www.crevardstyle.com/La-Chance-Selon-Hyke)  
 [La Chance Selon Hyke part 2](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-2)  
 
+### Rappel de la Chance Selon Hyke
+
+**Chance Globale = Chance Absolue + Chance Maîtrisable**  
+Si vous souhaitez plus de détails, consultez les parties précédentes.
 
 ### Une forme optimisée de la Chance Maîtrisable !
+
+Souvenez-vous de la situation que j'avais énoncé dans la [première partie](http://www.crevardstyle.com/La-Chance-Selon-Hyke) concernant le bus qui arrive en avance. Je vois que vous avez l'air d'avoir une flemme intersidérale. Pas d'inquiétude. Je vous remets le passage :  
+Vous comptez prendre votre bus pour vous rendre à votre travail à 7h13 donc vous faîtes en sorte d’être à l’arrêt de bus à 7h10. Vous prévoyez le temps nécéssaire du trajet de votre domicile jusqu’à l’arrêt de bus. Au moment de vous rapprocher de l’arrêt, vous apercevez votre bus arriver au loin qui possède un peu d’avance comme par hasard (la partie Absolue ne joue pas en votre faveur). Que faîtes-vous ?  
+Sachant que si vous ratez le bus, en prenant le prochain vous risquez fortement d’être en retard et ce n’est pas ce que vous voulez. C’est là que la partie Maitrisable entre en jeu. Le simple fait de courrir jusqu’à l’arrêt de bus va vous optimiser les chances d’avoir le bus et vous éviter d’arriver en retard au boulot. En d’autres termes vous avez saisi l’occasion de mettre toutes les chances de votre côté en dépit du fait que certains imprévus se sont produits. Comprenez bien que vous devez impérativement vous mettre dans la tête que la seule variable dépendante de cette partie Maitrisable c’est uniquement vous-même donc sachez prendre les bonnes décisions.
+
 
 Parler de la situation où par moment il faut faire en sorte de défavoriser la Chance Maîtrisable pour provoquer une situation où on va la refavoriser excessivement. Ça s'appelle tout simplement la prise de risque. Se mettre dans une situation d'inconfort et l'audace en fait pleinement partie.
 
