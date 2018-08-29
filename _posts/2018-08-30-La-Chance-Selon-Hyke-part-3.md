@@ -29,11 +29,9 @@ Reprenons l'exemple du bus. Le fait de prendre la décision de courrir après ce
 * Action risquée : refavorisation excessive de la Chance Maîtrisable.
 * Résultats : positifs, et donc assurance d'avoir effectué cette prise de risque. Ou négatifs, mais on en tire un enseignement pour les futures situations.  
 
-La décision de prise de risque ainsi que le(s) action(s) qui en résultent, entraînent donc une optimisation de la Chance Maîtrisable et donc de la Chance Globale. Voilà ce que j'appelle l'Audace. J'aime mettre des majuscules. Je souffre de majusculonite mais cela reste bénin.
+La décision de prise de risque ainsi que le(s) action(s) qui en résultent, entraînent donc une optimisation de la Chance Maîtrisable et donc de la Chance Globale. Voilà ce que j'appelle l'Audace. J'aime mettre des majuscules. Je souffre de majusculonite mais cela reste bénin. J'ai eu de l'audace pour laisser cette phrase ici.
 
-Si vous avez lu les parties précédentes concernant la Chance, vous avez pu vous rendre compte que la Chance peut jouer en votre faveur si vous cherchez toujours à l'optimiser. Même s'il y a une partie que vous ne pouvez pas contrôler.
-
-Cette audace, elle commence de vous-même. Elle est révélatrice de votre capacité à prendre des risques. Faire abstraction de toute forme de négatif même si vous savez pertinemment qu'au fond il y en a.
+Si vous avez lu les parties précédentes concernant la Chance, vous avez pu vous rendre compte qu'elle peut jouer en votre faveur que si vous cherchez toujours à l'optimiser. Même s'il y a une partie que vous ne pouvez pas contrôler.  Cette audace, elle commence de vous-même. Elle est révélatrice de votre capacité à prendre des risques. Faire abstraction de toute forme de négativité même si vous savez pertinemment qu'au fond, il y en a.
 
 ### L'audace et le style.
 
