@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 layout: post
 date: 1988-04-07T00:00:00.000Z
 author_slug: hyke
