@@ -21,6 +21,9 @@ Dans une tenue on remarque souvent une pièce forte. Cela peut être les Shoes o
 Dans le cas où la veste devient la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste. La tenue perd-elle tout son esthétisme ? D'où peut être l'importance d'avoir d'ores et déjà une pièce ou un ensemble fort de base sans la veste. À voir ...
 
 Prendre 2 types de photos
+Prendre Keep It 100 pt.3
+Shooting Eliot
+Selfie : mettre en avant le coté sans veste. et les pieces fortes ici chemise et shoes.
 Un avec lequel on voit qu'on perd en efficacité.
 Un avec lequel on voit qu'on garde toujours quelque chose.
 La puissance du style.
