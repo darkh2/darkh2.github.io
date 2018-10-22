@@ -10,9 +10,10 @@ feature_image: power.png
 
 Je suis certain que le nom de cet article vous a donné envie de le lire. Et croyez moi vous n'allez pas le regretter. Et dans le cas où vous le regretteriez, faîtes moi en part ! Satisfait ou remboursé ! La Puissance du style est présent en chacun de nous. Il faut la laisser s'exprimer. Chacun de nous est spécial. C'est grâce à cette puissance que l'on remarquera a quel point. Je ne m'arrêterai pas qu'à vous définir ce qu'est cette fameuse puissance. Vous saurez comment puiser dans le potentiel de votre style et vous sentir à toute patate quand vous vous admirerez devant votre miroir.
 Ceci est un article incontournable si vous voulez en apprendre plus sur votre style et le développement de celui ci.
-Terminologie : 
-Puissance DU Style : Puissance de style dans le sens générale qui peut comprendre tous types de style
-Puissance DE Style : Rendu potentiel visuel personnelle de son propre style qui peut être quantifier. Impact visuel esthétique. En gros ce que j'appelle la Puissance de style c'est à quel point la personne est stylée et possède un style fort et propre à elle même. C'est un tout.
+
+### Définition
+
+***Puissance DU Style*** : Puissance de style dans le sens générale qui peut comprendre tous types de style Rendu potentiel visuel personnelle de son propre style qui peut être quantifier. Impact visuel esthétique. En gros ce que j'appelle la Puissance de style c'est à quel point la personne est stylée et possède un style fort et propre à elle même. C'est un tout.
 
 Dans une tenue on remarque souvent une pièce forte. Cela peut être les Shoes ou la veste par exemple.
 
