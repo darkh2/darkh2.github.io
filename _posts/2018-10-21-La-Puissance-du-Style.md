@@ -14,7 +14,7 @@ Ceci est un article incontournable si vous voulez en apprendre plus sur votre st
 
 ### Définition
 
-***Puissance DU Style*** : Puissance de style dans le sens générale qui peut comprendre tous types de style Rendu potentiel visuel personnelle de son propre style qui peut être quantifier. Impact visuel esthétique. En gros ce que j'appelle la Puissance de style c'est à quel point la personne est stylée et possède un style fort et propre à elle même. C'est un tout.
+***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. En gros ce que j'appelle la Puissance de style c'est à quel point la personne est stylée et possède un style fort et propre à elle même. C'est un tout. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements.
 
 Dans une tenue on remarque souvent une pièce forte. Cela peut être les Shoes ou la veste par exemple.
 
