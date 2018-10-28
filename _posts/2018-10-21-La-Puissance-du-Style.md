@@ -23,6 +23,10 @@ Considérons le cas où la veste est la pièce forte. Si on la retire, que devie
 
 D'où peut être l'importance d'avoir d'ores et déjà une pièce ou un ensemble fort de base sans la veste. À voir ...
 
+### Comment optimiser sa Puissance ?
+
+Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de garder en puissance au moment où vous retirerez votre veste ou manteau. Maintenir son harmonie. C'est pour cela que vous devez éviter les looks trop unis.
+
 Prendre 2 types de photos
 Prendre Keep It 100 pt.3
 Shooting Eliot
