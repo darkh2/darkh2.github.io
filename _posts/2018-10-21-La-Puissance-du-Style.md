@@ -42,9 +42,6 @@ Prendre 2 types de photos
 Prendre Keep It 100 pt.3
 Shooting Eliot
 Selfie : mettre en avant le coté sans veste. et les pieces fortes ici chemise et shoes.
-Un avec lequel on voit qu'on perd en efficacité.
-Un avec lequel on voit qu'on garde toujours quelque chose.
-La puissance du style.
 Mettre en avant les différences de puissance avec et sans accessoires
 
 Si vous sentez que malgré que vous ayez assemblé les bonnes pièces mais que votre tenue est trop faible en puissance alors soit il vous manque des accessoires soit il n y a pas de pièce forte dans votre tenue ou encore la pièce forte en question nimpacte pas tant que ça 
