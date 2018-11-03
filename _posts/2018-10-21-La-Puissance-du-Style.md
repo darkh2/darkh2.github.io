@@ -31,6 +31,7 @@ Voyons un cas dans lequel on retire la pièce forte de la tenue.
 Une des raisons pour lesquelles on peut perdre en Puissance au moment de retirer la pièce forte
 
 ### Autres situations
+
 Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance si l'on modifie une des pièces fortes qui ne sera pas la veste.
 
 ### Comment optimiser sa Puissance ?
