@@ -22,6 +22,7 @@ On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut êtr
 Considérons le cas où la veste est la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste ? La tenue perd-elle tout son esthétisme ? 
 
 D'où peut être l'importance d'avoir d'ores et déjà une pièce ou un ensemble fort de base sans la veste. À voir ...
+
 ### Restauration de Puissance
 
 Voyons un cas dans lequel on retire la pièce forte de la tenue.
