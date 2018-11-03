@@ -11,7 +11,6 @@ feature_image: power.png
 Ceci est un article incontournable si vous voulez en apprendre plus sur votre style et le développement de celui-ci, et il conviendra autant aux femmes qu'aux hommes.  
 La Puissance du style est présente en chacun de nous. La laisser s'exprimer passe par certaines étapes. Nous sommes tous uniques et spéciaux à notre manière, et c'est grâce à cette puissance que l'on remarquera à quel point. Vous saurez comment puiser dans le potentiel de votre style, et vous sentir à toute patate quand vous vous admirerez devant votre miroir.  
 
-
 ### Définition
 
 ***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout. En résumé, si vous voyez quelqu'un et que vous faîtes "Wouah!" lors de votre première impression (vestimentaire), c'est que la personne possède une forte puissance de style. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements. Cela reste quand même subjectif comme l'art. Ce qui va paraître beau pour une personne ne le sera pas forcément pour une autre.
