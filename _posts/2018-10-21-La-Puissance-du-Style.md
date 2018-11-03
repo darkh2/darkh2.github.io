@@ -9,7 +9,7 @@ feature_image: power.png
 ## La Puissance du style 
 
 Ceci est un article incontournable si vous voulez en apprendre plus sur votre style et le développement de celui-ci, et il conviendra autant aux femmes qu'aux hommes.  
-La Puissance du style est présente en chacun de nous. La laisser s'exprimer passe par certaines étapes. Nous sommes tous uniques et spéciaux à notre manière, et c'est grâce à cette puissance que l'on remarquera à quel point. Je ne m'arrêterai pas qu'à vous définir ce qu'est cette fameuse puissance. Vous saurez comment puiser dans le potentiel de votre style, et vous sentir à toute patate quand vous vous admirerez devant votre miroir.  
+La Puissance du style est présente en chacun de nous. La laisser s'exprimer passe par certaines étapes. Nous sommes tous uniques et spéciaux à notre manière, et c'est grâce à cette puissance que l'on remarquera à quel point. Vous saurez comment puiser dans le potentiel de votre style, et vous sentir à toute patate quand vous vous admirerez devant votre miroir.  
 
 
 ### Définition
