@@ -30,8 +30,9 @@ La volonté de voir toujours plus loin me pousse également à discuter de déve
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
 J'ai rencontré Claudia 
 
+### Les meilleurs articles de Crevard Stylé
 
-Les perspectives pour la nouvelle année ?
+### Les perspectives pour la nouvelle année ?
 
 J'aimerais pouvoir me focus pleinement à Crevard Stylé entièrement car a l'heure où j'écris cet article, je suis encore salarié mais je tends à devenir entrepreneur. Je raisonne comme tel d'ailleurs. J'ai encore de quoi vous épater.
 
