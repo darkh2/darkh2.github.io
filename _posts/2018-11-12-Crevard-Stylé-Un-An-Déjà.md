@@ -1,0 +1,33 @@
+---
+published: false
+---
+## Crevard Stylé, un an déjà
+
+Cela fait maintenant pile 365 jours que le site Crevard Stylé a vu le jour. C'était impossible de ne pas en faire un article.
+
+Que s'est il passé il y a un an jour pour jour ?
+
+À vrai dire, le site existait déjà il y a plus d'un an mais il était en phase expérimental. Aucun article, que du vide, walou. C'était comme un foetus avant qu'il devienne un nouveau né. 
+Le compte instagram @crevardstyle était le seul actif sans son site (depuis l'été 2017).
+Faire un compte instagram c'est bien beau mais avec un site, c'est encore mieux !
+Chaque nouvelle tenue devait obtenir l'article qu'elle méritait ainsi que tous les fondements du style et du développement personnel qui en découlaient.
+
+Quelles ont été les améliorations jusqu'à aujourd'hui ?
+
+Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'ailleurs les tenues à moins de 100 euros ont été de très beaux challenges pendant cette année et ils le resteront.
+
+Des brèches qui ont été créées comme le fait de vouloir écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertorie toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, un site pour vendre mes créations en gros de nouvelles idées 
+L'intégration dans l'équipe AOSS (parler de l multicompétence)
+Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de Avec ou Sans Sucre avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
+
+La volonté de voir toujours plus loin me pousse également à discuter de développement personnel tout en restant concerné par le style.
+
+Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
+J'ai rencontré Claudia 
+
+
+Les perspectives pour la nouvelle année ?
+
+J'aimerais pouvoir me focus pleinement à Crevard Stylé entièrement car a l'heure où j'écris cet article, je suis encore salarié mais je tends à devenir entrepreneur. Je raisonne comme tel d'ailleurs. J'ai encore de quoi vous épater.
+
+(article en cours d'élaboration...)
