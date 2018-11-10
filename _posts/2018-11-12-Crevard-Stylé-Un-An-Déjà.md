@@ -1,5 +1,10 @@
 ---
 published: false
+layout: post
+date: 2018-11-12T00:00:00.000Z
+categories: articles
+author_slug: hyke
+feature_image: blackfont.png
 ---
 ## Crevard Stylé, un an déjà
 
