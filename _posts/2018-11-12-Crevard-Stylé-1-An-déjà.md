@@ -28,7 +28,7 @@ L'intégration dans l'équipe AOSS.
 Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de ["Avec ou Sans Sucre ?"](https://www.facebook.com/avecousanssucrefr/?ref=br_rs) avec lequel nous tournons des vidéos de débats traitant de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
-J'en ai même fait un article avec l'une d'entre elles. Et d'autres articles prévus encore avec des dingues du style. Cela apporte grandement de renncontrer des personnes partageant les mêmes centres d'intérêts et les mêmes visions.
+J'en ai même fait un article avec l'une d'entre elles. Et d'autres articles prévus encore avec des dingues du style. Cela apporte grandement de rencontrer des personnes partageant les mêmes centres d'intérêts et les mêmes visions.
 
 ### Top 3 des articles de Crevard Stylé
 
@@ -36,7 +36,7 @@ Je vous ai fait un classement des trois meilleurs articles que j'ai rédigé au 
 
 [**"Décontracté, Chic & Wax"**](http://www.crevardstyle.com/Décontracté-Chic-&-Wax) : le meilleur article de mon blog aujourd'hui. Il rénuit tout ! La merveilleuse rencontre avec Claudia, un shooting au top, des informations concernant aussi bien la femme que l'homme, si vous aimez le style, cet article va vous inspirer, j'en suis persuadé !  
 
-[**"Keep It 100"**](http://www.crevardstyle.com/Keep-It-100) : un de mes premiers articles dans lequel je possède une tenue chic pour moins de 100 euros. Cet article fut un réel challenge pour moi que j'ai surpassé avec le plus grand plaisir. C'est également une preuve que l'on peut être stylé sans dépenser beaucoup.
+[**"Keep It 100"**](http://www.crevardstyle.com/Keep-It-100) : un de mes premiers articles dans lequel je possède une tenue chic pour moins de 100 euros. Cet article fut un réel challenge pour moi que j'ai surpassé avec le plus grand plaisir. C'est également une preuve (parmi tant d'autres ici) que l'on peut être stylé sans dépenser beaucoup.
 
 [**"La Chance selon Hyke"**](http://www.crevardstyle.com/La-Chance-Selon-Hyke) : n'oubliez pas que le développement du style est une branche du développement personnel. Je parle de ma vision de la Chance en y incluant des fondements de développement personnel.  
 "Oui mais ça n'a rien à voir avec le style saperlipopette !"  
