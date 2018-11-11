@@ -23,10 +23,14 @@ Et paf ! Ca a fait des chocapics ! Le site était enfin dispo avec ses premiers 
 Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'ailleurs les tenues à moins de 100 euros (Keep It 100) ont été de très beaux challenges pendant cette année et ils le resteront.
 
 L'intégration dans l'équipe AOSS.  
-Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de "Avec ou Sans Sucre ?" avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
+Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de ["Avec ou Sans Sucre ?"](https://www.facebook.com/avecousanssucrefr/?ref=br_rs) avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
-J'en ai même fait un article rencontré Claudia 
+J'en ai même fait un article avec une de mes rencontres Claudia. Et d'autres articles prévus encore avec des dingues du style.
+
+### Top 3 des articles de Crevard Stylé
+
+Je vous ai fait un classement des trois meilleurs articles que j'ai rédigé au cours de ces 12 derniers mois.
 
 ### Les perspectives pour la nouvelle année ?
 
