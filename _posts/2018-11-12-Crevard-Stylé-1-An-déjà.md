@@ -10,6 +10,8 @@ feature_image: birthday2.jpg
 
 Cela fait maintenant pile 365 jours que le site Crevard Stylé a vu le jour. C'est pour cela qu'il me fallait marquer le coup à travers un article.
 
+![birthday2]({{site.url}}/{{site.baseurl}}img/birthday2.jpg)
+
 ### Que s'est il passé il y a un an jour pour jour ?
 
 À vrai dire, le site existait déjà il y a plus d'un an, mais il était en phase expérimental. Aucun article, que du vide, walou. C'était comme un foetus avant qu'il devienne un nouveau né.  
