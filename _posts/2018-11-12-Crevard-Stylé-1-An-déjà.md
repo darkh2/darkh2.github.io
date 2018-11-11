@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-11-12T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: birthday2.jpg
@@ -23,7 +23,7 @@ Et paf ! Ca a fait des chocapics ! Le site était enfin dispo avec ses premiers 
 Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'ailleurs les tenues à moins de 100 euros (Keep It 100) ont été de très beaux challenges pendant cette année et ils le resteront.
 
 L'intégration dans l'équipe AOSS.  
-Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de ["Avec ou Sans Sucre ?"](https://www.facebook.com/avecousanssucrefr/?ref=br_rs) avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
+Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de ["Avec ou Sans Sucre ?"](https://www.facebook.com/avecousanssucrefr/?ref=br_rs) avec lequel nous tournons des vidéos de débats traitant de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
 J'en ai même fait un article avec une de mes rencontres Claudia. Et d'autres articles prévus encore avec des dingues du style.
