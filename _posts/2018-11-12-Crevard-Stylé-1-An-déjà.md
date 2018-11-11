@@ -26,7 +26,7 @@ L'intégration dans l'équipe AOSS.
 Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de ["Avec ou Sans Sucre ?"](https://www.facebook.com/avecousanssucrefr/?ref=br_rs) avec lequel nous tournons des vidéos de débats traitant de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
-J'en ai même fait un article avec une de mes rencontres Claudia. Et d'autres articles prévus encore avec des dingues du style.
+J'en ai même fait un article avec l'une d'entre elles. Et d'autres articles prévus encore avec des dingues du style. Cela apporte grandement de renncontrer des personnes partageant les mêmes centres d'intérêts et les mêmes visions.
 
 ### Top 3 des articles de Crevard Stylé
 
