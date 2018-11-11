@@ -38,7 +38,9 @@ Je vous ai fait un classement des trois meilleurs articles que j'ai rédigé au 
 
 [**"Keep It 100"**](http://www.crevardstyle.com/Keep-It-100) : un de mes premiers articles dans lequel je possède une tenue chic pour moins de 100 euros. Cet article fut un réel challenge pour moi que j'ai surpassé avec le plus grand plaisir. C'est également une preuve que l'on peut être stylé sans dépenser beaucoup.
 
-
+[**"La Chance selon Hyke"**](http://www.crevardstyle.com/La-Chance-Selon-Hyke) : n'oubliez pas que le développement du style est une branche du développement personnel. Je parle de ma vision de la Chance en y incluant des fondements de développement personnel.  
+"Oui mais ça n'a rien à voir avec le style saperlipopette !"  
+Détrompez-vous ! Il y a un lien avec le style, je vous laisse découvrir ça.
 
 ### Les perspectives pour la nouvelle année ?
 
