@@ -36,8 +36,10 @@ Je vous ai fait un classement des trois meilleurs articles que j'ai rédigé au 
 
 [**"Décontracté, Chic & Wax"**](http://www.crevardstyle.com/Décontracté-Chic-&-Wax) : le meilleur article de mon blog aujourd'hui. Il rénuit tout ! La merveilleuse rencontre avec Claudia, un shooting au top, des informations concernant aussi bien la femme que l'homme, si vous aimez le style, cet article va vous inspirer, j'en suis persuadé !  
 
+[**"Keep It 100"**](http://www.crevardstyle.com/Keep-It-100) : un de mes premiers articles dans lequel je possède une tenue chic pour moins de 100 euros. Cet article fut un réel challenge pour moi que j'ai surpassé avec le plus grand plaisir. C'est également une preuve que l'on peut être stylé sans dépenser beaucoup.
+
+
 
 ### Les perspectives pour la nouvelle année ?
 
 De nouveaux articles tout aussi pertinents les uns que les autres et plus complets pour bien comprendre tous les aspect du Crevard Stylé ainsi que le développement du style. J'aimerais écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertoriera toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, et un site pour vendre mes créations avec la Hyke Touch. Ce n'est que la partie visible de l'iceberg, mes idées et envies ne s'arrêtent pas là.   Ce n'est que le début ...
-
