@@ -18,13 +18,12 @@ Il m'était impossible de faire ce compte sans le blog !
 Chaque nouvelle tenue devait obtenir l'article qu'elle méritait, ainsi que tous les fondements du style et du développement personnel qui en découlaient. 
 Et paf ! Ca a fait des chocapics ! Le site était enfin dispo avec ses premiers articles.
 
-### Quelles ont été les améliorations jusqu'aujourd'hui ?
+### Les gros titres jusqu'aujourd'hui ?
 
 Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'ailleurs les tenues à moins de 100 euros (Keep It 100) ont été de très beaux challenges pendant cette année et ils le resteront.
 
-
-L'intégration dans l'équipe AOSS (parler de l multicompétence)
-Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de Avec ou Sans Sucre avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
+L'intégration dans l'équipe AOSS.  
+Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de "Avec ou Sans Sucre ?" avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
 La volonté de voir toujours plus loin me pousse également à discuter de développement personnel tout en restant concerné par le style.
 
