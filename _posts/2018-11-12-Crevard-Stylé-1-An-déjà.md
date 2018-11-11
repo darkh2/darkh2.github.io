@@ -25,14 +25,8 @@ Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'aille
 L'intégration dans l'équipe AOSS.  
 Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de "Avec ou Sans Sucre ?" avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
-La volonté de voir toujours plus loin me pousse également à discuter de développement personnel tout en restant concerné par le style.
-
 Des rencontres inattendues grâce à la montée en visibilité du compte Instagram et du blog.
-J'ai rencontré Claudia 
-
-### Les meilleurs articles de Crevard Stylé
-
-
+J'en ai même fait un article rencontré Claudia 
 
 ### Les perspectives pour la nouvelle année ?
 
