@@ -22,7 +22,7 @@ Et paf ! Ca a fait des chocapics ! Le site était enfin dispo avec ses premiers 
 
 Des articles inédits ! Dont je ne pensais pas qu'ils verraient le jour. D'ailleurs les tenues à moins de 100 euros (Keep It 100) ont été de très beaux challenges pendant cette année et ils le resteront.
 
-Des brèches qui ont été créées comme le fait de vouloir écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertorie toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, un site pour vendre mes créations en gros de nouvelles idées 
+
 L'intégration dans l'équipe AOSS (parler de l multicompétence)
 Le fait de posséder plusieurs casquettes m'a fortement motivé à rejoindre le groupe de Avec ou Sans Sucre avec lequel je traite de sujets tels que les relations hommes-femmes ainsi que de développement personnel entre autres.
 
@@ -33,8 +33,11 @@ J'ai rencontré Claudia
 
 ### Les meilleurs articles de Crevard Stylé
 
+
+
 ### Les perspectives pour la nouvelle année ?
 
-J'aimerais pouvoir me focus pleinement à Crevard Stylé entièrement car a l'heure où j'écris cet article, je suis encore salarié mais je tends à devenir entrepreneur. Je raisonne comme tel d'ailleurs. J'ai encore de quoi vous épater.
+J'aimerais écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertoriera toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, et un site pour vendre mes créations avec la Hyke Touch. Ce n'est que la partie visible de l'iceberg, mes idées et envies ne s'arrêtent pas là ... 
+Ce n'est que le début ...
 
 (article en cours d'élaboration...)
