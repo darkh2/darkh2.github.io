@@ -8,12 +8,12 @@ feature_image: birthday2.jpg
 ---
 ## Crevard Stylé, un an déjà
 
-Cela fait maintenant pile 365 jours que le site Crevard Stylé a vu le jour. C'était impossible de ne pas en faire un article.
+Cela fait maintenant pile 365 jours que le site Crevard Stylé a vu le jour. C'est pour cela qu'il me fallait marquer le coup à travers un article.
 
-Que s'est il passé il y a un an jour pour jour ?
+### Que s'est il passé il y a un an jour pour jour ?
 
-À vrai dire, le site existait déjà il y a plus d'un an mais il était en phase expérimental. Aucun article, que du vide, walou. C'était comme un foetus avant qu'il devienne un nouveau né. 
-Le compte instagram @crevardstyle était le seul actif sans son site (depuis l'été 2017).
+À vrai dire, le site existait déjà il y a plus d'un an, mais il était en phase expérimental. Aucun article, que du vide, walou. C'était comme un foetus avant qu'il devienne un nouveau né.  
+Le compte instagram [@crevardstyle](https://www.instagram.com/crevardstyle/) était le seul actif sans son site (depuis l'été 2017).
 Faire un compte instagram c'est bien beau mais avec un site, c'est encore mieux !
 Chaque nouvelle tenue devait obtenir l'article qu'elle méritait ainsi que tous les fondements du style et du développement personnel qui en découlaient.
 
