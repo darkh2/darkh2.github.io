@@ -44,4 +44,5 @@ Détrompez-vous ! Il y a un lien avec le style, je vous laisse découvrir ça.
 
 ### Les perspectives pour la nouvelle année ?
 
-De nouveaux articles tout aussi pertinents les uns que les autres et plus complets pour bien comprendre tous les aspect du Crevard Stylé ainsi que le développement du style. J'aimerais écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertoriera toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, et un site pour vendre mes créations avec la Hyke Touch. Ce n'est que la partie visible de l'iceberg, mes idées et envies ne s'arrêtent pas là.   Ce n'est que le début ...
+De nouveaux articles tout aussi pertinents les uns que les autres et plus complets pour bien comprendre tous les aspect du Crevard Stylé ainsi que le développement du style.  
+J'aimerais écrire un livre sur le développement personnel qui est un grand projet en construction, un ebook qui répertoriera toutes les explications nécessaires pour développer son style à moindre coût, que je mettrai à disposition au plus vite, et un site pour vendre mes créations avec la Hyke Touch. Ce n'est que la partie visible de l'iceberg, mes idées et envies ne s'arrêtent pas là.   Ce n'est que le début ...
