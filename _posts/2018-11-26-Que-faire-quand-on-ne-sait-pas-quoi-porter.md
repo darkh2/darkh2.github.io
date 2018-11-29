@@ -20,10 +20,12 @@ Quel temps fait-il ? Vous n'allez pas sortir avec un trench s'il fait 30 degrés
 
 #### Lessive 
 
-Cela va paraître peut-être évident, mais tout ce qui est vêtement sale ou qui sent la susu (sueur/transpiration), vous pouvez éliminer fortement ! Je souhaite de tout coeur que vous le sachiez. Pensez à anticiper vos lavages. N'attendez pas d'avoir 10000 sapes à laver pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie, vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez, n'est-ce pas ?
+Cela va paraître évident, mais tout ce qui est vêtement sale ou qui sent la susu (sueur/transpiration), vous pouvez éliminer fortement ! Je souhaite de tout coeur que vous le sachiez. Pensez à anticiper vos lavages. N'attendez pas d'avoir 10000 sapes à laver pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie, vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez, n'est-ce pas ?
 
 ### 3. Le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 
+"Pourquoi ? T'es de la police Hyke ?"  
+Ô que nenni ! Néanmoins, 
 Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
 Tout est question de dosage. La plus grosse difficulté que j'ai quand je dois me saper c'est trouver un bon compromis entre être stylé sans pour autant mettre des sapes trop habillées. Je n'ai pas envie de forcément mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
 
@@ -46,4 +48,4 @@ Si vous galerez toujours alors il y a peut être ces problèmes :
 
 Quand on réfléchit de façon générale et théoriquement a ce qui se passe face à votre penderie c'est la difficulté à la prise de décision. Donc comment remédier à ce problème (partir en mode DP)
 
-Sachez que dans le pire des cas, vous porterez quelque chose que pendant une journée. L'impact de cette décision au final sera moins grave que vous ne le pensiez. Même si c'est un jour spécial, mariage, entretien etc... le plus important est d'adopter le bon état d'esprit et le dégager a travers la façon dont on se mettra en valeur et pas seulement que dans le style.
+Sachez que dans le pire des cas, vous porterez quelque chose que pendant une journée. L'impact de cette décision au final sera moins grave que vous ne le pensiez. Même si c'est un jour spécial, mariage, entretien etc... Au moins, vous saurez qu'il y a des réflèxes à adopter pour solutionner plus rapidement ce problème. Le plus important est d'adopter le bon état d'esprit et le dégager a travers la façon dont on se mettra en valeur et pas seulement que dans le style.
