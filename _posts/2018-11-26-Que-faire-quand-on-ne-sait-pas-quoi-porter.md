@@ -38,14 +38,19 @@ Pour qu'une tenue soit complète la majeure partie du temps, on part d'un ou plu
 
 ### 5. Préparation
 
-vos sapes la veille pour le lendemain. Un homme averti en vaut deux. Un homme préparé en vaut 10 ! Une optimisation à toute épreuve. Juste avant de dodo, le fait de checker sa penderie en préparant deux trois sapes vous permettra de savoir vers quelle tenue vous allez vous aiguiller et pourquoi pas vous éviter d'arriver en retard au boulot entre aut
+Préparez vos sapes la veille pour le lendemain. Un homme averti en vaut deux. Un homme préparé en vaut 10 ! Une optimisation à toute épreuve. Juste avant de dodo, le fait de checker sa penderie en préparant deux trois sapes vous permettra de savoir vers quelle tenue vous allez vous aiguiller, et pourquoi pas vous éviter d'arriver en retard au boulot entre autres.
 
-5. N'hésitez pas à répéter tout le processus si jamais cela n'aboutit pas à une tenue finale. Mais je suis persuadé que le processus effectué une première fois vous aura déjà aiguiller sur certaines options.
+### 6. Pull uuuuup !
 
-Si vous galerez toujours alors il y a peut être ces problèmes :
-- vous avez pris du poids ou perdu du coup, faudrait-il penser à redéfinir vos choix de vêtements selon votre morphologie ou tout simplement faire un régime.
-- vous ne prenez pas assez de risques. Le look all black par exemple est à mon sens "trop facile"
-- il vous manque des basiques 
+N'hésitez pas à répéter tout le processus si jamais cela n'aboutit pas à une tenue finale. Mais je suis persuadé que le réaliser une première fois vous aura déjà aiguiller sur certaines options.
+
+### Vous bloquez encore ???
+
+Si vous galerez toujours, alors il y a sans doute un ou plusieurs de ces problèmes :
+
+- vous avez pris ou perdu du poids du coup, il faudrait penser à redéfinir vos choix de vêtements selon votre morphologie ou tout simplement faire un régime.
+- vous ne prenez pas assez de risques. Le look all black par exemple est à mon sens "trop facile".
+- il vous manque des basiques. Lisez-moi ça tout de suite : [Développement du style part. 2](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2)
 - vous n'avez pas très bien appliquer les précédents points cités.
 
 Quand on réfléchit de façon générale et théoriquement à ce qui se passe face à votre penderie, c'est la difficulté à la prise de décision. Bien entendu, ces décisions ont un impact moins dramatiques que pour des problèmes plus importants.  Si vous avez l'habitude d'être souvent indécis ou être contraint de faire des choix dans les pires moments, vous devez vous remettre en question. Est- ce à cause d'une peur ? D'un manque de confiance ? ...
