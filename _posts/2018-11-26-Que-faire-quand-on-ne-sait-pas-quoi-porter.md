@@ -25,9 +25,9 @@ Cela va paraître évident, mais tout ce qui est vêtement sale ou qui sent la s
 ### 3. Le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 
 "Pourquoi ? T'es de la police Hyke ?"  
-Ô que nenni ! Néanmoins, il faut impérativement que vous preniez en compte les circonstances pour lesquelles vous devez vous habillez.
-Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
-Tout est question de dosage. La plus grosse difficulté que j'ai quand je dois me saper c'est trouver un bon compromis entre être stylé sans pour autant mettre des sapes trop habillées. Je n'ai pas envie de forcément mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
+Ô que nenni ! Néanmoins, il faut impérativement que vous preniez en compte les circonstances pour lesquelles vous devez vous habiller.
+Consolider pratique, style et efficacité. cela veut dire que vous n'allez pas vous habiller en costume si vous allez à un premier rendez-vous galant ou partir en jogging pour un entretien d'embauche. Je vous laisse le soin de doser tout ça.  
+Tout est question de dosage. La plus grosse difficulté que je rencontre quand je dois me saper, c'est trouver un bon compromis entre avoir un style fort et ne pas mettre des sapes trop habillées. C'est à dire que je n'ai pas forcément envie de mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
 
 ### 4. Partir d'un vetement simple (ou pas)
 
