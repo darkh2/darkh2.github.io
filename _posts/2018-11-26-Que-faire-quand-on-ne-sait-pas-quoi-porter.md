@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 layout: post
 date: 2018-11-28T00:00:00.000Z
 categories: articles
@@ -10,6 +10,7 @@ feature_image: penderies.jpg
 
 Que faire quand on ne sait pas Quoi mettre ?
 
+Je n'ai rien à me mettre ! Ce blocage que vous avez fac à votre penderie alors que vous devez être prêt(e) dans un laps de temps très limité.
 Vous manquez de temps. Vous devez être prêt(e) dans pas longtemps mais vous bloquez devant votre penderie. Pas de panique. Après avoir lu cet article, vous devriez par la suite avoir moins de difficultés à chercher de quoi vous vêtir si vous appliquez ce qui va suivre. Le temps est compté c'est parti !
 
 1. Élimination !
