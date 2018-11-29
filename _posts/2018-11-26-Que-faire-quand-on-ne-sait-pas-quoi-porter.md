@@ -12,7 +12,7 @@ feature_image: penderies.jpg
 
 ### 1. Élimination !
 
-Dans un premier temps, savoir ce que l'on ne veut pas mettre. Procéder par élimination est toujours une bon point de départ pour faciliter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
+Dans un premier temps, savoir ce que l'on ne veut PAS porter. Procéder par élimination est toujours une bon point de départ pour faciliter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
 
 ### 2. La météo
 
