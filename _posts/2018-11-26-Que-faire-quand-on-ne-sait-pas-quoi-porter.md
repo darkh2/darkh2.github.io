@@ -12,7 +12,7 @@ feature_image: penderies.jpg
 
 ### 1. Élimination !
 
-Dans un premier temps, savoir ce que l'on ne veut PAS porter. Procéder par élimination est toujours une bon point de départ pour faciliter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
+Dans un premier temps, savoir ce que l'on ne veut PAS porter. Procéder par élimination est toujours une bon point de départ pour faciliter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie. Je vous invite à jeter un coup d'oeil sur cet article pour l'acquisition des basiques : [Développement du style part. 2](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2)
 
 ### 2. La météo
 
