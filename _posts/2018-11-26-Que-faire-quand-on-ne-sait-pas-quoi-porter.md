@@ -25,7 +25,7 @@ Cela va paraître évident, mais tout ce qui est vêtement sale ou qui sent la s
 ### 3. Le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 
 "Pourquoi ? T'es de la police Hyke ?"  
-Ô que nenni ! Néanmoins, 
+Ô que nenni ! Néanmoins, il faut impérativement que vous preniez en compte les circonstances pour lesquelles vous devez vous habillez.
 Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
 Tout est question de dosage. La plus grosse difficulté que j'ai quand je dois me saper c'est trouver un bon compromis entre être stylé sans pour autant mettre des sapes trop habillées. Je n'ai pas envie de forcément mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
 
@@ -45,7 +45,8 @@ Si vous galerez toujours alors il y a peut être ces problèmes :
 - vous avez pris du poids ou perdu du coup, faudrait-il penser à redéfinir vos choix de vêtements selon votre morphologie ou tout simplement faire un régime.
 - vous ne prenez pas assez de risques. Le look all black par exemple est à mon sens "trop facile"
 - il vous manque des basiques 
+- vous n'avez pas très bien appliquer les précédents points cités.
 
-Quand on réfléchit de façon générale et théoriquement a ce qui se passe face à votre penderie c'est la difficulté à la prise de décision. Donc comment remédier à ce problème (partir en mode DP)
+Quand on réfléchit de façon générale et théoriquement à ce qui se passe face à votre penderie, c'est la difficulté à la prise de décision. Bien entendu, ces décisions ont un impact moins dramatiques que pour des problèmes plus importants.  Si vous avez l'habitude d'être souvent indécis ou être contraint de faire des choix dans les pires moments, vous devez vous remettre en question. Est- ce à cause d'une peur ? D'un manque de confiance ? ...
 
 Sachez que dans le pire des cas, vous porterez quelque chose que pendant une journée. L'impact de cette décision au final sera moins grave que vous ne le pensiez. Même si c'est un jour spécial, mariage, entretien etc... Au moins, vous saurez qu'il y a des réflèxes à adopter pour solutionner plus rapidement ce problème. Le plus important est d'adopter le bon état d'esprit et le dégager a travers la façon dont on se mettra en valeur et pas seulement que dans le style.
