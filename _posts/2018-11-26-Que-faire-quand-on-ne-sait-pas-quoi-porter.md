@@ -1,10 +1,10 @@
 ---
-published: null
+published: true
 layout: post
 date: 2018-11-28T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: penderie.jpeg
+feature_image: penderies.jpg
 ---
 ## Que faire quand on ne sait pas quoi porter ?
 
@@ -13,6 +13,7 @@ Que faire quand on ne sait pas Quoi mettre ?
 Vous manquez de temps. Vous devez être prêt(e) dans pas longtemps mais vous bloquez devant votre penderie. Pas de panique. Après avoir lu cet article, vous devriez par la suite avoir moins de difficultés à chercher de quoi vous vêtir si vous appliquez ce qui va suivre. Le temps est compté c'est parti !
 
 1. Élimination !
+Cela peut paraître bête mais pas tant que ça.
 Dans un premier temps, savoir qu'est ce que l'on ne veut pas mettre. Procéder par élimination est toujours une bonne chose pour limiter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
 
 Second temps : quel temps fait il. Vous n'allez pas sortir avec un trench s'il fait 30 degrés. 
@@ -22,11 +23,15 @@ La également il y a de quoi éliminer certains articles.
 
 Troisième temps : le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
+Tout est question de dosage. La plus grosse difficulté que j'ai quand je dois me saper c'est trouver un bon compromis entre être stylé sans pour autant mettre des sapes trop habillées. Je n'ai pas envie de forcément mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
 
-Quatrième temps : choisir un habit basique ! Partez déjà d'un élément basique. Jean, t shirt blanc ou encore chaussures marrons. Vous pouvez même partir d'un accessoire. Quand bien même le premier choix de vêtement que vous prendrez ne sera pas le final. Faire un premier choix sera déjà un bon début 
+Quatrième temps : partir d'un vetement simple (ou pas). Si vous voulez vous simplifier le mieux est de choisir un habit basique ! Partez déjà d'un élément basique. Jean, t shirt blanc ou encore chaussures marrons. Vous pouvez même partir d'un accessoire. Quand bien même le premier choix de vêtement que vous prendrez ne sera pas le final. Faire un premier choix sera déjà un bon début 
 Ne me dîtes pas que vous n'êtes pas foutus de choisir un premier vêtement non ? Bon ok si c'est le cas, peut être n'aviez vous pas suffisament enlever d'éléments à la première étape. 
+Pour qu'une tenue soit complète la majeure partie du temps on part d'un ou plusieurs basique qu'on ajoute avec d'autres pièces un peu plus fortes. Partir d'une pièce forte sera donc plus compliqué pour finaliser la tenue mais cela reste tout de même possible.
 
 5. N'hésitez pas à répéter tout le processus si jamais cela n'aboutit pas à une tenue finale. Mais je suis persuadé que le processus effectué une première fois vous aura déjà aiguiller sur certaines options.
+
+6. Préparez vos sapes la veille pour le lendemain. Un homme averti en vaut deux. Un homme préparé en vaut 10 ! Une optimisation à toute épreuve. Juste avant de dodo, le fait de checker sa penderie en préparant deux trois sapes vous permettra de savoir vers quelle tenue vous allez vous aiguiller et pourquoi pas vous éviter d'arriver en retard au boulot entre aut
 
 Si vous galerez toujours alors il y a peut être ces problèmes :
 - vous avez pris du poids
