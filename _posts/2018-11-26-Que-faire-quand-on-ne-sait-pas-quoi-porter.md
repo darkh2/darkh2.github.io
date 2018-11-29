@@ -31,9 +31,10 @@ Tout est question de dosage. La plus grosse difficulté que je rencontre quand j
 
 ### 4. Partir d'un vetement simple (ou pas)
 
-Si vous voulez vous simplifier le mieux est de choisir un habit basique ! Partez déjà d'un élément basique. Jean, t shirt blanc ou encore chaussures marrons. Vous pouvez même partir d'un accessoire. Quand bien même le premier choix de vêtement que vous prendrez ne sera pas le final. Faire un premier choix sera déjà un bon début 
-Ne me dîtes pas que vous n'êtes pas foutus de choisir un premier vêtement non ? Bon ok si c'est le cas, peut être n'aviez vous pas suffisament enlever d'éléments à la première étape. 
-Pour qu'une tenue soit complète la majeure partie du temps on part d'un ou plusieurs basique qu'on ajoute avec d'autres pièces un peu plus fortes. Partir d'une pièce forte sera donc plus compliqué pour finaliser la tenue mais cela reste tout de même possible.
+Partez déjà d'un élément basique si vous galérez toujours. Jean, t-shirt blanc ou encore chaussures marrons. Vous pouvez même partir d'un accessoire même si votre premier choix ne sera pas le final. On dit souvent qu'il n'y a que les imbéciles qui ne changent pas d'avis. Faire un premier choix sera une très bonne avancée. 
+Ne me dîtes pas que vous n'êtes pas foutus de choisir un premier vêtement non ?  
+Bon, si c'est le cas, peut-être n'aviez-vous pas suffisament enlever d'éléments à la toute première étape. 
+Pour qu'une tenue soit complète la majeure partie du temps, on part d'un ou plusieurs basique(s) et qu'on ajoute avec d'autres pièces un peu plus fortes. Partir d'une pièce forte sera donc plus compliqué pour finaliser la tenue mais cela reste tout de même possible.
 
 ### 5. Préparation
 
