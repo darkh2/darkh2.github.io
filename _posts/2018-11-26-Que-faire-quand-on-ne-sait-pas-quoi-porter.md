@@ -8,19 +8,19 @@ feature_image: penderies.jpg
 ---
 ## Que faire quand on ne sait pas quoi porter ?
 
-Que faire quand on ne sait pas Quoi mettre ?
+"Je n'ai rien à me mettre !" Ce blocage que vous avez face à votre penderie, alors que vous devez être prêt(e) dans un laps de temps très limité. Pas de panique. Après avoir lu cet article, vous devriez par la suite, éprouver moins de difficultés à chercher de quoi vous vêtir. Le temps est compté, c'est parti !
 
-Je n'ai rien à me mettre ! Ce blocage que vous avez fac à votre penderie alors que vous devez être prêt(e) dans un laps de temps très limité.
-Vous manquez de temps. Vous devez être prêt(e) dans pas longtemps mais vous bloquez devant votre penderie. Pas de panique. Après avoir lu cet article, vous devriez par la suite avoir moins de difficultés à chercher de quoi vous vêtir si vous appliquez ce qui va suivre. Le temps est compté c'est parti !
+### 1. Élimination !
 
-1. Élimination !
-Cela peut paraître bête mais pas tant que ça.
-Dans un premier temps, savoir qu'est ce que l'on ne veut pas mettre. Procéder par élimination est toujours une bonne chose pour limiter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
+Dans un premier temps, savoir ce que l'on ne veut pas mettre. Procéder par élimination est toujours une bon point de départ pour faciliter les choix. Si vous vous rendez compte que vous ne savez pas quoi mettre parce que vous n'avez pas suffisament de choix, alors il manque probablement certains basiques dans votre penderie.
 
-Second temps : quel temps fait il. Vous n'allez pas sortir avec un trench s'il fait 30 degrés. 
-La également il y a de quoi éliminer certains articles.
+### 2. La météo
 
-2.5 : cela va paraître peut être évident mais tout ce qui est vêtement sale ou qui sent la susu vous pouvez éliminer mais ça je souhaite de tout coeur que vous le sachiez. Pensez à faire une lessive. Je vais en faire de même. Il faut optimiser et anticiper donc attendez pas d'avoir 10000 sapes à laver (Je sais de quoi je parle ) pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez nest ce pas ?
+Quel temps fait-il ? Vous n'allez pas sortir avec un trench s'il fait 30 degrés. En prenant en compte ce paramètre, il y a encore de quoi éliminer certains articles. Si vous préférez être stylé et avoir froid plutôt que un peu moins stylé mais tremblotter comme un junkie en étant dehors, vous ne vous faciliterez pas la tâche.
+
+#### 2.A 
+
+cela va paraître peut être évident mais tout ce qui est vêtement sale ou qui sent la susu vous pouvez éliminer mais ça je souhaite de tout coeur que vous le sachiez. Pensez à faire une lessive. Je vais en faire de même. Il faut optimiser et anticiper donc attendez pas d'avoir 10000 sapes à laver (Je sais de quoi je parle ) pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez nest ce pas ?
 
 Troisième temps : le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
