@@ -18,11 +18,11 @@ Dans un premier temps, savoir ce que l'on ne veut pas mettre. Procéder par éli
 
 Quel temps fait-il ? Vous n'allez pas sortir avec un trench s'il fait 30 degrés. En prenant en compte ce paramètre, il y a encore de quoi éliminer certains articles. Si vous préférez être stylé et avoir froid plutôt que un peu moins stylé mais tremblotter comme un junkie en étant dehors, vous ne vous faciliterez pas la tâche.
 
-#### 2.A 
+#### Lessive 
 
-cela va paraître peut être évident mais tout ce qui est vêtement sale ou qui sent la susu vous pouvez éliminer mais ça je souhaite de tout coeur que vous le sachiez. Pensez à faire une lessive. Je vais en faire de même. Il faut optimiser et anticiper donc attendez pas d'avoir 10000 sapes à laver (Je sais de quoi je parle ) pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez nest ce pas ?
+Cela va paraître peut-être évident, mais tout ce qui est vêtement sale ou qui sent la susu (sueur/transpiration), vous pouvez éliminer fortement ! Je souhaite de tout coeur que vous le sachiez. Pensez à anticiper vos lavages. N'attendez pas d'avoir 10000 sapes à laver pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie, vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez, n'est-ce pas ?
 
-Troisième temps : le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
+### 3. Le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 Jauger sa puissance de style et gérer sa réserve tout en étant bien habillé ! Consolider pratique style et efficacité. 
 Tout est question de dosage. La plus grosse difficulté que j'ai quand je dois me saper c'est trouver un bon compromis entre être stylé sans pour autant mettre des sapes trop habillées. Je n'ai pas envie de forcément mettre une chemise ou un blazer pour sortir du lot ou encore des chaussures classes.
 
