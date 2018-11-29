@@ -20,7 +20,7 @@ Quel temps fait-il ? Vous n'allez pas sortir avec un trench s'il fait 30 degrés
 
 #### Lessive 
 
-Cela va paraître évident, mais tout ce qui est vêtement sale ou qui sent la susu (sueur/transpiration), vous pouvez éliminer fortement ! Je souhaite de tout coeur que vous le sachiez. Pensez à anticiper vos lavages. N'attendez pas d'avoir 10000 sapes à laver pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie, vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez, n'est-ce pas ?
+Cela va paraître évident, mais tout ce qui est vêtement sale ou qui sent la susu (sueur/transpiration), vous pouvez l'éliminer fortement ! Je souhaite de tout coeur que vous le sachiez. Pensez à anticiper vos lavages. N'attendez pas d'avoir 10000 sapes à laver pour que la prochaine fois que vous serez confronté à être bloqué devant votre penderie, vous aurez plus d'options. C'est toujours mieux d'en avoir trop que pas assez, n'est-ce pas ?
 
 ### 3. Le contexte. Vous sortez pour aller où ? Comment ? Avec qui ?
 
