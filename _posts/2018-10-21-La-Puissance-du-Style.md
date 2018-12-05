@@ -32,7 +32,7 @@ Voyons un cas dans lequel on retire la pièce forte de la tenue.
 
 ### Mon alter-ego féminin du style
 
-Voyons un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre ancienne collaboration 
+Voyons un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre ancienne collaboration [Décontracté, Chic & Wax](http://www.crevardstyle.com/D%C3%A9contract%C3%A9-Chic-&-Wax).
 
 ### Perte de Puissance
 
