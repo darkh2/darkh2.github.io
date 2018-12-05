@@ -16,12 +16,11 @@ La Puissance du style est présente en chacun de nous. La laisser s'exprimer pas
 ***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout.  
 En résumé, si vous voyez quelqu'un et que vous faîtes "Wouah!" lors de votre première impression (vestimentaire), c'est que la personne possède une forte puissance de style. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements. Cela reste quand même subjectif comme l'art. Ce qui va paraître beau pour une personne ne le sera pas forcément pour une autre.
 
-### 
+### Problématique
 
-On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut être les chaussures, ou la veste entre autres.  
-Considérons le cas où la veste est la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste ? La tenue perd-elle tout son esthétisme ? 
+On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut être les chaussures, ou la veste entre autres. Considérons le cas où la veste est la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste ? La tenue perd-elle tout son esthétisme ? 
 
-D'où peut être l'importance d'avoir d'ores et déjà une pièce ou un ensemble fort de base sans la veste. À voir ...
+D'où peut être l'importance d'avoir d'ores-et-déjà une pièce, ou un ensemble fort de base sans la veste. À voir ...
 
 ### Restauration de Puissance
 
@@ -31,13 +30,13 @@ Voyons un cas dans lequel on retire la pièce forte de la tenue.
 
 Une des raisons pour lesquelles on peut perdre en Puissance au moment de retirer la pièce forte
 
-### Autres situations
+### Autres situations hypothétiques
 
-Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance si l'on modifie une des pièces fortes qui ne sera pas la veste.
+Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance si l'on modifie une des pièces fortes qui ne sera pas la veste. Même si, on ne retirera pas ces éléments.
 
 ### Comment optimiser sa Puissance ?
 
-Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de garder en puissance au moment où vous retirerez votre veste ou manteau. Maintenir son harmonie. C'est pour cela que vous devez éviter les looks trop unis.
+Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de garder en puissance au moment où vous retirerez votre veste ou manteau. Maintenir son harmonie. C'est pour cela que vous devez éviter les looks trop unis. Ou bien à la limite favoriser les accessoires et jouer sur les matières et tons de couleurs.
 
 Prendre 2 types de photos
 Prendre Keep It 100 pt.3
