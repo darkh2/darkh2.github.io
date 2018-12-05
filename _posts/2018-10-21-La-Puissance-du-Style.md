@@ -24,7 +24,15 @@ D'où peut être l'importance d'avoir d'ores-et-déjà une pièce, ou un ensembl
 
 ### Restauration de Puissance
 
+![power_restauration]({{site.url}}/{{site.baseurl}}img/power_restauration.jpg)
+
+![power_restauration2]({{site.url}}/{{site.baseurl}}img/power_restauration2.jpg)
+
 Voyons un cas dans lequel on retire la pièce forte de la tenue.
+
+### Mon alter-ego féminin du style
+
+Voyons un autre cas concret concernant les femmes. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre ancienne collaboration 
 
 ### Perte de Puissance
 
