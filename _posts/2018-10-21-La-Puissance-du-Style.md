@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2018-11-03T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: power.png
@@ -13,7 +13,8 @@ La Puissance du style est présente en chacun de nous. La laisser s'exprimer pas
 
 ### Kesako ?
 
-***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout. En résumé, si vous voyez quelqu'un et que vous faîtes "Wouah!" lors de votre première impression (vestimentaire), c'est que la personne possède une forte puissance de style. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements. Cela reste quand même subjectif comme l'art. Ce qui va paraître beau pour une personne ne le sera pas forcément pour une autre.
+***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout.  
+En résumé, si vous voyez quelqu'un et que vous faîtes "Wouah!" lors de votre première impression (vestimentaire), c'est que la personne possède une forte puissance de style. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements. Cela reste quand même subjectif comme l'art. Ce qui va paraître beau pour une personne ne le sera pas forcément pour une autre.
 
 ### 
 
@@ -65,5 +66,9 @@ Varier les pièces fortes donnerait un coup d'originalité et un gain de puissan
 
 Effet de surprise. Vous pensez que je suis à fond niveau puissance sachant que j'ai bien assemblé les pièces ? Et bien non
 Maintenant voyez par vous même avec les accessoires. (Photo test wax)
+
+### Les types de Puissance
+
+On pourra déceler deux types de Puissance : la Puissance Réelle et la Puissance Relative. Ma tenue en enlevant l'écharpe et la veste est quand même pas mal, il y a une puissance existante, certes, mais elle est relative. Pourquoi ? Parce que ça dépendera de la perception de la Puissance que chacun aura, et en l'occurence, je trouve qu'on perd enormément en Puissance après avoir retiré ces deux éléments, c'est donc pour ça que je parle de Puissance Relative.
 
 (article en cours d'élaboration...)
