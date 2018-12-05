@@ -78,4 +78,6 @@ Néanmoins, dans le cas inverse, il y a de grandes chances que l'on kiffe beauco
 
 ### Anomalie de Puissance
 
+Faîtes attention ! La/le veste/manteau et éventuellement les accessoires ont pour but d'augmenter votre Puissance du style, pas le contraire. S'il y a une perte, c'est que soit ce que vous avez ajouté à votre tenue ne concorde pas du tout ou que tout simplement votre/vos élément(s) additionnel(s) sont tout bonnement nul(s) à chier. Excusez-moi du terme mais on arrive en fin d'article, je me lâche un peu (un peu seulement ?).
+
 (article en cours d'élaboration...)
