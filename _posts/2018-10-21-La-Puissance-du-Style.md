@@ -76,4 +76,6 @@ On pourra déceler deux types de Puissance : la Puissance Réelle et la Puissanc
 Si l'on aperçoit en premier ma tenue sans écharpe et manteau, on peut kiffer sur la tenue. Et on risque de kiffer encore plus si ensuite j'ajoute l'écharpe et le manteau.
 Néanmoins, dans le cas inverse, il y a de grandes chances que l'on kiffe beaucoup moins sur la tenue de base si l'on voit la tenue complète au départ. Cela montre à quel point, il vous faut impérativement vous demander si vous réussissez à garder cet impact quand on retire certains éléments.
 
+### Anomalie de Puissance
+
 (article en cours d'élaboration...)
