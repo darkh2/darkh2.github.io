@@ -22,21 +22,27 @@ On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut êtr
 
 D'où peut être l'importance d'avoir d'ores-et-déjà une pièce, ou un ensemble fort de base sans la veste. À voir ...
 
-### Restauration de Puissance
+### Puissance Réelle : restauration de Puissance
+
+Voyons un cas dans lequel on conserve en Puissance.
 
 ![power_restauration]({{site.url}}/{{site.baseurl}}img/power_restauration.jpg)
 
 ![power_restauration2]({{site.url}}/{{site.baseurl}}img/power_restauration2.jpg)
 
-Voyons un cas dans lequel on retire la pièce forte de la tenue.
+Après avoir retiré la veste verte, la tenue ne perd pas en esthétisme, le rendu est toujours top et l'assemblage des couleurs est en harmonie. De plus, les accessoires font merveilleusement bien leur travail de peaufiner le tout.
 
-### Mon alter-ego féminin du style
+### Puissance Réelle chez la femme : mon alter-ego féminin du style
 
 Voyons un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre ancienne collaboration [Décontracté, Chic & Wax](http://www.crevardstyle.com/D%C3%A9contract%C3%A9-Chic-&-Wax).
 
-### Perte de Puissance
+### Puissance Relative : perte de Puissance
 
 Une des raisons pour lesquelles on peut perdre en Puissance au moment de retirer la pièce forte
+
+### Puissance Intermédiaire ou Puissance Relative optimisée
+
+Perte de Puissance constatée mais limitée grâce aux accessoires de la tenue. D'où le fait que l'on parle de Puissance Relative optimisée.
 
 ### Autres situations hypothétiques
 
