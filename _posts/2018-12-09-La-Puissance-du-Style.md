@@ -51,7 +51,7 @@ Et bien non ! Jetez un oeil sur la photo suivante.
 
 ![power_loss2]({{site.url}}/{{site.baseurl}}img/power_loss2.jpg)
 
-En retirant le manteau ainsi que l'écharpe, la tenue a perdu de façon non-négligeable en puissance. On se retrouve avec quelque chose de correct, je n'en disconvient pas, mais l'ensemble devient sans plus tout d'un coup. Le fait de conserver une même couleur sur le pull et le pantalon y joue dans cette perte d'impact. On est en manque d'harmonie. Ce n'est que mon avis, mais je trouve "trop facile" de mettre que du noir dans une tenue ou abuser d'une même couleur. Comprenez qu'il est très important de respecter cet écart si l'on veut conserver une Puissance Réelle dans son style.
+En retirant le manteau ainsi que l'écharpe, la tenue a perdu de façon non-négligeable en puissance. On se retrouve avec quelque chose de correct, je n'en disconvient pas, mais l'écart est trop flagrant à mon goût. Le fait de conserver une même couleur sur le pull et le pantalon y joue dans cette perte d'impact. On est en manque d'harmonie. Ce n'est que mon avis, mais je trouve "trop facile" de mettre que du noir dans une tenue ou abuser d'une même couleur. Comprenez qu'il est très important de respecter cet écart si l'on veut conserver une Puissance Réelle dans son style.
 
 ### Puissance Intermédiaire ou Puissance Relative optimisée
 
