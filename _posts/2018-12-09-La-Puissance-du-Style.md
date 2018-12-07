@@ -13,12 +13,12 @@ La Puissance du style est présente en chacun de nous. La laisser s'exprimer pas
 
 ### Kesako ?
 
-***Puissance DU Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout.  
+***Puissance du Style*** : Impact visuel que l'on peut ressentir grâce à l'harmonie d'une tenue ou d'un style. Ce que j'appelle la Puissance de style, c'est à quel point la personne possède un style fort et propre à elle même. C'est un tout.  
 En résumé, si vous voyez quelqu'un et que vous faîtes "Wouah!" lors de votre première impression (vestimentaire), c'est que la personne possède une forte puissance de style. L'harmonie d'une tenue se fait grâce à la façon dont le corps va être mis en valeur par les vêtements. Cela reste quand même subjectif comme l'art. Ce qui va paraître beau pour une personne ne le sera pas forcément pour une autre.
 
 ### Problématique
 
-On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut être les chaussures, ou la veste entre autres. Considérons le cas où la veste est la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste ? La tenue perd-elle tout son esthétisme ? 
+On remarque souvent une ou deux pièce(s) forte(s) sur une tenue. Cela peut être les chaussures, ou la veste entre autres. Considérons le cas où la veste est la pièce forte. Si on la retire, que devient le rendu total de la tenue sans la veste ? La tenue perd-elle tout son esthétisme et son impact doux à nos yeux ? 
 
 D'où peut être l'importance d'avoir d'ores-et-déjà une pièce, ou un ensemble fort de base sans la veste. À voir ...
 
