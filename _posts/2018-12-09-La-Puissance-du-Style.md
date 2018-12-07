@@ -55,7 +55,10 @@ En retirant le manteau ainsi que l'écharpe, la tenue a perdu de façon non-nég
 
 ### Puissance Intermédiaire ou Puissance Relative optimisée
 
+Que faire quand on constate que notre Puissance est Relative pour éviter de créer un fossé entre la présence de la veste/manteau et son absence ? Encore une fois, les accessoires deviennent de fidèles alliés. Dans la photo qui suit, j'ai juste remis l'écharpe en cashmere. Jouer sur les matières sont également un atout.
 Perte de Puissance constatée mais limitée grâce aux accessoires de la tenue. D'où le fait que l'on parle de Puissance Relative optimisée. On limite la casse tout en gardant la classe.
+
+![power_loss3]({{site.url}}/{{site.baseurl}}img/power_loss3.jpg)
 
 ### Autres situations hypothétiques
 
