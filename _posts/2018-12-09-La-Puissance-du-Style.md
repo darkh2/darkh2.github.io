@@ -36,13 +36,21 @@ Après avoir retiré la veste verte, la tenue ne perd pas en esthétisme, le ren
 
 Un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre collaboration [Décontracté, Chic & Wax](http://www.crevardstyle.com/D%C3%A9contract%C3%A9-Chic-&-Wax).
 
+![power_claudia2]({{site.url}}/{{site.baseurl}}img/power_claudia2.jpg)
+
+![power_claudia]({{site.url}}/{{site.baseurl}}img/power_claudia.jpg)
+
+Elle possède un remarquable talent de savoir assembler sa tenue. La veste bleue apporte vraiment un contraste qui embellit le tout. Mais même en la retirant, on remarque que la Puissance est Réelle. Combinaison parfaite entre les éléments de base, les accessoires ainsi que la veste.
+
 ### Puissance Relative : perte de Puissance
 
-Une des raisons pour lesquelles on peut perdre en Puissance au moment de retirer la pièce forte
+![power_loss]({{site.url}}/{{site.baseurl}}img/power_loss.jpg)
+
+![power_loss2]({{site.url}}/{{site.baseurl}}img/power_loss2.jpg)
 
 ### Puissance Intermédiaire ou Puissance Relative optimisée
 
-Perte de Puissance constatée mais limitée grâce aux accessoires de la tenue. D'où le fait que l'on parle de Puissance Relative optimisée.
+Perte de Puissance constatée mais limitée grâce aux accessoires de la tenue. D'où le fait que l'on parle de Puissance Relative optimisée. On limite la casse tout en gardant la classe.
 
 ### Autres situations hypothétiques
 
