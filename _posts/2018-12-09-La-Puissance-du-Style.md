@@ -68,6 +68,13 @@ Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures 
 
 Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de garder en puissance au moment où vous retirerez votre veste ou manteau. Maintenir son harmonie. C'est pour cela que vous devez éviter les looks trop unis. Ou bien à la limite favoriser les accessoires et jouer sur les matières et tons de couleurs.
 
+![heattoschoolveste]({{site.url}}/{{site.baseurl}}img/heattoschoolveste.jpeg)
+
+Ici, les accessoires sont présents mais restent moindre. Ce qui est normal vu le contexte dans lequel je suis. Vous vous doutez bien que je ne vais pas m'habiller en costume pour aller me balader et faire le touriste en profitant des derniers brins de soleil. Le look présente plusieurs couleurs avec un zeste d'originalité et juger par vous-même si la Puissance est Réelle ou Relative après avoir retiré la veste.
+
+![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
+
+
 Prendre 2 types de photos
 Prendre Keep It 100 pt.3
 Shooting Eliot
