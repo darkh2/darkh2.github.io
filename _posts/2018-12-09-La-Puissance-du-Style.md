@@ -86,10 +86,7 @@ Avoir un manteau ou une veste très forte dans une tenue peut comporter un risqu
 Plusieurs solutions :
 - Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
 - Soit combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
-- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.  
-  
-Les pièces à prioriser pour une tenue selon moi seraient les Shoes et la veste. Dans un second temps le pantalon et/ou le haut (chemise/polo/tshirt).
-Varier les pièces fortes donnerait un coup d'originalité et un gain de puissance de style. Faire en sorte également que les pièces fortes ne se chevauchent pas et ne créent pas un trop fort contraste surtout s'il y a des motifs. Le faire en essayant de garder une continuité si lon veut prendre le risque.  
+- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.   
 
 ### Les types de Puissance
 
