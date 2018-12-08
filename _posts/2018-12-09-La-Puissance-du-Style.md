@@ -62,7 +62,7 @@ On a donc ici une perte de Puissance constatée, mais limitée grâce aux access
 
 ### Autres situations hypothétiques
 
-Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance en modifiant une des pièces fortes qui ne sera pas la veste. Même si, dans la rélaité, on ne retirera pas ces éléments.
+Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance en modifiant une des pièces fortes qui ne sera pas la veste. Même si, en réalité, on ne retirera pas ces éléments.
 
 ### Comment optimiser sa Puissance ?
 
