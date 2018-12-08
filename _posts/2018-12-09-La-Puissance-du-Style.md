@@ -78,17 +78,13 @@ Si vous sentez que malgré que vous ayez assemblé les bonnes pièces, mais que 
 Toujours penser à garder sa puissance même sans la veste
 
 Le risque quand vous prenez une veste ou manteau et qu'elle soit très forte en puissance justement vous vous exposez à perdre au moment où vous l'enleverez.
-Deux solutions :
-Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires. 
-Soit combiner 2 pièces fortes dans une tenue
-Ou encore consolider les deux en modulant la puissance des 2 éléments forts de la tenue.
+Plusieurs solutions :
+- Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires. 
+- Soit combiner deux pièces fortes dans une tenue.
+- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
 
 Raisons pour lesquelles on peut perdre en puissance de style.
 La tenue sans la veste est trop sobre trop uniforme ou tout simplement les éléments sont mal assemblés ou encore les coupes et tailles ne sont pas appropriées aux morphologies en question.
-
-Comment gagner en puissance de style ?
-Dans un premier temps en respectant les règles fondamentales comme des habits a sa taille, qui mettent en valeur le corps selon la morphologie...
-Arrêter d'avoir des tenues avec des couleurs unies comme le full black par exemple. Les gars un peu de personnalité, harmonisez moi tout ça !
 
 Les pièces à prioriser pour une tenue selon moi seraient les Shoes et la veste. Dans un second temps le pantalon et/ou le haut (chemise/polo/tshirt).
 Varier les pièces fortes donnerait un coup d'originalité et un gain de puissance de style. Faire en sorte également que les pièces fortes ne se chevauchent pas et ne créent pas un trop fort contraste surtout s'il y a des motifs. Le faire en essayant de garder une continuité si lon veut prendre le risque.
