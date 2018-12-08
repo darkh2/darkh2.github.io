@@ -34,13 +34,13 @@ Après avoir retiré la veste verte, la tenue ne perd pas en esthétisme, le ren
 
 ### Puissance Réelle chez la femme : mon alter-ego féminin du style
 
-Un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre collaboration [Décontracté, Chic & Wax](http://www.crevardstyle.com/D%C3%A9contract%C3%A9-Chic-&-Wax).
+Un autre cas concret de restauration de Puissance chez la femme. Rien de mieux que de vous l'expliquer grâce à mon mentor Claudia avec qui j'ai écrit un article sur notre collaboration : [Décontracté, Chic & Wax](http://www.crevardstyle.com/D%C3%A9contract%C3%A9-Chic-&-Wax).
 
 ![power_claudia2]({{site.url}}/{{site.baseurl}}img/power_claudia2.jpg)
 
 ![power_claudia]({{site.url}}/{{site.baseurl}}img/power_claudia.jpg)
 
-Elle possède un remarquable talent de savoir assembler sa tenue. La veste bleue apporte vraiment un contraste qui embellit le tout. Mais même en la retirant, on remarque que la Puissance est Réelle. Combinaison parfaite entre les éléments de base, les accessoires ainsi que la veste.
+Elle possède un remarquable talent de savoir assembler sa tenue. La veste bleue apporte vraiment un contraste qui embellit le tout. Mais même en la retirant, on remarque que la Puissance est Réelle. En effet, l'impact est toujours présent. Il y a une combinaison parfaite entre les éléments de base, les accessoires ainsi que la veste.
 
 ### Puissance Relative : perte de Puissance
 
