@@ -78,15 +78,15 @@ Sachant que vous avez une ou deux pièces fortes, il faudra faire en sorte de ga
 Raisons pour lesquelles on peut perdre en Puissance :  
 - Il manque des accessoires.
 - Pas de pièce forte dans votre tenue.
-- La ou les pièce(s) forte(s) n'impacte(nt) pas tant que ça.
+- La ou les pièce(s) forte(s) n'impacte(nt) pas suffisamment.
 - La tenue sans la veste est trop sobre, trop uniforme.
 - Les éléments sont mal assemblés.
 - Les coupes et les tailles ne sont pas appropriées aux morphologies en question.
 
 Avoir un manteau ou une veste très forte dans une tenue peut comporter un risque concernant votre Puissance. Surtout quand vous serez amenés à retirer cette pièce.  
 Plusieurs solutions :
-- Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
-- Soit combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
+- Favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
+- Combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
 - Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.   
 
 
