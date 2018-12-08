@@ -74,23 +74,22 @@ Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de ga
 
 ![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
 
-Si vous sentez que malgré que vous ayez assemblé les bonnes pièces, mais que votre tenue est trop faible en puissance, alors soit il vous manque des accessoires, soit il n'y a pas de pièce forte dans votre tenue, ou encore la pièce forte en question n'impacte pas tant que ça.
-Toujours penser à garder sa puissance même sans la veste
+Raisons pour lesquelles on peut perdre en Puissance :  
+- Il manque des accessoires.
+- Pas de pièce forte dans votre tenue.
+- La ou les pièce(s) forte(s) n'impacte(nt) pas tant que ça.
+- La tenue sans la veste est trop sobre, trop uniforme.
+- Les éléments sont mal assemblés.
+- Les coupes et les tailles ne sont pas appropriées aux morphologies en question.
 
 Avoir un manteau ou une veste très forte dans une tenue peut comporter un risque concernant votre Puissance. Surtout quand vous serez amenés à retirer cette pièce.  
 Plusieurs solutions :
 - Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
 - Soit combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
-- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
-
-Raisons pour lesquelles on peut perdre en Puissance.
-La tenue sans la veste est trop sobre trop uniforme ou tout simplement les éléments sont mal assemblés ou encore les coupes et tailles ne sont pas appropriées aux morphologies en question.
-
+- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.  
+  
 Les pièces à prioriser pour une tenue selon moi seraient les Shoes et la veste. Dans un second temps le pantalon et/ou le haut (chemise/polo/tshirt).
-Varier les pièces fortes donnerait un coup d'originalité et un gain de puissance de style. Faire en sorte également que les pièces fortes ne se chevauchent pas et ne créent pas un trop fort contraste surtout s'il y a des motifs. Le faire en essayant de garder une continuité si lon veut prendre le risque.
-
-Effet de surprise. Vous pensez que je suis à fond niveau puissance sachant que j'ai bien assemblé les pièces ? Et bien non
-Maintenant voyez par vous même avec les accessoires. (Photo test wax)
+Varier les pièces fortes donnerait un coup d'originalité et un gain de puissance de style. Faire en sorte également que les pièces fortes ne se chevauchent pas et ne créent pas un trop fort contraste surtout s'il y a des motifs. Le faire en essayant de garder une continuité si lon veut prendre le risque.  
 
 ### Les types de Puissance
 
