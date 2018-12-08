@@ -87,7 +87,7 @@ Avoir un manteau ou une veste très forte dans une tenue peut comporter un risqu
 Plusieurs solutions :
 - Favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
 - Combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
-- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
-
+- Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.  
+  
 
 En éspérant que cet article vous aura permis de voir un peu plus clair dans le développement de votre style. Et que dès à présent, vous ferez en sorte d'avoir une Puissance Réelle plutôt que Relative. Mais tout est relatif...
