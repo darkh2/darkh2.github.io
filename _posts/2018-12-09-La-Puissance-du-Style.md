@@ -30,7 +30,7 @@ Voyons un cas dans lequel on conserve en Puissance.
 
 ![power_restauration2]({{site.url}}/{{site.baseurl}}img/power_restauration2.jpg)
 
-Après avoir retiré la veste verte, la tenue ne perd pas en esthétisme, le rendu est toujours top et l'assemblage des couleurs est en harmonie. De plus, les accessoires font merveilleusement bien leur travail de peaufiner le tout. La Puissance est tout bonnement réelle.
+Après avoir retiré la veste verte, la tenue ne perd pas en esthétisme, le rendu est toujours top et l'assemblage des couleurs est en harmonie. De plus, les accessoires font merveilleusement bien leur travail de finalisation. La Puissance est tout bonnement réelle.
 
 ### Puissance Réelle chez la femme : mon alter-ego féminin du style
 
