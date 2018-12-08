@@ -74,13 +74,13 @@ Sachant que vous avez une ou deux pièces fortes. Il faudra faire en sorte de ga
 
 ![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
 
-Si vous sentez que malgré que vous ayez assemblé les bonnes pièces, mais que votre tenue est trop faible en puissance, alors soit il vous manque des accessoires, soit il n'y a pas de pièce forte dans votre tenue ou encore la pièce forte en question nimpacte pas tant que ça 
+Si vous sentez que malgré que vous ayez assemblé les bonnes pièces, mais que votre tenue est trop faible en puissance, alors soit il vous manque des accessoires, soit il n'y a pas de pièce forte dans votre tenue, ou encore la pièce forte en question n'impacte pas tant que ça.
 Toujours penser à garder sa puissance même sans la veste
 
 Le risque quand vous prenez une veste ou manteau et qu'elle soit très forte en puissance justement vous vous exposez à perdre au moment où vous l'enleverez.
 Plusieurs solutions :
-- Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires. 
-- Soit combiner deux pièces fortes dans une tenue.
+- Soit favoriser une pièce qui pique moins les yeux. Et penser aux accessoires.
+- Soit combiner deux pièces fortes dans une tenue. Ou plus, mais sans pour autant ressembler à un clown.
 - Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
 
 Raisons pour lesquelles on peut perdre en Puissance.
