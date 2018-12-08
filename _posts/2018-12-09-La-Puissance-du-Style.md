@@ -90,8 +90,4 @@ Plusieurs solutions :
 - Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
 
 
-En éspérant que cet article vous aura permis de voir un peu plus clair dans le développement de votre style. Et que dès à présent, vous ferez en sorte d'avoir une Puissance Réelle plutôt que Relative. Mais tout est relatif ...
-
-
-
-(article en cours d'élaboration...)
+En éspérant que cet article vous aura permis de voir un peu plus clair dans le développement de votre style. Et que dès à présent, vous ferez en sorte d'avoir une Puissance Réelle plutôt que Relative. Mais tout est relatif...
