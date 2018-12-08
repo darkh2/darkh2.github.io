@@ -40,7 +40,7 @@ Un autre cas concret de restauration de Puissance chez la femme. Rien de mieux q
 
 ![power_claudia]({{site.url}}/{{site.baseurl}}img/power_claudia.jpg)
 
-Elle possède un remarquable talent de savoir assembler sa tenue. La veste bleue apporte vraiment un contraste qui embellit le tout. Mais même en la retirant, on remarque que la Puissance est Réelle. En effet, l'impact est toujours présent. Il y a une combinaison parfaite entre les éléments de base, les accessoires ainsi que la veste.
+Elle possède un remarquable talent de savoir assembler sa tenue. La veste bleue apporte vraiment un contraste qui embellit le tout. Mais même en la retirant, on remarque que la Puissance est Réelle. En effet, l'impact est toujours présent. Il y a une combinaison parfaite entre les éléments de base, les accessoires que ce soit avec ou sans la veste.
 
 ### Puissance Relative : perte de Puissance
 
@@ -55,12 +55,13 @@ En retirant le manteau ainsi que l'écharpe, la tenue a perdu de façon non-nég
 
 ### Puissance Intermédiaire ou Puissance Relative optimisée
 
-Que faire quand on constate que notre Puissance est Relative pour éviter de créer un fossé entre la présence de la veste/manteau et son absence ? Encore une fois, les accessoires deviennent de fidèles alliés. Dans la photo qui suit, j'ai juste remis l'écharpe en cashmere. Jouer sur les matières est également un atout.
+Que faire quand on constate cet sorte de fossé entre la présence de la veste/manteau et son absence ?  
+Encore une fois, les accessoires deviennent de fidèles alliés. Dans la photo qui suit, j'ai juste remis l'écharpe en cashmere. Jouer sur les matières est également un atout.
 On a donc ici une perte de Puissance constatée, mais limitée grâce aux accessoires de la tenue. D'où le fait que l'on parle de Puissance Relative optimisée. On limite la casse tout en gardant la classe.
 
 ![power_loss3]({{site.url}}/{{site.baseurl}}img/power_loss3.jpg)
 
-### Autres situations hypothétiques
+#### Autres situations hypothétiques
 
 Difficile de retirer un pantalon ou un pull d'une tenue et même les chaussures d'ailleurs. Mais cela reste une bonne idée de penser à si l'on va garder ou perdre en puissance en modifiant une des pièces fortes qui ne sera pas la veste. Même si, en réalité, on ne retirera pas ces éléments.
 
