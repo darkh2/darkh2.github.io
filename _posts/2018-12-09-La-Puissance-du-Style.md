@@ -83,7 +83,7 @@ Plusieurs solutions :
 - Soit combiner deux pièces fortes dans une tenue.
 - Ou encore consolider les deux en modulant la puissance des deux éléments forts de la tenue.
 
-Raisons pour lesquelles on peut perdre en puissance de style.
+Raisons pour lesquelles on peut perdre en Puissance.
 La tenue sans la veste est trop sobre trop uniforme ou tout simplement les éléments sont mal assemblés ou encore les coupes et tailles ne sont pas appropriées aux morphologies en question.
 
 Les pièces à prioriser pour une tenue selon moi seraient les Shoes et la veste. Dans un second temps le pantalon et/ou le haut (chemise/polo/tshirt).
