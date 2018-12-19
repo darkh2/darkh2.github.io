@@ -8,10 +8,13 @@ feature_image: regard.jpg
 ---
 ## Le regard des autres sur votre style
 
-J'étais en train d'attendre le métro sur le quai pendant une heure de forte affluence. J'aperçus un jeune homme grand, vêtu avec un style tout droit sorti de la fashiok week. Grosses boots noires façon grunge, jean noir, pull blanc et longue fourrure comme dans un film médiéval. Coupe au bol sans dégradé avec queue de cheval, cheveux noirs avec sourcils blonds.  
-Juste derrière ce monsieur, je vis une jeune demoiselle avec un sourire moqueur prendre en photo discrètement le fameux jeune homme tout en envoyant ensuite un audio à son interlocuteur pour émettre un jugement sur la tenue en question.
-Je n'ai pas voulu le prendre en photo pour vous le montrer parce que je ne fais pas ce genre de choses sans le consentement de la personne. Tout ce que je peux vous dire c'est que même si je ne trouvais pas sa tenue belle, je validais fort son style avec sa puissance qui en découlait. 
-Pourquoi je vous raconte ça ? Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+*J'étais en train d'attendre le métro sur le quai pendant une heure de forte affluence. J'aperçus un jeune homme grand, vêtu avec un style tout droit sorti de la fashiok week. Grosses boots noires façon grunge, jean noir, pull blanc et longue fourrure comme dans un film médiéval. Coupe au bol sans dégradé avec queue de cheval, cheveux noirs avec sourcils blonds.  
+Juste derrière ce monsieur, je vis une jeune demoiselle avec un sourire moqueur, prendre en photo discrètement le fameux jeune homme tout en envoyant ensuite un audio à son interlocuteur pour émettre un jugement sur la tenue en question.
+Je n'ai pas voulu le prendre en photo pour vous le montrer, parce que je ne fais pas ce genre de choses sans le consentement de la personne. Tout ce que je peux vous dire, c'est que même si je ne trouvais pas sa tenue belle à mes yeux, je validais fort son style authentique avec sa [Puissance](http://www.crevardstyle.com/La-Puissance-du-Style) qui en découlait.*
+
+### Pourquoi je vous raconte ça ?
+
+ Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
 
 Vous pensez que parce que la plupart des gens disent que vous avez un bon style que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
 
