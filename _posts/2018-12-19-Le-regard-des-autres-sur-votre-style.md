@@ -31,31 +31,10 @@ La semaine qui suit, vous prenez une autre photo que vous trouvez encore meilleu
 Le problème est uniquement vous ! Pas en raison de la photo que vous avez publié où vous portez votre plus belle tenue (au contraire, je suis sûr que cette photo est parfaite), mais parce que vous n'aviez pas les bons objectifs.  Parce que vous avez donné le droit aux autres de vous dicter votre valeur.  
 Parce que vous vous attendiez à ce que les autres vous valident.  
 Parce que vous avez développé une addiction sur cette validation.  
-Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ? Oh non ! Vous n'avez pas besoin de ça pour vous sentir bien. Donc, arrêtez-moi ça tout de suite, concentrez-vous sur votre personne et sur la façon dont vous serez meilleur chaque jour. Et c'est à ce moment là, que vous commencerez à attirer du positif dans votre vie. La validation d'autrui n'est pas prévisible dans l'absolue et vous pouvez très bien faire sans.
+Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ? Oh non ! Vous n'avez pas besoin de ça pour vous sentir bien. Donc, arrêtez-moi ça tout de suite, concentrez-vous sur votre personne et sur la façon dont vous serez meilleur chaque jour. Et c'est à ce moment là, que vous commencerez à attirer du positif dans votre vie. La validation d'autrui n'est pas prévisible dans l'absolue et vous pouvez très bien faire sans. 
 
-Une des tenues que j'avais très bien assemblée pour laquelle je pensais recevoir beaucoup de compliments, n'avait pas eu l'effet désiré. Parce que la masse ne sait pas tout et elle ne s'était donc pas rendue compte de cet effort. Certes, j'ai quand même eu de très bons retours, mais je vous avoue que je m'attendais à plus. D'où l'intérêt qu'il ne faut rien attendre en retour. S'habiller pour soi. Vivre pour soi.
-Plus tard, j'avais eu un retour inattendu d'une très belle tenue qui me paraissait vraiment sobre mais sans plus. Comme quoi, la validation d'autrui n'est pas prévisible dans l'absolue. 
-
-Cette pensée que j'ai eu est totalement triviale parce que je m'attendais à un retour des autres. Donc j'accordais mon importance sur le regard des autres. C'est certain que cela fait toujours plaisir de recevoir des compliments mais ça ne doit pas être le but recherché. Les compliments doivent être vus comme une conséquence possible, pas un but. C'est une des raisons pour lesquelles, développer son style est un investissement sur soi-même uniquement. 
-
-### Majorité = Vérité ?
-
-Si de nos jours, bien s'habiller est à la portée de tous, cela ne veut pas forcément dire que tout le monde va bien s'habiller. Quand bien même ce soit le cas, on devra toujours progresser quoi qu'il advienne. Donc savoir dans un premier temps que la majorité n'a pas toujours raison.
-Beaucoup de personnes fument si ce n'est la majorité. Est ce que cela veut dire que c'est une bonne chose ? I dont think so...
-Exemple : 
-
-
-Quand vous prenez conscience de savoir comment vous habiller un minimum, même si votre chérie ne valide pas, et que ce qu'elle vous propose ne vous correspond pas où ne vous fait pas évoluer, alors dîtes non ! Vous n'êtes pas un pantin qui doit faire comme les autres ou vous faire manipuler par une paire de nénés. Pas facile mais je vous fait confiance !
-
-
-
-Si je vous disais que ce sera le fait de vous plaire qui fera en sorte que vous plairez à ceux qui vous ressemblent. Et quel intérêt de plaire à ceux qui ne vous plairont pas ?
-
-Ce qu'il y a de plus triste dans tout ça c'est que tout ce que vous ne savez pas peut être votre pire ennemi mais vos connaissances sont en revanche de véritables alliées.
-
+C'est certain que cela fait toujours plaisir de recevoir des compliments mais ça ne doit pas être le but recherché. Les compliments doivent être vus comme une conséquence possible, pas un but. C'est une des raisons pour lesquelles, développer son style est un investissement sur soi-même uniquement.   
+Si je vous disais que ce sera le fait de vous plaire qui fera en sorte que vous plairez à ceux qui vous ressemblent. Et puis, quel intérêt de plaire à ceux qui ne vous plairont pas ?  
 Savoir s'habiller est une base que tout le monde peut acquérir mais ce que peux penser les autres cela varie. Les avis qu'ils soient objectifs ou subjectifs ne détermineront pas si vous savez vous vêtir ou non. 
-
-Sachez que peu importe qui vous êtes et comment vous serez vêtu il y aura toujours des critiques. Et dîtes vous qu'au contraire les critiques doivent même vous rassurer. Le plus important est de connaître votre valeur et ce que vous avez accompli jusqu'à maintenant et aussi ce que vous serez amenés à réaliser. 
-
 
 
