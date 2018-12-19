@@ -30,7 +30,8 @@ Vous venez de poster une magnifique photo de vous avec une tenue merveilleuse su
 La semaine qui suit, vous prenez une autre photo que vous trouvez encore meilleure que la précédente ayant eu un succès phénoménal. Là, vous vous dîtes, je vais encore frapper plus fort. Vous avez une confiance en acier !  
 Et BIM !  
 Votre post n'a pas eu l'effet desiré. Moins de like, moins de compliments, et pas de partage, ni de message. C'est limite la panique, votre ego en prend un coup, alors qu'en soit, il n'y a absolument rien de dramatique.  
-Le problème est uniquement vous ! Pas en raison de la photo que vous avez publié où vous portez votre plus belle tenue (au contraire, je suis sûr que cette photo est parfaite), mais parce que vous n'aviez pas les bons objectifs.  Parce que vous avez donné le droit aux autres de vous dicter votre valeur.  
+Le problème est uniquement vous ! Pas en raison de la photo que vous avez publié où vous portez votre plus belle tenue (au contraire, je suis sûr que cette photo est parfaite), mais parce que vous n'aviez pas les bons objectifs. 
+Parce que vous avez donné le droit aux autres de vous dicter votre valeur.  
 Parce que vous vous attendiez à ce que les autres vous valident.  
 Parce que vous avez développé une addiction sur cette validation.  
 Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ? Oh non ! Vous n'avez pas besoin de ça pour vous sentir bien. Donc, arrêtez-moi ça tout de suite, concentrez-vous sur votre personne et sur la façon dont vous serez meilleur chaque jour. Et c'est à ce moment là, que vous commencerez à attirer du positif dans votre vie. La validation d'autrui n'est pas prévisible dans l'absolue et vous pouvez très bien faire sans. 
