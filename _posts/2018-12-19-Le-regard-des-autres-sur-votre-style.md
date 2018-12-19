@@ -34,7 +34,7 @@ Le problème est uniquement vous ! Pas en raison de la photo que vous avez publi
 Parce que vous avez donné le droit aux autres de vous dicter votre valeur.  
 Parce que vous vous attendiez à ce que les autres vous valident.  
 Parce que vous avez développé une addiction sur cette validation.  
-Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ? Oh non ! Vous n'avez pas besoin de ça pour vous sentir bien. Donc, arrêtez-moi ça tout de suite, concentrez-vous sur votre personne et sur la façon dont vous serez meilleur chaque jour. Et c'est à ce moment là, que vous commencerez à attirer du positif dans votre vie. La validation d'autrui n'est pas prévisible dans l'absolue et vous pouvez très bien faire sans. 
+Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ? Oh non ! Vous n'avez pas besoin de ça pour vous sentir bien. Donc, arrêtez-moi ça tout de suite, concentrez-vous sur votre personne et sur la façon dont vous serez meilleur chaque jour. Et c'est à ce moment là, que vous commencerez à attirer du positif dans votre vie. Vous vous sentirez également bien mieux que d'attendre l'approbation des autres. La validation d'autrui n'est pas prévisible dans l'absolue et vous pouvez très bien faire sans. 
 
 C'est certain que cela fait toujours plaisir de recevoir des compliments mais ça ne doit pas être le but recherché. Les compliments doivent être vus comme une conséquence possible, pas un but. C'est une des raisons pour lesquelles, développer son style est un investissement sur soi-même uniquement.   
 Si je vous disais que ce sera le fait de vous plaire qui fera en sorte que vous plairez à ceux qui vous ressemblent. Et puis, quel intérêt de plaire à ceux qui ne vous plairont pas ?  
