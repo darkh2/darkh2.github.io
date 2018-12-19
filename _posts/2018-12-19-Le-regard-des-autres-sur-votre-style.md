@@ -26,8 +26,8 @@ Néanmoins, nous pouvons plaire à ceux qui nous plaisent. Et c'est encore mieux
 
 Partir constamment à la quête de la validation d'autrui est un cercle vicieux, dont vous ne serez jamais satisfait puisque votre baromètre dépend de celui des autres. Et votre priorité pour vous sentir bien est vous-même.
 
-Une des tenues que j'avais très bien assemblée pour laquelle je pensais recevoir beaucoup de compliments. Et bien je n'ai pas eu l'effet désiré. La masse ne sait pas tout. Certes j'ai quand même eu de très bons retours mais je vous avoue que je m'attendais à plus. D'où l'intérêt qu'il ne faut rien attendre en retour. S'habiller pour soi. Vivre pour soi.
-Néanmoins j'ai eu un retour inattendu d'une très belle tenue qui me paraissait vraiment sobre mais sans plus. Comme quoi hein. 
+Une des tenues que j'avais très bien assemblée pour laquelle je pensais recevoir beaucoup de compliments, n'avait pas eu l'effet désiré. Parce que la masse ne sait pas tout et elle ne s'était donc pas rendue compte de cet effort. Certes, j'ai quand même eu de très bons retours, mais je vous avoue que je m'attendais à plus. D'où l'intérêt qu'il ne faut rien attendre en retour. S'habiller pour soi. Vivre pour soi.
+Plus tard, j'avais eu un retour inattendu d'une très belle tenue qui me paraissait vraiment sobre mais sans plus. Comme quoi, la validation d'autrui n'est pas prévisible dans l'absolue. 
 
  
 
