@@ -15,11 +15,11 @@ Je n'ai pas voulu le prendre en photo pour vous le montrer, parce que je ne fais
 ### Pourquoi je vous raconte ça ?
 
 Les critiques non constructives et les moqueries sont majoritairement à l'origine d'un manque de connaissance. Quand il est face à l'inconnu, l'être humain a tendance à émettre des jugements en prenant en compte que ses paramètres à lui, et rarement tout l'ensemble des circonstances et du contexte. Parfois, sans y inclure l'empathie.
-Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
 
-Vous pensez que parce que la plupart des gens disent que vous avez un bon style que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
+Pensez-vous réellement que si la plupart des gens disent que vous avez un bon style, que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
 
-Comment différencier le bon de l'ivraie ? Même si de nos jours, bien s'habiller est à la portée de tous, cela ne veut pas forcément dire que tout le monde va bien s'habiller. Et quand bien même on devra toujours progresser quoi qu'il advienne. Donc savoir dans un premier temps que la majorité n'a pas toujours raison.
+Même si de nos jours, bien s'habiller est à la portée de tous, cela ne veut pas forcément dire que tout le monde va bien s'habiller. Et quand bien même on devra toujours progresser quoi qu'il advienne. Donc savoir dans un premier temps que la majorité n'a pas toujours raison.
 Beaucoup de personnes fument si ce n'est la majorité. Est ce que cela veut dire que c'est une bonne chose ? I dont think so...
 Exemple : une des tenues pour lesquelles je pensais que j'allais recevoir grave des compliments car je m'étais dis que j'avais très bien assembler les pièces, et bien je n'ai pas eu l'effet désiré. La masse ne sait pas tout. Certes j'ai quand même eu de très bons retours mais je vous avoue que je m'attendais à plus. D'où l'intérêt qu'il ne faut rien attendre en retour. S'habiller pour soi. Vivre pour soi.
 Néanmoins j'ai eu un retour inattendu d'une très belle tenue qui me paraissait vraiment sobre mais sans plus. Comme quoi hein. C'est une des raisons pour lesquelles développer son style est un investissement sur soi même uniquement.
