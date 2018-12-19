@@ -14,8 +14,12 @@ Je n'ai pas voulu le prendre en photo pour vous le montrer, parce que je ne fais
 
 ### Que peut-on retenir de cette histoire ?
 
-Les critiques non constructives et les moqueries sont majoritairement à l'origine d'un manque de connaissance. Quand il est face à l'inconnu, l'être humain a tendance à émettre des jugements en prenant en compte que ses paramètres à lui, et rarement tout l'ensemble des circonstances et du contexte. Parfois, sans y inclure l'empathie.
-Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+Les critiques non constructives et les moqueries sont majoritairement à l'origine d'un manque de connaissance. Quand il est face à l'inconnu, l'être humain a tendance à émettre des jugements en prenant en compte que ses paramètres à lui, et rarement tout l'ensemble des circonstances et du contexte. Parfois même, sans y inclure l'empathie.
+L'assimilation de connaissances permet de devenir sage, vous ne ressentez pas le besoin d'étaler votre savoir, ou d'émettre des jugements infondés.
+
+Chacun a le droit d'avoir sa propre vision sur le style, tous les goûts sont dans la nature. Donc quoi qu'il arrive, vous êtes et serez toujours exposés à la critique. Qui que vous soyez, quoi que vous fassiez, et peu importe la façon dont vous serez habillé.
+
+Cela m'était déjà arrivé de passer pour un rigolo ou un clown aux yeux d'autrui. Mais, croyez-moi qu'à force, quand vous savez ce que vous valez, ce regard vous fait sourire parce que les gens ne savent rien. Les gens ont tendnace à craindre et critiquer ce qu'ils ne connaissent pas car ils sont noyés dans leur zone de confort et leur mine d'informations limitée. Ça fait partie du jeu et puis nous ne pouvons pas plaire à tout le monde. Mais nous pouvons plaire à ceux qui nous plaise3et ça c'est encore mieux. Et comment ? En s'inspirant d'eux tout en ayant son propre flow. Je pars du principe que si l'on veut attirer les bonnes personnes, il faut avant tout devenir une bonne personne.
 
 Pensez-vous réellement que si la plupart des gens disent que vous avez un bon style, que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
 
@@ -27,7 +31,7 @@ Ce que vous venez de lire est une pensée que j'ai eu mais en vérité cette ré
 
 Quand vous prenez conscience de savoir comment vous habiller un minimum, même si votre chérie ne valide pas, et que ce qu'elle vous propose ne vous correspond pas où ne vous fait pas évoluer, alors dîtes non ! Vous n'êtes pas un pantin qui doit faire comme les autres ou vous faire manipuler par une paire de nénés. Pas facile mais je vous fait confiance !
 
-Cela l'était déjà arrivé de passer pour un rigolo ou un clown aux yeux d'autrui. Mais croyez moi à force quand vous savez ce que vous valez, ce regard vous fait sourire parce que les gens ne savent rien. Parce que nous faisons parfois des préjugés. Les gens ont tendnace à craindre et critiquer ce qu'ils ne connaissent pas car ils sont noyés dans leur zone de confort et leur mine d'informations limitée. Ça fait partie du jeu et puis nous ne pouvons pas plaire à tout le monde. Mais nous pouvons plaire à ceux qui nous plaise3et ça c'est encore mieux. Et comment ? En s'inspirant d'eux tout en ayant son propre flow.
+
 
 Si je vous disais que ce sera le fait de vous plaire qui fera en sorte que vous plairez à ceux qui vous ressemblent. Et quel intérêt de plaire à ceux qui ne vous plairont pas ?
 
