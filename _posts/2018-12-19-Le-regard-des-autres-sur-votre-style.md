@@ -14,7 +14,8 @@ Je n'ai pas voulu le prendre en photo pour vous le montrer, parce que je ne fais
 
 ### Pourquoi je vous raconte ça ?
 
- Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+Les critiques non constructives et les moqueries sont majoritairement à l'origine d'un manque de connaissance. Quand il est face à l'inconnu, l'être humain a tendance à émettre des jugements en prenant en compte que ses paramètres à lui, et rarement tout l'ensemble des circonstances et du contexte. Parfois, sans y inclure l'empathie.
+Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
 
 Vous pensez que parce que la plupart des gens disent que vous avez un bon style que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
 
