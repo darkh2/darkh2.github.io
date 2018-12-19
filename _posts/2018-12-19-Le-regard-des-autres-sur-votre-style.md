@@ -8,6 +8,11 @@ feature_image: regard.jpg
 ---
 ## Le regard des autres sur votre style
 
+J'étais en train d'attendre le métro sur le quai pendant une heure de forte affluence. J'aperçus un jeune homme grand, vêtu avec un style tout droit sorti de la fashiok week. Grosses boots noires façon grunge, jean noir, pull blanc et longue fourrure comme dans un film médiéval. Coupe au bol sans dégradé avec queue de cheval, cheveux noirs avec sourcils blonds.  
+Juste derrière ce monsieur, je vis une jeune demoiselle avec un sourire moqueur prendre en photo discrètement le fameux jeune homme tout en envoyant ensuite un audio à son interlocuteur pour émettre un jugement sur la tenue en question.
+Je n'ai pas voulu le prendre en photo pour vous le montrer parce que je ne fais pas ce genre de choses sans le consentement de la personne. Tout ce que je peux vous dire c'est que même si je ne trouvais pas sa tenue belle, je validais fort son style avec sa puissance qui en découlait. 
+Pourquoi je vous raconte ça ? Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+
 Vous pensez que parce que la plupart des gens disent que vous avez un bon style que c'est forcément vrai ? Même s'ils sont sincères et qui le pensent vraiment ?
 
 Comment différencier le bon de l'ivraie ? Même si de nos jours, bien s'habiller est à la portée de tous, cela ne veut pas forcément dire que tout le monde va bien s'habiller. Et quand bien même on devra toujours progresser quoi qu'il advienne. Donc savoir dans un premier temps que la majorité n'a pas toujours raison.
@@ -28,8 +33,5 @@ Savoir s'habiller est une base que tout le monde peut acquérir mais ce que peux
 
 Sachez que peu importe qui vous êtes et comment vous serez vêtu il y aura toujours des critiques. Et dîtes vous qu'au contraire les critiques doivent même vous rassurer. Le plus important est de connaître votre valeur et ce que vous avez accompli jusqu'à maintenant et aussi ce que vous serez amenés à réaliser. 
 
-J'étais en train d'attendre le métro sur le quai pendant l'heure de pointe. Je faisais la gueule comme la plupart des gens. Une tête d'heure de pointe. J'aperçois un homme grand vêtu avec un style tout droit sorti de la fashiok week. Grosses boots gothiques façon grunge, jean noir, pull blanc et grosse fourrure tel game of Thrones. Coupe au bol sans dégradé avec queue de cheval cheveux noirs avec sourcils blonds.
-Juste derrière je vois une dame avec un sourire moqueur prendre en photo discrètement le fameux jeune homme tout en envoyant ensuite un audio à son interlocuteur. Probablement pour émettre un jugement sur la tenue en question.
-Je n'ai pas voulu le prendre en photo pour vous le montrer parce que je ne fais pas ce genre de choses sans le consentement de la personne. Tout ce que je peux vous dire c'est que même si je ne trouvais pas sa tenue belle, je validais fort son style avec sa puissance qui en découlait. 
-Pourquoi je vous raconte ça ? Ce qui montre justement les critiques (moqueuses et non constructives) est la plupart du temps un manque de connaissance. Parce que quand vous savez, vous devenez sage, vous ne ressentez pas le besoin d'étaler votre savoir. Vous observez et dîtes dans votre tête : ok.
+
 
