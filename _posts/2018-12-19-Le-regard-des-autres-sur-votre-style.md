@@ -27,7 +27,9 @@ Néanmoins, nous pouvons plaire à ceux qui nous plaisent. Et c'est encore mieux
 Partir constamment à la quête de la validation d'autrui est un cercle vicieux, dont vous ne serez jamais satisfait puisque votre baromètre dépend de celui des autres. Et votre priorité pour vous sentir bien est vous-même.
 
 Vous venez de poster une magnifique photo de vous avec une tenue merveilleuse sur les réseaux sociaux. Que ce soit vos amis proches ou non, vous avez la standing ovation ! Des likes, des compliments, des partages et même des messages privés, en gros le summum du succès pendant une semaine. Votre ego est flatté. Vous avez ce sentiment de satisfaction et gagnez confiance en vous. C'est beau !  
-La semaine qui suit, vous prenez une autre photo que vous trouvez encore meilleure que la précédente ayant eu un succès phénoménal. Là, vous vous dîtes, je vais encore frapper plus fort. Vous avez une confiance en acier ! Et BIM ! Votre post n'a pas eu l'effet desiré. Moins de like, moins de compliments, et pas de partage, ni de message. C'est limite la panique, votre ego en prend un coup, alors qu'en soit, il n'y a absolument rien de dramatique.  
+La semaine qui suit, vous prenez une autre photo que vous trouvez encore meilleure que la précédente ayant eu un succès phénoménal. Là, vous vous dîtes, je vais encore frapper plus fort. Vous avez une confiance en acier !  
+Et BIM !  
+Votre post n'a pas eu l'effet desiré. Moins de like, moins de compliments, et pas de partage, ni de message. C'est limite la panique, votre ego en prend un coup, alors qu'en soit, il n'y a absolument rien de dramatique.  
 Le problème est uniquement vous ! Pas en raison de la photo que vous avez publié où vous portez votre plus belle tenue (au contraire, je suis sûr que cette photo est parfaite), mais parce que vous n'aviez pas les bons objectifs.  Parce que vous avez donné le droit aux autres de vous dicter votre valeur.  
 Parce que vous vous attendiez à ce que les autres vous valident.  
 Parce que vous avez développé une addiction sur cette validation.  
