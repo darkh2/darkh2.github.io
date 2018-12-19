@@ -8,7 +8,7 @@ feature_image: regard.jpg
 ---
 ## Le regard des autres sur votre style
 
-*...J'attendais le métro sur le quai pendant une heure de forte affluence. J'aperçus un jeune homme grand, vêtu avec un style tout droit sorti de la fashiok week. Grosses bottes noires façon grunge, jean noir, pull blanc et longue fourrure comme dans un film médiéval. Coupe au bol sans dégradé avec petite queue de cheval, cheveux noirs avec sourcils blonds.  
+*...J'attendais le métro sur le quai pendant une heure de forte affluence. J'aperçus un jeune homme grand, vêtu avec un style tout droit sorti de la Fashion week. Grosses bottes noires façon grunge, jean noir, pull blanc et longue fourrure comme dans un film médiéval. Coupe au bol sans dégradé avec petite queue de cheval, cheveux noirs avec sourcils blonds.  
 Juste derrière ce monsieur, je vis une jeune demoiselle avec un sourire moqueur, prendre en photo discrètement le fameux jeune homme tout en envoyant ensuite un audio à son interlocuteur pour émettre un jugement sur la tenue en question.
 Je n'ai pas voulu le prendre en photo pour vous le montrer, parce que je ne fais pas ce genre de choses sans le consentement de la personne. Tout ce que je peux vous dire, c'est que même si je ne trouvais pas sa tenue belle à mes yeux, je validais fort son [Audace](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-3) à travers son style authentique ainsi que sa [Puissance](http://www.crevardstyle.com/La-Puissance-du-Style) qui en découlait...*
 
