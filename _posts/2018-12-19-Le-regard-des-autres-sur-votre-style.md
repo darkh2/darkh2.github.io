@@ -37,6 +37,6 @@ Mais pourquoi au final ? A quoi cela vous a servi ? A vous sentir bien ? Mieux ?
 
 C'est certain que cela fait toujours plaisir de recevoir des compliments mais ça ne doit pas être le but recherché. Les compliments doivent être vus comme une conséquence possible, pas un but. C'est une des raisons pour lesquelles, développer son style est un investissement sur soi-même uniquement.   
 Si je vous disais que ce sera le fait de vous plaire qui fera en sorte que vous plairez à ceux qui vous ressemblent. Et puis, quel intérêt de plaire à ceux qui ne vous plairont pas ?  
-Savoir s'habiller est une base que tout le monde peut acquérir mais ce que peux penser les autres varie. Les avis qu'ils soient objectifs ou subjectifs ne détermineront pas si vous savez vous vêtir ou non. 
+Savoir s'habiller est une base que tout le monde peut acquérir mais ce que peux penser les autres varie. Les avis qu'ils soient objectifs ou subjectifs ne détermineront pas si vous savez vous vêtir ou non, et encore moins la personne que vous êtes réellement. 
 
 
