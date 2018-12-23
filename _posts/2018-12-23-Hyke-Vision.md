@@ -40,6 +40,8 @@ En cette période de fin d'années, il me fallait ajouter une touche rappelant l
 
 * Sneakers/Chaussures à boucles marrons : **32 Euros** à Zara (soldées). 
 
+* Lunettes de soleil rouges : **6 Euros** sur Aliexpress. [Lien](https://fr.aliexpress.com/item/Coucou-or-steampunk-flip-up-lunettes-de-soleil-hommes-vintage-rouge-m-tal-cadre-triangle-lunettes/32899821757.html?spm=a2g0s.9042311.0.0.40696c37U30RDJ).
+
 Total : **133 Euros !**
 
 (article en cours d'élaboration...)
