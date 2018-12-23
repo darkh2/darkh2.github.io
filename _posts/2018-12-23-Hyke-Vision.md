@@ -32,16 +32,17 @@ En cette période de fin d'années, il me fallait ajouter une touche rappelant l
 
 * Perfecto blanc : **40 Euros**(soldé) chez Zara.  
 
-* Pull moutarde col roulé : **16 Euros** sur Asos. Frais de port compris.  
-
-* Echarpe marron en cashmere : **20 Euros** à Carrefour. Je ne sais pas s'ils produisent toujours ces écharpes, mais ce n'est pas parce que c'est Carrefour, qu'il ne faut pas jeter un oeil aux rayons textile.  
+* Pull moutarde col roulé : **16 Euros** sur Asos. Frais de port compris.    
 
 * Pantalon rouge à carreaux : **19 Euros** (soldé) à Forever21.  
 
-* Sneakers/Chaussures à boucles marrons : **32 Euros** à Zara (soldées). 
+* Sneakers/Chaussures à boucles marrons : **32 Euros** chez Zara (soldées). 
+
+* Echarpe marron en cashmere : **20 Euros** à Carrefour. Je ne sais pas s'ils produisent toujours ces écharpes, mais ce n'est pas parce que c'est Carrefour, qu'il ne faut pas jeter un oeil aux rayons textile.
 
 * Lunettes de soleil rouges : **6 Euros** sur Aliexpress. [Lien](https://fr.aliexpress.com/item/Coucou-or-steampunk-flip-up-lunettes-de-soleil-hommes-vintage-rouge-m-tal-cadre-triangle-lunettes/32899821757.html?spm=a2g0s.9042311.0.0.40696c37U30RDJ).
 
-Total : **133 Euros !**
+Total : **133 Euros !**  
+Total sans accessoire : **107 Euros**.
 
 (article en cours d'élaboration...)
