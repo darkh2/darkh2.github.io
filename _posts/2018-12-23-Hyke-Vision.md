@@ -28,7 +28,7 @@ Ce fameux col roulé moutarde accompagné de l'écharpe, permet d'optimiser la P
 
 En cette période de fin d'année, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte. Sachez que vous ne pourrez que difficilement avoir une Puissance Réelle si vous n'avez pas au moins une pièce forte dans votre tenue. Pour plus de détails, je vous invite à lire l'article en question sur la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).   
 
-J'associe souvent mon style à une base simple avec plusieurs touches d'originalité, tout en consolidant décontraction et classe. Cette paire de sneakers possède un côté soutenu grace à ses finitions de chaussures à boucles et sa semelle blanche lui donne donc cette touche décontractée. Un très bon compris cette paire.
+J'associe souvent mon style à une base simple avec plusieurs touches d'originalité, tout en consolidant décontraction et classe. Cette paire de sneakers possède un côté soutenu grace à ses finitions de chaussures à boucles, et sa semelle blanche lui donne donc cette touche décontractée. Un très bon compris cette paire.
 
 ### Crevard Stylé : Tout juste au dessus de la barre des 100 Euros sans les accessoires !
 
