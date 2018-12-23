@@ -34,13 +34,13 @@ J'associe souvent mon style à une base simple avec plusieurs touches d'original
 
 La plupart des articles de la tenue ont été acquis pendant les remises du Black Friday.  
 
-* Perfecto blanc : **40 Euros**(soldé) chez Zara.  
+* Perfecto blanc : **40 Euros** (soldé) chez Zara.  
 
-* Pull moutarde col roulé : **16 Euros**(soldé) sur Asos.   
+* Pull moutarde col roulé : **16 Euros** (soldé) sur Asos.   
 
 * Pantalon rouge à carreaux : **19 Euros** (soldé) à Forever21.  
 
-* Sneakers/Chaussures à boucles marrons : **32 Euros** chez Zara (soldées). 
+* Sneakers/Chaussures à boucles marrons : **32 Euros** (soldées) chez Zara. 
 
 * Echarpe marron en cashmere : **20 Euros** à Carrefour. Je ne sais pas s'ils produisent toujours ces écharpes, mais ce n'est pas parce que c'est Carrefour, qu'il ne faut pas jeter un oeil aux rayons textile.
 
