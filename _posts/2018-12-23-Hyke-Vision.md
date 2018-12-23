@@ -26,7 +26,7 @@ On y vient. Ce fameux col roulé moutarde accompagné de l'écharpe permet d'opt
 
 ![hykevisionfute]({{site.url}}/{{site.baseurl}}img/hykevisionfute.jpg)
 
-En cette période de fin d'années, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte et le choix du skinny affine la silhouette
+En cette période de fin d'années, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte. Sachez que vous ne pourrez que difficilement avoir une Puissance Réelle si vous n'avez pas au moins une pièce forte dans votre tenue. Pour plus de détails, je vous invite à lire l'article en question sur la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).
 
 ### Crevard Stylé :  !
 
