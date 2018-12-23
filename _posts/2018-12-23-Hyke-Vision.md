@@ -18,7 +18,7 @@ Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Pui
 
 ![hykevisionperfecto]({{site.url}}/{{site.baseurl}}img/hykevisionperfecto.jpg)
 
-Le perfecto blanc donne un contraste prononcé par rapport aux couleurs du reste de l'ensemble et ajoute un côté bad boy tout en restant habillé. L'écharpe en cashmere sert à faire un rappel de couleurs (celui des chaussures), pour limiter le nombre de couleurs de la tenue. Quatre couleurs me semble être une bonne limite. Même si l'on ne doit pas se fermer à un nombre de couleurs, mais quand même.
+Le perfecto blanc donne un contraste prononcé par rapport aux couleurs du reste de l'ensemble, et ajoute un côté bad boy tout en restant habillé. L'écharpe en cashmere sert à faire un rappel de couleurs (celui des chaussures), pour limiter le nombre de couleurs de la tenue. Quatre couleurs me semble être une bonne limite. Même si l'on ne doit pas se fermer à un nombre de couleurs, mais quand même.
 
 ![hykevisionrollneck]({{site.url}}/{{site.baseurl}}img/hykevisionrollneck.jpg)
 
