@@ -20,6 +20,8 @@ Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Pui
 
 
 
+![hykevisionfute]({{site.url}}/{{site.baseurl}}img/hykevisionfute.jpg)
+
 ### Crevard Stylé :  !
 
 Total : **107 Euros !**
