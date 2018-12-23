@@ -14,7 +14,7 @@ Se développer dans un domaine permet d'avoir une capacité d'anticipation et un
 
 ![hykevisionmain]({{site.url}}/{{site.baseurl}}img/hykevisionmain.jpg)
 
-Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style). Favoriser une Puissance Réelle plutôt que Relative. C'est à dire que même quand on retire la veste, qu'il reste toujours cet impact ainsi que cette harmonie visuelle.
+Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style). Favoriser une Puissance Réelle plutôt que Relative. C'est à dire que même quand on retire la veste, il doit toujours y avoir cette harmonie visuelle.
 
 ### Crevard Stylé :  !
 
