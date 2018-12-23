@@ -22,7 +22,7 @@ Le perfecto blanc donne un contraste prononcé par rapport aux couleurs du reste
 
 ![hykevisionrollneck]({{site.url}}/{{site.baseurl}}img/hykevisionrollneck.jpg)
 
-Ce fameux col roulé moutarde accompagné de l'écharpe permet d'optimiser la Puissance, et la garder Réelle. Aussi pratique que esthétique, le choix de ce pull convient parfaitement pour cette période de l'année. La couleur moutarde est spécialement tendance en ce moment mais on l'associe très souvent avec le noir. Vous savez très bien que ma volonté de me démarquer m'a donc poussé à ne pas prendre du noir dans ma tenue et donc de ne pas faire comme les autres.
+Ce fameux col roulé moutarde accompagné de l'écharpe, permet d'optimiser la Puissance, et la garder Réelle. Aussi pratique que esthétique, le choix de ce pull convient parfaitement pour cette période de l'année. La couleur moutarde est spécialement tendance en ce moment mais on l'associe très souvent avec le noir. Vous savez très bien que ma volonté de me démarquer m'a donc poussé à ne pas prendre du noir dans ma tenue et donc de ne pas faire comme les autres.
 
 ![hykevisionfute]({{site.url}}/{{site.baseurl}}img/hykevisionfute.jpg)
 
