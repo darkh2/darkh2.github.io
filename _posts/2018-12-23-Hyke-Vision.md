@@ -28,8 +28,18 @@ On y vient. Ce fameux col roulé moutarde accompagné de l'écharpe permet d'opt
 
 En cette période de fin d'années, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte. Sachez que vous ne pourrez que difficilement avoir une Puissance Réelle si vous n'avez pas au moins une pièce forte dans votre tenue. Pour plus de détails, je vous invite à lire l'article en question sur la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).
 
-### Crevard Stylé : Tout juste au dessus de la barre des 100 Euros !
+### Crevard Stylé : Tout juste au dessus de la barre des 100 Euros sans les accessoires !
 
-Total : **107 Euros !**
+* Perfecto blanc : **40 Euros**(soldé) chez Zara.  
+
+* Pull moutarde col roulé : **16 Euros** sur Asos. Frais de port compris.  
+
+* Echarpe marron en cashmere : **20 Euros** à Carrefour. Je ne sais pas s'ils produisent toujours ces écharpes, mais ce n'est pas parce que c'est Carrefour, qu'il ne faut pas jeter un oeil aux rayons textile.  
+
+* Pantalon rouge à carreaux : **19 Euros** (soldé) à Forever21.  
+
+* Sneakers/Chaussures à boucles marrons : **32 Euros** à Zara (soldées). 
+
+Total : **133 Euros !**
 
 (article en cours d'élaboration...)
