@@ -32,9 +32,11 @@ J'associe souvent mon style à une base simple avec plusieurs touches d'original
 
 ### Crevard Stylé : Tout juste au dessus de la barre des 100 Euros sans les accessoires !
 
+La plupart des articles de la tenue ont été acquis pendant les remises du Black Friday.  
+
 * Perfecto blanc : **40 Euros**(soldé) chez Zara.  
 
-* Pull moutarde col roulé : **16 Euros** sur Asos. Frais de port compris.    
+* Pull moutarde col roulé : **16 Euros**(soldé) sur Asos.   
 
 * Pantalon rouge à carreaux : **19 Euros** (soldé) à Forever21.  
 
