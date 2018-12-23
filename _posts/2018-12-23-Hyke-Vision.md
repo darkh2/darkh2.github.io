@@ -44,7 +44,7 @@ La plupart des articles de la tenue ont été acquis pendant les remises du Blac
 
 * Echarpe marron en cashmere : **20 Euros** à Carrefour. Je ne sais pas s'ils produisent toujours ces écharpes, mais ce n'est pas parce que c'est Carrefour, qu'il ne faut pas jeter un oeil aux rayons textile.
 
-* Lunettes de soleil rouges : **6 Euros** sur Aliexpress. [Lien](https://fr.aliexpress.com/item/Coucou-or-steampunk-flip-up-lunettes-de-soleil-hommes-vintage-rouge-m-tal-cadre-triangle-lunettes/32899821757.html?spm=a2g0s.9042311.0.0.40696c37U30RDJ).
+* Lunettes de soleil rouges ajustables : **6 Euros** sur Aliexpress. [Lien](https://fr.aliexpress.com/item/Coucou-or-steampunk-flip-up-lunettes-de-soleil-hommes-vintage-rouge-m-tal-cadre-triangle-lunettes/32899821757.html?spm=a2g0s.9042311.0.0.40696c37U30RDJ).
 
 Total : **133 Euros !**  
 Total sans accessoire : **107 Euros**.
