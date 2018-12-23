@@ -14,13 +14,19 @@ Se développer dans un domaine permet d'avoir une capacité d'anticipation et un
 
 ![hykevisionmain]({{site.url}}/{{site.baseurl}}img/hykevisionmain.jpg)
 
-Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style). Favoriser une Puissance Réelle plutôt que Relative. C'est à dire que même quand on retire la veste, il doit toujours y avoir cette harmonie visuelle. Et ainsi, ne pas perdre en Puissance.
+Chaque tenue que je porte et que je vous partage doit respecter au mieux la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style). Favoriser une Puissance Réelle plutôt que Relative. C'est à dire que même quand on retire la veste, il doit toujours y avoir cette harmonie visuelle. Et ainsi, ne pas perdre en Puissance.  
+
+![hykevisionperfecto]({{site.url}}/{{site.baseurl}}img/hykevisionperfecto.jpg)
+
+Le perfecto blanc donne un contraste prononcé par rapport aux couleurs du reste de l'ensemble et ajoute un côté bad boy tout en restant habillé. L'écharpe
 
 ![hykevisionrollneck]({{site.url}}/{{site.baseurl}}img/hykevisionrollneck.jpg)
 
-
+On y vient. Ce fameux col roulé moutarde accompagné de l'écharpe permet d'optimiser la Puissance et la garder Réelle. 
 
 ![hykevisionfute]({{site.url}}/{{site.baseurl}}img/hykevisionfute.jpg)
+
+En cette période de fin d'années, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte et le choix du skinny affine la silhouette
 
 ### Crevard Stylé :  !
 
