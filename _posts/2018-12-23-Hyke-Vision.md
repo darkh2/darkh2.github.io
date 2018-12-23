@@ -49,4 +49,4 @@ La plupart des articles de la tenue ont été acquis pendant les remises du Blac
 Total : **133 Euros**.  
 Total sans accessoire : **107 Euros**.
 
-
+La notion de [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) est incontournable si vous voulez posséder un style fort. Cette tenue n'est que le résultat de ma vision acquise grâce à mon flair, ainsi que mes réflèxes du Crevard Stylé. Le développement du style contribue pleinement au développement personnel. Ce n'est sans doute que de l'habillement, certes, mais on développe également un état d'ésprit...
