@@ -49,4 +49,4 @@ La plupart des articles de la tenue ont été acquis pendant les remises du Blac
 Total : **133 Euros !**  
 Total sans accessoire : **107 Euros**.
 
-(article en cours d'élaboration...)
+
