@@ -22,11 +22,11 @@ Le perfecto blanc donne un contraste prononcé par rapport aux couleurs du reste
 
 ![hykevisionrollneck]({{site.url}}/{{site.baseurl}}img/hykevisionrollneck.jpg)
 
-On y vient. Ce fameux col roulé moutarde accompagné de l'écharpe permet d'optimiser la Puissance et la garder Réelle. 
+Ce fameux col roulé moutarde accompagné de l'écharpe permet d'optimiser la Puissance, et la garder Réelle. Aussi pratique que esthétique, le choix de ce pull convient parfaitement pour cette période de l'année. La couleur moutarde est spécialement tendance en ce moment mais on l'associe très souvent avec le noir. Vous savez très bien que ma volonté de me démarquer m'a donc poussé à ne pas prendre du noir dans ma tenue et donc de ne pas faire comme les autres.
 
 ![hykevisionfute]({{site.url}}/{{site.baseurl}}img/hykevisionfute.jpg)
 
-En cette période de fin d'années, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte. Sachez que vous ne pourrez que difficilement avoir une Puissance Réelle si vous n'avez pas au moins une pièce forte dans votre tenue. Pour plus de détails, je vous invite à lire l'article en question sur la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).
+En cette période de fin d'année, il me fallait ajouter une touche rappelant les fêtes. D'où le choix de ce pantalon rouge à carreaux qui fait office de pièce forte. Sachez que vous ne pourrez que difficilement avoir une Puissance Réelle si vous n'avez pas au moins une pièce forte dans votre tenue. Pour plus de détails, je vous invite à lire l'article en question sur la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).
 
 ### Crevard Stylé : Tout juste au dessus de la barre des 100 Euros sans les accessoires !
 
