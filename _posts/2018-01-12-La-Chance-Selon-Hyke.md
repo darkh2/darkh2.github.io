@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2018-01-12T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: chance.jpg
@@ -15,7 +15,7 @@ Ce qu'on aime chez Crevard Stylé c'est l'optimisation. Devenir la meilleure ver
 
 ### La chance Absolue
 
-La partie Absolue est celle que l'on connaît comme non maîtrisable. Le phénomène aléatoire. Le lancer de dés ou un pile ou face par exemple. Quoi que vous fassiez, vous ne maîtrisez rien de cette partie. Ce qui devait arriver, arriva.
+La partie Absolue est celle que l'on connaît comme non maîtrisable. Le phénomène aléatoire. Le lancer de dés ou un pile ou face par exemple. Quoi que vous fassiez, vous ne maîtrisez rien de cette partie. Ce qui devait arriver, arriva.  Ce que vous pouvez maîtriser à la limite c'est la façon de lancer le dé, ou la pièce. Lisez la partie suivante.
 
 ### La chance Maitrisable
 
