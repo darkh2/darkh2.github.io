@@ -10,10 +10,15 @@ feature_image: demarque.jpg
 
 À l'heure où je rédige ce pavé, vous êtes sûrement en train d'être à la recherche du bon plan de cet hiver ou pas du tout. Plutôt en train de savourer une énième raclette devant Netflix à vous réchauffer les miches. Peu importe. Cet article vous permettra de voir autrement le début de la période des soldes.
 
+### Ce qu'il faut éviter de faire pendant les soldes
 
-Pièges à éviter pendant les soldes
+Tout le monde se rue comme du n'importe quoi sur les premières remises en se prenant le piège de la remise, et non pas du prix. Cela veut dire que l'on se concentre sur le -40% ou -60% alors que l'on devrait en priorité voir le prix final. Comparons deux situations :  
 
-Tout le monde se rue comme du n'importe quoi sur les 1eres remises en se prenant le piège de la remise et non pas du prix.
+1. Un article à 200 euros qui subit une remise de 50% et tombe à 100 euros. Ici, il y a une grosse remise, mais le prix reste tout de même de 100 euros, ce qui n'est pas négligeable surtout pour un période de soldes où l'on est vraiment censés faire de bonnes affaires. Là vous allez me dire : "Hyke, ça dépend de l'article en question qui coûte ce prix!" Vous avez tout à fait raison ! Mais n'oubliez pas tout de même que peu importe le produit en question, vous allez tout de même débourser 100 euros. Un smicard doit bosser deux jours pour réunir cette somme.  
+
+2. Un article à 80 euros qui subit une remise de 30% et tombe à 56 euros. Dans cette situation, la remise est faible mais le prix est plus tentant. Je ne vous demande pas non plus de vous focaliser uniquement sur le prix, mais juste de comparer ces deux situations pour que vous ne tombiez pas dans le piège. En gros essayez de voir en priorité le prix final tout en prenant en compte le produit, la nécessité, la qualité, la rareté, etc ...
+
+### Le coup de la remise trop faible
 
 Avant de faire l'achat de la 1ere démarque il faut respecter certaines conditions :
 Le prix doit vraiment correspondre à une vraie remise. Si on passe de 50 a 40 euros par exemple ça ne sert pas à grand chose.
