@@ -29,14 +29,16 @@ Il faut impérativement se dire que, même si l'on a raté une occasion, ce n'es
 
 ### No Basic
 
-Si vous comptez réacquérir vos [basiques](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2) pendant la période de soldes, je vous conseille vraiment pas de l'acheter au moment de la première démarque (sauf cas exceptionnel, bon prix etc...). Pourquoi ? Tout simplement parce que les pièces basiques sont en abondance et que l'on ne va pas se les disputer autant que les pièces fortes. Donc repoussez vos instincts d'acheteur et attendez encore. Dans le pire des cas, vous trouverez à tout moment des basiques à bas prix.
+Si vous comptez réacquérir vos [basiques](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2) pendant la période de soldes, je vous conseille vraiment de ne pas de l'acheter au moment de la première démarque (sauf cas exceptionnel, bon prix etc...). Pourquoi ? Tout simplement parce que les pièces basiques sont en abondance et que l'on ne va pas se les disputer autant que les pièces fortes. Donc repoussez vos instincts d'acheteur et attendez encore. Dans le pire des cas, vous trouverez à tout moment des basiques à bas prix.
 
 ### La première démarque en ligne
 
-De toute façon si vous n'avez pas besoin de grand chose dans votre penderie, la 1ere démarque ne devrait pas vous faire peur et contraindre d'acheter direct.
+
 
 Personnellement n'achetez pas un basique à la première démarque. Sauf si vraiment cela vaut le coup en terme de prix. Je vous laisse consulter le prix max conseillé pour chaque élément : voir Hyke notes
 
 Alors j'achète ou j'achète pas ? Un bon indicateur quand vous faites vos achats sur internet permettent de voir si l'article en 1ere démarque est demandé ou non. Jaugez en fonction de la demande et du prix pour bien déterminer si l'achat vaut le coup.
+
+De toute façon si vous n'avez pas besoin de grand chose dans votre penderie, la 1ere démarque ne devrait pas vous faire peur et contraindre d'acheter direct.
 
 (Article en cours de finition ...)
