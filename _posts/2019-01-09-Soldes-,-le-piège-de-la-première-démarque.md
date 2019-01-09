@@ -1,14 +1,14 @@
 ---
 published: true
 layout: post
-date: 2019-01-09T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: demarque.jpg
 ---
 ## Soldes, le piège de la première démarque
 
-À l'heure où j'écris ce pavé, vous êtes sûrement en train d'être à la recherche du bon plan de cet hiver ou pas du tout. Plutôt en train de savourer un énième raclette devant netflix à vous réchauffer les miches. Peu importe. Cet article vous permettra de voir autrement le début de la période des soldes.
+À l'heure où je rédige ce pavé, vous êtes sûrement en train d'être à la recherche du bon plan de cet hiver ou pas du tout. Plutôt en train de savourer une énième raclette devant Netflix à vous réchauffer les miches. Peu importe. Cet article vous permettra de voir autrement le début de la période des soldes.
 
 
 Pièges à éviter pendant les soldes
