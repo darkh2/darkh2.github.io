@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-01-09T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: demarque.jpg
@@ -28,6 +28,8 @@ Néanmoins, si l'article en question est demandé et rare, il y a de fortes chan
 Il faut impérativement se dire que, même si l'on a raté une occasion, ce n'est pas grave du tout, la mode se renouvelle tout le temps ainsi que les belles pièces rares. On va toujours essayer de faire en sorte que vous achetiez tout de suite pour soi-disant ne pas passer à côté du plan du siècle. Mais la réalité est que vous ne ratez rien du tout. Dans le cas, où l'on ne saisit pas l'occasion de la première démarque, et que le produit disparaît, rien de dramatique, croyez-moi ! Puis, on ne peut pas tout avoir et surtout si l'on ne possède pas le budget nécessaire. Ne vous inquiétez pas, vous réussirez à trouver ce qu'il vous faudra ! Et n'oubliez pas le shopping en ligne qui restera toujours une alternative, que ce soit en période de soldes ou non.
 
 ### No Basic
+
+Si vous comptez réacquérir vos [basiques](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2) pendant la période de soldes, je vous conseille vraiment pas de l'acheter au moment de la première démarque (sauf cas exceptionnel, bon prix etc...). Pourquoi ? Tout simplement parce que les pièces basiques sont en abondance et que l'on ne va pas se les disputer autant que les pièces fortes. Donc repoussez vos instincts d'acheteur et attendez encore. Dans le pire des cas, vous trouverez à tout moment des basiques à bas prix.
 
 ### La première démarque en ligne
 
