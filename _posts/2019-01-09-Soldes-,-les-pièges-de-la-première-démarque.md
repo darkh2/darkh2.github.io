@@ -32,7 +32,8 @@ Il faut impérativement se dire que, même si l'on a raté une occasion, ce n'es
 Si vous comptez réacquérir vos [basiques](http://www.crevardstyle.com/D%C3%A9veloppement-du-Style-part-2) pendant la période de soldes, je vous conseille vraiment de ne pas de l'acheter au moment de la première démarque (sauf cas exceptionnel, bon prix etc...). Pourquoi ? Tout simplement parce que les pièces basiques sont en abondance et que l'on ne va pas se les disputer autant que les pièces fortes. Donc repoussez vos instincts d'acheteur et attendez encore. Dans le pire des cas, vous trouverez à tout moment des basiques à bas prix.
 
 ### La première démarque en ligne
-
+  
+  
 ![demarqueonline]({{site.url}}/{{site.baseurl}}img/demarqueonline.jpg)
 
 Alors j'achète ou j'achète pas ?  
