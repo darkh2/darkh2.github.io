@@ -33,12 +33,22 @@ Si vous comptez réacquérir vos [basiques](http://www.crevardstyle.com/D%C3%A9v
 
 ### La première démarque en ligne
 
+![demarqueonline]({{site.url}}/{{site.baseurl}}img/demarqueonline.jpg)
 
+Alors j'achète ou j'achète pas ?  
+Un bon indicateur sur certains sites, quand vous faites vos achats sur internet permettent de voir si l'article en question est demandé ou non. Jaugez en fonction de la demande et du prix pour bien déterminer si l'achat vaut le coup. Dans ce cas, j'ai craqué pour une première démarque. Cela faisait longtemps que j'avais reperé cet article. Mais le prix était trop élevé. En remarquant que ma taille était demandé et que le prix était pas trop mal pour l'originalité de la pièce, j'ai décidé de me le procurer. Jugez par vous-même.
 
-Personnellement n'achetez pas un basique à la première démarque. Sauf si vraiment cela vaut le coup en terme de prix. Je vous laisse consulter le prix max conseillé pour chaque élément : voir Hyke notes
+### Prix maximums conseillés lors de la période de soldes
 
-Alors j'achète ou j'achète pas ? Un bon indicateur quand vous faites vos achats sur internet permettent de voir si l'article en 1ere démarque est demandé ou non. Jaugez en fonction de la demande et du prix pour bien déterminer si l'achat vaut le coup.
+Pour finir, j'aimerai vous donner le montant des prix à ne pas dépasser lors des achats selon Crevard Stylé pendant la période de soldes sauf exceptions bien entendu.
 
-De toute façon si vous n'avez pas besoin de grand chose dans votre penderie, la 1ere démarque ne devrait pas vous faire peur et contraindre d'acheter direct.
+* T-shirts : 15 euros
+* Pantalons : 30 euros
+* Chemises : 25 euros
+* Chaussures habillées : 50 euros
+* Sneakers/baskets : 40 euros
+* Pulls : 30 euros
+* Manteaux/vestes : 70 euros
+* Accessoires, sous-vêtements : 10 euros
 
-(Article en cours de finition ...)
+En espérant que cet article vous aura aidé pour vos futures emplettes, je vous souhaite que peu importe ce qui se passera, que vous vous ferez plaisir et que vous trouverez le meilleur des bons plans.
