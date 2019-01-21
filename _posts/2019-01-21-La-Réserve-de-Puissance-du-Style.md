@@ -4,7 +4,7 @@ layout: post
 date: 2019-01-22T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: reserve.jpg
+feature_image: reserve2.jpg
 ---
 ## La Réserve de Puissance du Style
 
