@@ -18,7 +18,7 @@ N'avez-vous jamais remarqué qu'une personne souvent habillée classe, chic, ou 
 
 ### WTF is this ?
 
-***Réserve de Puissance du Style*** : Entité relative individuelle servant à créer un/une impact/surprise accentué(e) sur [la Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) et ainsi donner un style fort et authentique. Plus elle est utilisée, moins elle devient percutante. Cette définition peut vous paraître un peu trop théorique, vous comprendrez un peu plus dans le paragraphe suivant...
+***Réserve de Puissance du Style*** : Entité relative individuelle servant à créer un impact ou une surprise accentué(e) sur [la Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) et ainsi donner un style fort et authentique. Plus elle est utilisée, moins elle devient percutante. Cette définition peut vous paraître un peu trop théorique, vous comprendrez un peu plus dans le paragraphe suivant...
 
 ### Vous allez comprendre de quoi je parle
 
