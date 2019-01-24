@@ -8,12 +8,13 @@ feature_image: reserve3.jpg
 ---
 ## La Réserve de Puissance du Style
 
+***Avant la poursuite de cette lecture, j'aimerais que vous sachiez que les lignes qui vont suivre adoptent ma vision du style. Je ne déclare pas avoir raison, ni tort mais l'expérience à travers le développement de mon style m'ont permis d'avoir ce regard sur celui-çi. Bonne lecture chère communauté.***
+
 ![reserve]({{site.url}}/{{site.baseurl}}img/reserve3.jpg)
 
 En fonction des circonstances, vous serez amené(e) à être vêtu(e) d'une certaine façon. Si vous êtes banquier, ce sera costume tous les jours. Mais ce ne sera pas le cas si vous êtes maçon. 
 Tout comme [la Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style), la Réserve de Puissance est propre à chacun. Elle peut être élevée comme faible, voire quasi-nulle. Qu'est ce qui va pouvoir quantifier cette Réserve aussi quantifiable soit-elle ?  
 N'avez-vous jamais remarqué qu'une personne souvent habillée classe, chic, ou pas forcément décontractée, au moment où vous la voyez habillée hors contexte, cela crée une sorte de fossé. Cela arrive car la personne a utilisé une majeure partie de sa Réserve de Puissance.  
-Avant la poursuite de cette lecture, j'aimerais que vous sachiez que les lignes qui vont suivre adoptent ma vision du style. Je ne déclare pas avoir raison, ni tort mais l'expérience à travers le développement de mon style m'ont permis d'avoir ce regard sur celui-çi. Bonne lecture chère communauté.
 
 ### WTF is this ?
 
