@@ -32,11 +32,14 @@ Généralement, les personnes qui possèdent une Réserve basse savent où elles
 
 #### Inconvénients
 
-A chacune de leur tenue,
+A chaque nouvelle tenue, la Réserve s'épuise peu à peu.
+Peut-être que si votre Réserve est basse, vous avez cette tendance à "trop" vous habiller selon le contexte. Vous venez en costume lors d'un repas tranquille entre amis par exemple.
 
 #### Avantages
 
 ### Réserve élevée
+
+Ici, vous avez de grandes chances d'être au début de votre développement du style. Vous ne puisez pas dans votre Puissance et ne prenez sans doute pas suffisamment de risque dans votre habillement. Il y aussi une certaine probabilité que vous n'ayez pas les basiques requis dans votre penderie.
 
 #### Inconvénients
 
@@ -55,7 +58,7 @@ Avantages haute réserve
 Le champ est libre et vous pouvez vous permettre d'essayer plein de choses pour voir vers quoi votre style va se tourner vu qu'il est en phase de recherche et de développement. 
 
 Inconvénients haute réserve 
-Ici, vous avez de grandes chances d'être au début de votre développement du style. Vous ne puisez pas suffisamment et prenez sans doute pas suffisamment de risque dans votre habillement. Il y aussi une certaine probabilité que vous n'ayez pas les basiques requis dans votre penderie. 
+ 
 
 Faire attention à s'habiller en fonction du contexte pour ne pas perdre en réserve. 
 Pas être trop habillé pour aller en cours et pas trop décontracté pour un gala.(gain de réserve inutile). Le but sera de toujours maintenir sa réserve de Puissance afin qu'elle soit stable. Et pour cela, il faudra bien s'habiller en fonction du contexte. 
@@ -64,7 +67,7 @@ Il y a effectivement le cas dans lequel où vous ne serez pas suffisament bien "
 
 ### Que faire pour garder une réserve stable ? 
 
-S'habiller en fonction du contexte. Toujours calibrer sa puissance du style en fonction des circonstances. 
+S'habiller en fonction du contexte. Toujours calibrer sa puissance du style en fonction des circonstances. Le temps fera recharger cette Réserve.
 
 Que faire si l'on part déjà avec une réserve faible ? Essayer de "decontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis garder une certaine sobriété dans ses costumes de taff fait garder en réserve dans le cas où ok sortirait un costume depareillé. 
 
