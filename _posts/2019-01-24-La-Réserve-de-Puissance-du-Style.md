@@ -57,7 +57,7 @@ Le champ est libre et vous pouvez vous permettre d'essayer plein de choses pour 
 
 ### La Réserve de Puissance chez la femme
 
-On y vient mesdames. Votre réserve à vous est belle et bien existante, mais beaucoup plus vaste que la nôtre. Ou bien, elle a tendance à s'épuiser plus lentement. Néanmoins, vous possédez une faiblesse. C'est le danger de ne pas être dans une Réserve où vous vous habillez vulgairement. Ou encore le fait de s'habiller un peu trop osé, peut faire chuter drastiquement votre Réserve mais pas nécéssairement dans le bon sens du terme.  
+On y vient mesdames. Votre réserve à vous est belle et bien existante, mais beaucoup plus vaste que la nôtre. Ou bien, elle a tendance à s'épuiser plus lentement. Néanmoins, vous possédez une faiblesse. C'est le danger de la Réserve "vulgaire". Ou encore le fait de s'habiller un peu trop osé, peut faire chuter drastiquement votre Réserve mais pas nécéssairement dans le bon sens du terme.  
 Les hommes ont moins de chances de tomber dans la Réserve vulgaire. A la limite, ils passeront pour des hommes moins virils ou tout simplement ringards. Vous avez beaucoup plus de choix dans les sapes, c'est pour cela que votre Réserve est vaste. 
 
 ### Que faire pour garder une Réserve stable ? 
