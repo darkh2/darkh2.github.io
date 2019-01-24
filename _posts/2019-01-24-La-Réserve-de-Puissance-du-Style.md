@@ -58,7 +58,7 @@ Le champ est libre et vous pouvez vous permettre d'essayer plein de choses pour 
 ### La Réserve de Puissance chez la femme
 
 On y vient mesdames. Votre réserve à vous est belle et bien existante, mais beaucoup plus vaste que la nôtre. Ou bien, elle a tendance à s'épuiser plus lentement. Néanmoins, vous possédez une faiblesse. C'est le danger de la Réserve "vulgaire". Le fait de s'habiller un peu trop osé, peut faire chuter drastiquement votre Réserve mais pas nécéssairement dans le bon sens du terme.  
-Les hommes ont moins de chances de tomber dans la Réserve vulgaire. A la limite, ils passeront pour des hommes moins virils ou tout simplement ringards. Vous avez beaucoup plus de choix dans les sapes, c'est pour cela que votre Réserve est vaste. 
+Les hommes ont moins de chances de tomber dans la Réserve "vulgaire". A la limite, ils passeront pour des hommes moins virils ou tout simplement ringards. Vous avez beaucoup plus de choix dans les sapes, c'est pour cela que votre Réserve est vaste. 
 
 ### Que faire pour garder une Réserve stable ? 
 
@@ -66,7 +66,7 @@ Faire attention à s'habiller en fonction du contexte pour ne pas perdre en Rés
 Pas être trop habillé pour aller en cours, et pas trop décontracté pour un gala (gain de Réserve inutile). Le but sera de toujours maintenir sa Réserve de Puissance afin qu'elle soit stable.  
 
 **Que faire si l'on part déjà avec une réserve faible ?**  
-Essayez de "décontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis, garder une certaine sobriété dans vos costumes de travail fait garder en Réserve dans le cas où on sortirait un costume depareillé.
+Essayez de "décontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis, gardez une certaine sobriété dans vos costumes de travail fait restaurer en Réserve dans le cas où on partirait d'un costume depareillé.
 
 **Est-ce si grave d'avoir une Puissance faible au final ?**  
 Pas tant que ça, et au contraire, cela veut dire que vous êtes à un niveau avancé dans votre style. Le seul souci s'il est inexistant ou relatif ce sera l'impact que vous creerez si l'on vous voit souvent. Et si d'un coup vous êtes sapés très basiquement alors la vous verrez a quel point votre Réserve était faible.
