@@ -65,6 +65,10 @@ Est ce que c'est si grave d'avoir une Puissance faible au final ? Pas tant que �
 Que faut il faire au final ?
 L'importance de ne pas dévoiler toutes vos cartes est très importante selon moi car vous avez toujours cette réserve pour impacter. Mais de toute façon si vous voulez développer votre style il faudra bien puiser dans cette réserve de temps en temps mais bien choisir ses moments pour impacter. A savoir les bons contextes. On peut très bien être habillé tous les jours sans forcément tout donner. Arrêtons de croire qu'être bien habillé est être habillé chic ou en costume. Et penser qu'il faut beaucoup d'argent pour être bien habillé est pire encore.
 
+### La Réserve Légendaire
+
+Un dernier cas hypothétique où l'on peut impacter excessivement malgré que la Réserve soit très faible et encore mieux si l'on est pas habillé en costume ou chic. Je n'ai jamais eu à faire à ce cas mais je suis sûr qu'il peut exister. Le style n'a pas de limite...
+
 ### Là où je me situe
 
 Vous comprenez à présent pourquoi je ne m'habille pas comme un sapeur ou un dandy.
