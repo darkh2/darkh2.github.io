@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-01-24T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: reserve3.jpg
@@ -18,15 +18,8 @@ N'avez-vous jamais remarqué qu'une personne souvent habillée classe, chic, ou 
 
 ***Réserve de Puissance du Style*** : Entité relative individuelle servant à créer un/une impact/surprise accentué(e) sur [la Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) et ainsi donner un style fort et authentique. Plus elle est utilisée, moins elle devient percutante.
 
-On peut également parler d'impact de Puissance.
 
- 
-
-Tout comme la puissance du style, la réserve de Puissance est présente en chacun de nous. C'est une notion importante dont on ne parle jamais mais qui est très importante dans le développement de son propre style.
-
-Définition Réserve de Puissance : Une 
-
-Plus on va vous voir habillé en costume, tenue de soirée ou chic, moins quand vous allez être bien habillé mais plus décontracté, creerez cet impact accentué sur votre Puissance du style et encore moins si en l'occurrence votre Puissance est plus souvent Relative que Réelle.
+Plus on va vous voir habillé en costume, chic ou tenue de soirée, moins quand vous allez être habillé un peu plus décontracté, créerez cet impact accentué sur votre Puissance du Style. Et encore moins si, en l'occurrence votre Puissance est plus souvent Relative que Réelle.
 
 Si je vous dis de penser à James Bond. Vous l'imaginer avec son costume et son beau noeud papillon. Mais prenez l'acteur dans un contexte hors caméra. Je suis sur qu'il conservera son charisme mais le fossé entre sa puissance dans le film et hors film est flagrante. C'est normal parce que vous l'imaginez automatiquement en costume et que vous avez cette "habitude" de le penser comme ca. Donner cet habitude a autrui de vous voir tout le temps comme ça est une bonne chose mais votre réserve est proche de zéro.
 
