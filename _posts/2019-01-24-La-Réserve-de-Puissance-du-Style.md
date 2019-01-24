@@ -12,7 +12,8 @@ feature_image: reserve3.jpg
 
 En fonction des circonstances, vous serez amené(e) à être vêtu(e) d'une certaine façon. Si vous êtes banquier, ce sera costume tous les jours. Mais ce ne sera pas le cas si vous êtes maçon. 
 Tout comme [la Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style), la Réserve de Puissance est propre à chacun. Elle peut être élevée comme faible, voire quasi-nulle. Qu'est ce qui va pouvoir quantifier cette Réserve aussi quantifiable soit-elle ?  
-N'avez-vous jamais remarqué qu'une personne souvent habillée classe, chic, ou pas forcément décontractée, au moment où vous la voyez habillée hors contexte, cela crée une sorte de fossé. Cela arrive car la personne a utilisé une majeure partie de sa Réserve de Puissance.
+N'avez-vous jamais remarqué qu'une personne souvent habillée classe, chic, ou pas forcément décontractée, au moment où vous la voyez habillée hors contexte, cela crée une sorte de fossé. Cela arrive car la personne a utilisé une majeure partie de sa Réserve de Puissance.  
+Avant la poursuite de cette lecture, j'aimerais que vous sachiez que les lignes qui vont suivre adoptent ma vision du style. Je ne déclare pas avoir raison, ni tort mais l'expérience à travers le développement de mon style m'ont permis d'avoir ce regard sur celui-çi. Bonne lecture chère communauté.
 
 ### WTF is this ?
 
@@ -24,9 +25,21 @@ Plus on va vous voir habillé en costume, chic ou tenue de soirée, moins quand 
 
 Si je vous dis de penser à James Bond. Vous l'imaginer avec son costume et son beau noeud papillon. Mais prenez l'acteur dans un contexte hors caméra. Je suis sûr qu'il conservera son charisme, mais le fossé entre sa Puissance dans le film et hors caméra est flagrante. C'est normal, parce que vous l'imaginiez automatiquement en costume, et que vous avez cette "habitude" de le penser comme ca. Donner cet habitude à autrui de vous voir tout le temps comme ça est une très bonne chose, mais votre Réserve tendra vers zéro.
 
-### P
+### Réserve faible
 
-Avantages / Inconvénients d'avoir une grande et petite réserve 
+Généralement, les personnes qui possèdent une Réserve basse savent où elles en sont dans la connaissance de leur style. Elles réussissent à puiser le potentiel de leur Puissance du Style. Ou du moins, elles sont souvent bien habillées et reçoivent beaucoup de regards et de compliments.
+
+#### Inconvénients
+
+A chacune de leur tenue,
+
+#### Avantages
+
+### Réserve élevée
+
+#### Inconvénients
+
+#### Avantages
 
 Avantages : Au moment de sortir le costume par exemple, vous creerez un impact plus prononcé qu'une personne avec une réserve basse 
 
@@ -48,7 +61,9 @@ Pas être trop habillé pour aller en cours et pas trop décontracté pour un ga
 
 Il y a effectivement le cas dans lequel où vous ne serez pas suffisament bien "habillé" tout simplement car votre penderie est limitée. Il faudra donc acquérir certaines sapes pour bonifier votre dressing et ainsi avoir ce qu'il faut pour optimiser votre puissance de style.
 
-Que faire pour garder une réserve stable ? S'habiller en fonction du contexte. Toujours calibrer sa puissance du style en fonction des circonstances. 
+### Que faire pour garder une réserve stable ? 
+
+S'habiller en fonction du contexte. Toujours calibrer sa puissance du style en fonction des circonstances. 
 
 Que faire si l'on part déjà avec une réserve faible ? Essayer de "decontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis garder une certaine sobriété dans ses costumes de taff fait garder en réserve dans le cas où ok sortirait un costume depareillé. 
 
