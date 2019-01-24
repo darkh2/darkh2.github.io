@@ -44,7 +44,7 @@ Qu'elle soit Réelle ou Relative, le meilleur avantage ici est d'avoir une certa
 
 ### Réserve élevée
 
-Ici, vous avez de grandes chances d'être au début de votre développement du style. Vous ne puisez pas dans votre Puissance et ne prenez sans doute pas suffisamment de risque dans votre habillement. Il y aussi une certaine probabilité que vous n'ayez pas les basiques requis dans votre penderie. On a également cette catégorie de personnes qui aiment s'habiller tout en noir (soit disant ça amincit), ou avec des couleurs sombres sans y accorder une harmonie
+Ici, vous avez de grandes chances d'être au début de votre développement du style. Vous ne puisez pas dans votre Puissance et ne prenez sans doute pas suffisamment de risque dans votre habillement. Il y aussi une certaine probabilité que vous n'ayez pas les basiques requis dans votre penderie. On a également cette catégorie de personnes qui aiment s'habiller tout en noir (soit disant ça amincit), ou avec des couleurs sombres sans y accorder une harmonie.
 
 #### Inconvénient
 
