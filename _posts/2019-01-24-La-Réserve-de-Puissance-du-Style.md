@@ -27,7 +27,7 @@ Plus on va vous voir habillé en costume, chic ou tenue de soirée, moins quand 
 Quand vous avez l'habitude de voir une personne tout le temps bien habillée, elle crée de moins en moins un impact par rapport à une personne qui gère sa Réserve de Puissance. C'est comme quelqu'un qui utilise déjà toutes ses cartes en main alors qu'elle devrait peut être garder quelques jokers si besoin est.
 Cette réserve se vide au fur et à mesure que quand l'habitude est présente. Elle ne s'appliquerait donc pas à une personne que vous viendriez de rencontrer (ma phrase est au conditionnel ! Attention chers amateurs du Beschrelle).  
 
-Si je vous dis de penser à James Bond. Vous l'imaginer avec son costume et son beau noeud papillon. Mais prenez l'acteur dans un contexte hors caméra. Je suis sûr qu'il conservera son charisme, mais le fossé entre sa Puissance dans le film et hors caméra est flagrante. C'est normal, parce que vous l'imaginiez automatiquement en costume, et que vous avez cette "habitude" de le penser comme ca. Donner cet habitude à autrui de vous voir tout le temps comme ça est une très bonne chose, mais votre Réserve tendra vers zéro.
+Si je vous dis de penser à James Bond. Vous l'imaginer avec son costume et son beau noeud papillon. Mais prenez l'acteur dans un contexte hors caméra. Je suis sûr qu'il conservera son charisme, mais le fossé entre sa Puissance dans le film et hors caméra est flagrante. C'est normal, parce que vous l'imaginiez automatiquement en costume, et que vous avez cette "habitude" de le penser comme ça. Donner cet habitude à autrui de vous voir tout le temps comme ça est une très bonne chose, mais votre Réserve tendra vers zéro.
 
 ### Réserve faible
 
