@@ -69,7 +69,7 @@ Pas être trop habillé pour aller en cours, et pas trop décontracté pour un g
 Essayez de "décontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis, gardez une certaine sobriété dans vos costumes de travail fait restaurer en Réserve dans le cas où on partirait d'un costume depareillé.
 
 **Est-ce si grave d'avoir une Puissance faible au final ?**  
-Pas tant que ça, et au contraire, cela veut dire que vous êtes à un niveau avancé dans votre style. Le seul souci s'il est inexistant ou relatif ce sera l'impact que vous creerez si l'on vous voit souvent. Et si d'un coup vous êtes sapés très basiquement alors la vous verrez a quel point votre Réserve était faible.
+Pas tant que ça, et au contraire, cela veut dire que vous êtes à un niveau avancé dans votre style. Le seul souci s'il est inexistant ou relatif ce sera l'impact que vous créerez si l'on vous voit souvent. Et si d'un coup vous êtes sapés très (trop) basiquement, alors la vous verrez a quel point votre Réserve était faible.
 
 **Que faut-il faire au final ?**
 L'importance de ne pas dévoiler toutes vos cartes est très importante selon moi car vous avez toujours cette Réserve pour impacter. Mais de toute façon, si vous voulez développer votre style, il faudra bien puiser dans cette Réserve de temps en temps et bien choisir ses moments pour impacter. A savoir les bons contextes. On peut tout à fait être bien habillé chaque jour sans forcément tout donner. Arrêtons de croire qu'être bien habillé est porter un costume ou une robe sexy. Et penser qu'il faut beaucoup d'argent pour être bien habillé est pire encore. Sinon, tout ce concept et cet article n'aurait pas lieu d'être.
