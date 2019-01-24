@@ -78,8 +78,3 @@ L'importance de ne pas dévoiler toutes vos cartes est très importante selon mo
 
 Un dernier cas hypothétique où l'on peut impacter excessivement malgré que la Réserve soit très faible et encore mieux si l'on est pas habillé en costume ou chic. Je n'ai jamais eu à faire à ce cas mais je suis sûr qu'il peut exister. Le style n'a pas de limite...
 
-### Là où je me situe
-
-Vous comprenez à présent pourquoi je ne m'habille pas comme un sapeur ou un dandy.
-
-(Article en cours de finition...)
