@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2018-12-09T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: power.png
@@ -91,3 +91,5 @@ Plusieurs solutions :
   
 
 En éspérant que cet article vous aura permis de voir un peu plus clair dans le développement de votre style. Et que dès à présent, vous ferez en sorte d'avoir une Puissance Réelle plutôt que Relative. Mais tout est relatif...
+
+Votre Puissance n'est pas à utiliser à la légère. Voyez comment l'utiliser soigneusement dans la suite de cet article : [la Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
