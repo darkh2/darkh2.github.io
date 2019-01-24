@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 date: 2019-01-24T00:00:00.000Z
 categories: articles
@@ -53,24 +53,26 @@ Pas d'impact, votre Puissance est gâchée et presque pas exploitée. Et même e
 #### Avantage
 
 Au moment de sortir le costume entre autres, vous créerez un impact plus prononcé qu'une personne avec une Réserve basse.
-Le champ est libre et vous pouvez vous permettre d'essayer plein de choses pour voir vers quel style vous allez vous tourner vu que vous êtes en pleine phase de recherche et de développement.
+Le champ est libre et vous pouvez vous permettre d'essayer plein de choses pour voir vers quel style vous allez vous tourner vu que vous êtes en pleine phase de recherche et de développement. 
+
+### La Réserve de Puissance chez la femme
+
+On y vient mesdames. Votre réserve à vous est belle et bien existante, mais beaucoup plus vaste que la nôtre. Ou bien, elle a tendance à s'épuiser plus lentement. Néanmoins, vous possédez une faiblesse. C'est le danger de ne pas être dans une Réserve où vous vous habillez vulgairement. Ou encore le fait de s'habiller un peu trop osé, peut faire chuter drastiquement votre Réserve mais pas nécéssairement dans le bon sens du terme.  
+Les hommes ont moins de chances de tomber dans la Réserve vulgaire. A la limite, ils passeront pour des hommes moins virils ou tout simplement ringards. Vous avez beaucoup plus de choix dans les sapes, c'est pour cela que votre Réserve est vaste. 
 
 ### Que faire pour garder une Réserve stable ? 
 
 Faire attention à s'habiller en fonction du contexte pour ne pas perdre en Réserve. 
 Pas être trop habillé pour aller en cours, et pas trop décontracté pour un gala (gain de Réserve inutile). Le but sera de toujours maintenir sa Réserve de Puissance afin qu'elle soit stable.  
 
-**Que faire si l'on part déjà avec une réserve faible ?** Essayez de "décontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis, garder une certaine sobriété dans vos costumes de travail fait garder en Réserve dans le cas où on sortirait un costume depareillé. 
+**Que faire si l'on part déjà avec une réserve faible ?**  
+Essayez de "décontractiser" les tenues si possible. Si vous êtes ministre, ça ne sera pas possible bien entendu. Puis, garder une certaine sobriété dans vos costumes de travail fait garder en Réserve dans le cas où on sortirait un costume depareillé.
 
-### La Réserve de Puissance chez la femme
+**Est-ce si grave d'avoir une Puissance faible au final ?**  
+Pas tant que ça, et au contraire, cela veut dire que vous êtes à un niveau avancé dans votre style. Le seul souci s'il est inexistant ou relatif ce sera l'impact que vous creerez si l'on vous voit souvent. Et si d'un coup vous êtes sapés très basiquement alors la vous verrez a quel point votre Réserve était faible.
 
-On y vient mesdames. Votre réserve à vous est existante, mais beaucoup plus vaste que la nôtre. Ou bien, elle a tendance à s'épuiser plus lentement. Néanmoins, vous possédez une faiblesse malheureusement. C'est le danger de ne pas être dans une Réserve où vous vous habillez vulgairement. Ou encore le fait de s'habiller un peu trop osé, peut faire chuter drastiquement votre Réserve mais pas nécéssairement dans le bon sens du terme.  
-Les hommes ont moins de chances de tomber dans la Réserve vulgaire. A la limite ils passeront pour des hommes moins virils ou tout simplement ringards. C'est dangereux pour vous a ce niveau là. Mais vous avez beaucoup plus de choix c'est pour cela que votre réserve est vaste également 
-
-Est ce que c'est si grave d'avoir une Puissance faible au final ? Pas tant que ça et au contraire cela veut dire que vous êtes à un certain niveau avancé dans votre style. Le seul souci s'il est inexistant ou relatif ce sera l'impact que vous creerez si l'on vous voit souvent. Et si d'un coup vous êtes sapés très basiquement alors la vous verrez a quel point votre réserve était faible.
-
-Que faut il faire au final ?
-L'importance de ne pas dévoiler toutes vos cartes est très importante selon moi car vous avez toujours cette réserve pour impacter. Mais de toute façon si vous voulez développer votre style il faudra bien puiser dans cette réserve de temps en temps mais bien choisir ses moments pour impacter. A savoir les bons contextes. On peut très bien être habillé tous les jours sans forcément tout donner. Arrêtons de croire qu'être bien habillé est être habillé chic ou en costume. Et penser qu'il faut beaucoup d'argent pour être bien habillé est pire encore.
+**Que faut-il faire au final ?**
+L'importance de ne pas dévoiler toutes vos cartes est très importante selon moi car vous avez toujours cette Réserve pour impacter. Mais de toute façon, si vous voulez développer votre style, il faudra bien puiser dans cette Réserve de temps en temps et bien choisir ses moments pour impacter. A savoir les bons contextes. On peut tout à fait être bien habillé chaque jour sans forcément tout donner. Arrêtons de croire qu'être bien habillé est porter un costume ou une robe sexy. Et penser qu'il faut beaucoup d'argent pour être bien habillé est pire encore. Sinon, tout ce concept et cet article n'aurait pas lieu d'être.
 
 ### La Réserve Légendaire
 
