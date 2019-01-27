@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-01-27T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: reunion.jpg
@@ -9,6 +9,14 @@ feature_image: reunion.jpg
 ## Pourquoi je suis parti à La Réunion ?
 
 Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.instagram.com/crevardstyle/)), j'étais parti sur l'île de la Réunion lors de la période des fêtes. Au travers de cet article, vous comprendrez les raisons pour lesquelles je suis parti et le lien avec Crevard Stylé, ainsi que toutes les bonnes conséquences qui découlent de ce merveilleux séjour.
+
+### La liste des objectifs fous
+
+Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit au moment des douze coups de minuit et avant mes 30 ans.
+
+### Le Crevard Stylé jusqu'au bout du monde
+
+Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. Sans oublier la priorisation des dépenses. Peuvent débloquer . Les biens matériels sont une chose mais les expériences sont incomparables par rapports aux objets. Il sera toujours important de se nourrir d'expériences de vie plutôt que des biens que ne vous emporterez pas dans la tombe.
 
 Faire article sur le voyage et comment les économies peuvent permettre de faire d'autres choses comme voyager.
 
