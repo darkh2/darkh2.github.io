@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-01-27T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: reunion.jpg
@@ -12,6 +12,7 @@ Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.inst
 
 ### La liste des objectifs fous
 
+Je prône souvent le développement du style à travers mes articles, mais ce que je veux prôner par dessus tout, c'est le développement personnel de façon globale. S'enrichir de progressions ainsi que d'expériences de vie pour devenir meilleur.
 Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit au moment des douze coups de minuit et avant mes 30 ans. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et gagner en expériences de vie.
 
 ### Le Crevard Stylé jusqu'au bout du monde
