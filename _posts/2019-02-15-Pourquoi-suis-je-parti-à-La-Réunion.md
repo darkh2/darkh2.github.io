@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-02-15T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: reunion.jpg
@@ -16,6 +16,8 @@ Je prône souvent le développement du style à travers mes articles, mais ce qu
 Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit au moment des douze coups de minuit? et avant mes 30 ans. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et gagner en expériences de vie.
 
 ### Le Crevard Stylé jusqu'au bout du monde
+
+![reunion]({{site.url}}/{{site.baseurl}}img/reunion.jpg)
 
 Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. Sans oublier la priorisation des dépenses. Peuvent débloquer . Les biens matériels sont une chose mais les expériences sont incomparables par rapports aux objets. Il sera toujours important de se nourrir d'expériences de vie plutôt que des biens que ne vous emporterez pas dans la tombe.
 
