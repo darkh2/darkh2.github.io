@@ -17,11 +17,17 @@ Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à
 
 ### Le Crevard Stylé jusqu'au bout du monde
 
-![reunion]({{site.url}}/{{site.baseurl}}img/reunion.jpg)
+![reunion_maido]({{site.url}}/{{site.baseurl}}img/reunion_maido.jpg)
 
-Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. Sans oublier la priorisation des dépenses. Peuvent débloquer . Les biens matériels sont une chose mais les expériences sont incomparables par rapports aux objets. Il sera toujours important de se nourrir d'expériences de vie plutôt que des biens que ne vous emporterez pas dans la tombe.
+Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. L'argent que vous n'utilisez pas permet de le placer dans autre chose qui sera prioritaire, qui apportera plus ou qui sera plus utile. C'est ce que j'appelle la priorisation des dépenses. Dans ce cas, les économies ont servi à justement effectuer un voyage et ainsi réaliser un objectif de vie. 
 
-Faire article sur le voyage et comment les économies peuvent permettre de faire d'autres choses comme voyager.
+
+
+### Un souvenir du Crevard Stylé
+
+Tissu Maurice
+Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
+
 
 Dire que j'ai voyagé seul même si j'ai rejoins un ami et que un grand nombre d'activités je les faisais seul et que ce n'était pas le 1er voyage seul. Qu'il faut sortir de sa zone de confort. Qu'il faut toujours préparer ses voyages surtout quand c'est loin. Parler de l'objectif de base. Le 31 a la mer... les objectifs de vie dans le sens général. L'objectif de faire un blog. Et la liste d'objectifs fous
 
