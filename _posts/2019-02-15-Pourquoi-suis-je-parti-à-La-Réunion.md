@@ -21,7 +21,9 @@ Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à
 
 Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. L'argent que vous n'utilisez pas permet de le placer dans autre chose qui sera prioritaire, qui apportera plus ou qui sera plus utile. C'est ce que j'appelle la priorisation des dépenses. Dans ce cas, les économies ont servi à justement effectuer un voyage et ainsi réaliser un objectif de vie. 
 
+Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un très bon ami d'enfance chez qui je séjournais. Je n'en suis pas à mon premier coup d'essai. J'ai pris l'habitude de voyager seul et je pense que chacun devrait essayer de le faire au moins une fois dans sa vie. Cela permettrait de sortir de sa zone de confort entre autres, et surtout de se voir ouvrir la porte vers de nouvelles expériences qui n'en seront que bénéfiques. A condition d'avoir cette dynamique d'aller vers l'inconnu. Le plus grand nombre d'activités que j'ai effectué
 
+Un voyage ne s'effectue pas sans préparation.
 
 ### Un souvenir du Crevard Stylé
 
