@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 date: 2019-02-17T00:00:00.000Z
 categories: articles
@@ -14,8 +14,6 @@ Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.inst
 
 Je prône souvent le développement du style à travers mes articles, mais ce que je veux prôner par dessus tout, c'est le développement personnel de façon globale. S'enrichir de progressions ainsi que d'expériences de vie pour devenir meilleur.
 Je ne sais pas si c'est votre cas, mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit, au moment des douze coups de minuit, et ce, avant mes 30 ans. Faire ce blog faisait également parti de cette liste auparavant car je ne pensais jamais pouvoir devenir blogueur un jour. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et enrichir.
-
-
 
 ### Le Crevard Stylé jusqu'au bout du monde grâce aux Brèches
 
@@ -62,3 +60,5 @@ Je compte m'orienter vers le développement personnel de façon général, tout 
 ### Prochaine destination ? 
 
 Je vous le dis ou pas ? Le pays commence par la lettre C...
+
+![reunion_fin]({{site.url}}/{{site.baseurl}}img/reunion_fin.jpg)
