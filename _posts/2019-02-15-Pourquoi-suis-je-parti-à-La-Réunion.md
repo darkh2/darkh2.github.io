@@ -29,7 +29,7 @@ Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon bil
 
 ### Une Brèche
 
-***La Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié.***
+***Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d'une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.***
 
 L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
 
