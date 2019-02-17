@@ -8,7 +8,7 @@ feature_image: reunion.jpg
 ---
 ## Pourquoi suis-je parti à La Réunion ?
 
-Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.instagram.com/crevardstyle/)), j'étais parti sur l'île de la Réunion lors de la période des fêtes. Au travers de cet article, vous comprendrez les raisons pour lesquelles je suis parti et le lien avec Crevard Stylé, ainsi que toutes les bonnes conséquences qui découlent de ce merveilleux séjour.
+Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.instagram.com/crevardstyle/)), j'étais parti sur l'île de la Réunion lors de la période des fêtes de fin d'année. Au travers de cet article, vous comprendrez les raisons pour lesquelles je suis parti et le lien avec Crevard Stylé, ainsi que toutes les bonnes conséquences qui découlent de ce merveilleux séjour.
 
 ### La liste des objectifs fous
 
@@ -33,7 +33,7 @@ L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). 
 
 ![reunion_meilleureguide]({{site.url}}/{{site.baseurl}}img/reunion_meilleureguide.jpg)
 
-### Un souvenir du Crevard Stylé
+#### Un souvenir du Crevard Stylé
 
 Même si les sapes ne m'ont pas enchanté dans ces deux îles, l'occasion de repartir avec un souvenir et en l'occurence un beau tissu était plus qu'important à mes yeux. Ce magnifique tissu au nom de Brocart (nom du tissu à confirmer), m'a plus qu'épaté ! Un futur vêtement en projet ? Maybe...
 Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
