@@ -15,7 +15,9 @@ Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.inst
 Je prône souvent le développement du style à travers mes articles, mais ce que je veux prôner par dessus tout, c'est le développement personnel de façon globale. S'enrichir de progressions ainsi que d'expériences de vie pour devenir meilleur.
 Je ne sais pas si c'est votre cas, mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit, au moment des douze coups de minuit, et ce, avant mes 30 ans. Faire ce blog faisait également parti de cette liste auparavant car je ne pensais jamais pouvoir devenir blogueur un jour. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et enrichir.
 
-### Le Crevard Stylé jusqu'au bout du monde
+### Le Crevard Stylé jusqu'au bout du monde grâce aux Brèches
+
+***Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d'une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.***
 
 ![reunion_maido]({{site.url}}/{{site.baseurl}}img/reunion_maido.jpg)
 
@@ -27,9 +29,7 @@ Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un tr
 
 Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
 
-### Une Brèche
-
-***Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d'une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.***
+### Une autre Brèche
 
 L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
 
