@@ -38,7 +38,9 @@ L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). 
 Tissu Maurice
 Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
 
+### Moralité : Brèches infinies
 
+Tout ça pour dire qu'en partant de faire des économies pour développer son style à pas cher, on peut partir vraiment loin. Que ce soit la Brèche concernant le développement personnel, la Brèche des économies, ou la brèche vers le lifestyle général et donc les voyages.
 
 Montrer que le fait d'économiser de l'argent sur les sapes te fait prendre conscience de la valeur de l'argent. Que développer son style donne envie de se développer de façon générale. Parler du Six Moves Lead rapidement vers la fin. Les Brèches et préparer le terrain.
 
