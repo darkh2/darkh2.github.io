@@ -43,6 +43,7 @@ Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
 ### Moralité : Brèches infinies
 
 Tout ça pour dire qu'en partant de faire des économies pour développer son style à pas cher, on peut partir vraiment loin. Que ce soit la Brèche concernant le développement personnel, la Brèche des économies, ou la brèche vers le lifestyle général et donc les voyages. Ces économies font prendre conscience de la valeur de l'argent et que même si cela est important, il ne reste qu'un outil pour être libre. C'est pour cela que si l'on fait bien attention, des opportunités peuvent se présenter. Sans oublier, le fait de préparer le terrain. 
+Vous n'avez rien de plus que moi. Je n'ai rien de plus que vous. Ce que j'ai pu accomplir, vous pouvez également le faire. Je ne suis ni coach, ni styliste, juste un homme qui se développe et qui vous montre comment j'arrive à faire certaines choses tout en me développant. Juste un guide. Rien de plus.
 
 ### Six Moves Lead : prochain blog
 
@@ -55,7 +56,7 @@ Je vous le dis ou je vous le dis pas ? Le pays commence par la lettre C...
 
 
 
-Vous n'avez rien de plus que moi. Je n'ai rien de plus que vous. Ce que j'ai pu accomplir, vous pouvez également le faire. Je ne suis ni coach, ni styliste, juste un homme qui se développe et qui vous montre comment j'arrive à faire certaines choses tout en me développant. Juste un guide. Rien de plus.
+
 
 Je suis peut être en vacances mais ça me donne tellement d'inspiration detre ici sérieux ! Ouiiiii je vais le faire cet article. Ce sera pour montrer grâce à une brèche indirecte que économiser des sous permet de gagner en expérience de vie comme voyager et être plus heureux se sentir bien dans sa peau et tout en continuant de développer son style grâce à certaines façons de s'habiller ^^
 
