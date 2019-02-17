@@ -1,7 +1,7 @@
 ---
 published: true
 layout: post
-date: 2019-02-17T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: reunion.jpg
@@ -29,7 +29,7 @@ Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un tr
 
 ![reunion_plage]({{site.url}}/{{site.baseurl}}img/reunion_plage.jpg)
 
-Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
+Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, j'ai préparé une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
 
 ### Une autre Brèche
 
