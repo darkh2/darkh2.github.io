@@ -27,7 +27,9 @@ Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un tr
 
 Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
 
-### Une autre Brèche
+### Une Brèche
+
+***La Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié.***
 
 L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
 
