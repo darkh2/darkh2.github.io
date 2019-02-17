@@ -42,14 +42,16 @@ Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
 
 ### Moralité : Brèches infinies
 
-Tout ça pour dire qu'en partant de faire des économies pour développer son style à pas cher, on peut partir vraiment loin. Que ce soit la Brèche concernant le développement personnel, la Brèche des économies, ou la brèche vers le lifestyle général et donc les voyages. Ces économies font prendre conscience de la valeur de l'argent et que même si cela est important, il ne reste qu'un outil pour être libre. C'est pour cela que si l'on fait bien attention, des opportunités peuvent se présenter. Sans oublier, le fait de préparer le terrain.
+Tout ça pour dire qu'en partant de faire des économies pour développer son style à pas cher, on peut partir vraiment loin. Que ce soit la Brèche concernant le développement personnel, la Brèche des économies, ou la brèche vers le lifestyle général et donc les voyages. Ces économies font prendre conscience de la valeur de l'argent et que même si cela est important, il ne reste qu'un outil pour être libre. C'est pour cela que si l'on fait bien attention, des opportunités peuvent se présenter. Sans oublier, le fait de préparer le terrain. 
+
+### Six Moves Lead : prochain blog
+
+Je compte m'orienter vers le développement personnel de façon général, tout en continuant de vous apporter sur ce blog bien entendu. Un prochain site verra le jour d'ici peu. Je vous réserve un tout autre univers qui vous permettra de voir le développement personnel d'un autre angle.
 
 
 ### Prochaine destination ? 
 
 Je vous le dis ou je vous le dis pas ? Le pays commence par la lettre C...
-
-Montrer que le fait d'économiser de l'argent sur les sapes te fait prendre conscience de la valeur de l'argent. Que développer son style donne envie de se développer de façon générale. Parler du Six Moves Lead rapidement vers la fin. Les Brèches et préparer le terrain.
 
 
 
