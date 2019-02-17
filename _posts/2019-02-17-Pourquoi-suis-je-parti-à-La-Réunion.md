@@ -55,7 +55,7 @@ Vous n'avez rien de plus que moi. Je n'ai rien de plus que vous. Ce que j'ai pu 
 
 ### Six Moves Lead : prochain blog
 
-Je compte m'orienter vers le développement personnel de façon général, tout en continuant de vous apporter sur ce blog bien entendu. Un prochain site verra le jour d'ici peu. Je vous réserve un tout autre univers qui vous permettra de voir le développement personnel sous un autre angle. Vous pouvez me rejoindre sur Instagram
+Je compte m'orienter vers le développement personnel de façon général, tout en continuant de vous apporter sur ce blog bien entendu. Un prochain site verra le jour d'ici peu. Je vous réserve un tout autre univers qui vous permettra de voir le développement personnel sous un autre angle. En tout cas le compte Instagram est déjà crée : [@Six Moves Lead](https://www.instagram.com/sixmoveslead/).
 
 ![sixmoveslead]({{site.url}}/{{site.baseurl}}img/sixmoveslead.png)
 
