@@ -25,6 +25,10 @@ Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un tr
 
 Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
 
+### Une autre Brèche
+
+L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
+
 ### Un souvenir du Crevard Stylé
 
 Tissu Maurice
@@ -34,9 +38,7 @@ Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
 
 Montrer que le fait d'économiser de l'argent sur les sapes te fait prendre conscience de la valeur de l'argent. Que développer son style donne envie de se développer de façon générale. Parler du Six Moves Lead rapidement vers la fin. Les Brèches et préparer le terrain.
 
-### Une autre Brèche
 
-L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
 
 Vous n'avez rien de plus que moi. Je n'ai rien de plus que vous. Ce que j'ai pu accomplir, vous pouvez également le faire. Je ne suis ni coach, ni styliste, juste un homme qui se développe et qui vous montre comment j'arrive à faire certaines choses tout en me développant. Juste un guide. Rien de plus.
 
