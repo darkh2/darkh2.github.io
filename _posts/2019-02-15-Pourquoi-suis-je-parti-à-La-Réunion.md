@@ -13,17 +13,17 @@ Si vous avez suivi mes aventures sur Instagram ([@crevardstyle](https://www.inst
 ### La liste des objectifs fous
 
 Je prône souvent le développement du style à travers mes articles, mais ce que je veux prôner par dessus tout, c'est le développement personnel de façon globale. S'enrichir de progressions ainsi que d'expériences de vie pour devenir meilleur.
-Je ne sais pas si c'est votre cas mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit au moment des douze coups de minuit? et avant mes 30 ans. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et gagner en expériences de vie.
+Je ne sais pas si c'est votre cas, mais je possède une liste d'objectifs fous à réaliser avant de disparaître de ce monde. Et parmi ces objectifs, l'un d'eux consistait à passer le 31 décembre à la plage dans un pays qui me permettrait de me baigner la nuit, au moment des douze coups de minuit, et ce, avant mes 30 ans. Faire ce blog faisait également parti de cette liste auparavant car je ne pensais jamais pouvoir devenir blogueur un jour. Développer son style, certes, mais pas que. C'est toute sa propre personne que l'on tend à faire évoluer et enrichir.
 
 ### Le Crevard Stylé jusqu'au bout du monde
 
 ![reunion_maido]({{site.url}}/{{site.baseurl}}img/reunion_maido.jpg)
 
-Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. L'argent que vous n'utilisez pas permet de le placer dans autre chose qui sera prioritaire, qui apportera plus ou qui sera plus utile. C'est ce que j'appelle la priorisation des dépenses. Dans ce cas, les économies ont servi à justement effectuer un voyage et ainsi réaliser un objectif de vie. 
+Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. L'argent que vous n'utilisez pas permet de le placer dans autre chose qui sera prioritaire, qui aura un meilleur intêret à vos yeux, ou qui sera plus utile. C'est ce que j'appelle la priorisation des dépenses. Dans ce cas, les économies ont servi à justement effectuer un voyage et ainsi réaliser un objectif de vie. 
 
-Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un très bon ami d'enfance chez qui je séjournais. Je n'en suis pas à mon premier coup d'essai. J'ai pris l'habitude de voyager seul et je pense que chacun devrait essayer de le faire au moins une fois dans sa vie. Cela permettrait de sortir de sa zone de confort entre autres, et surtout de se voir ouvrir la porte vers de nouvelles expériences qui n'en seront que bénéfiques. A condition d'avoir cette dynamique d'aller vers l'inconnu. Le plus grand nombre d'activités que j'ai effectué
+Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un très bon ami d'enfance chez qui je séjournais. Je n'en suis pas à mon premier coup d'essai. J'ai pris l'habitude de voyager seul et je pense que chacun devrait essayer de le faire au moins une fois dans sa vie. Cela permettrait de sortir de sa zone de confort entre autres, et surtout de se voir ouvrir la porte vers de nouvelles expériences qui n'en seront que bénéfiques. A condition d'avoir cette dynamique d'aller vers l'inconnu. Un grand nombre d'activités que j'ai effectué étaient en solo. 
 
-Un voyage ne s'effectue pas sans préparation.
+Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
 
 ### Un souvenir du Crevard Stylé
 
@@ -31,7 +31,6 @@ Tissu Maurice
 Entre 6 et 7 Euros (250 Roupies) pour 4 mètres.
 
 
-Dire que j'ai voyagé seul même si j'ai rejoins un ami et que un grand nombre d'activités je les faisais seul et que ce n'était pas le 1er voyage seul. Qu'il faut sortir de sa zone de confort. Qu'il faut toujours préparer ses voyages surtout quand c'est loin. Parler de l'objectif de base. Le 31 a la mer... les objectifs de vie dans le sens général. L'objectif de faire un blog. Et la liste d'objectifs fous
 
 Montrer que le fait d'économiser de l'argent sur les sapes te fait prendre conscience de la valeur de l'argent. Que développer son style donne envie de se développer de façon générale. Parler du Six Moves Lead rapidement vers la fin. Les Brèches et préparer le terrain.
 
