@@ -17,7 +17,7 @@ Je ne sais pas si c'est votre cas, mais je possède une liste d'objectifs fous �
 
 ### Le Crevard Stylé jusqu'au bout du monde grâce aux Brèches
 
-***Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d'une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.***
+*Brèche (selon Hyke) : ouverture spontanée se créant lors d'un développement d'un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d'une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.*
 
 ![reunion_maido]({{site.url}}/{{site.baseurl}}img/reunion_maido.jpg)
 
