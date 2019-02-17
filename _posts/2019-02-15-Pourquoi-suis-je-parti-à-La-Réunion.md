@@ -21,6 +21,8 @@ Je ne sais pas si c'est votre cas, mais je possède une liste d'objectifs fous �
 
 Faire des économies pour ce qui est de l'habillement et de façon générale apportent certains bienfaits. L'argent que vous n'utilisez pas permet de le placer dans autre chose qui sera prioritaire, qui aura un meilleur intêret à vos yeux, ou qui sera plus utile. C'est ce que j'appelle la priorisation des dépenses. Dans ce cas, les économies ont servi à justement effectuer un voyage et ainsi réaliser un objectif de vie. 
 
+![reunion_piton]({{site.url}}/{{site.baseurl}}img/reunion_piton.jpg)
+
 Je suis donc parti seul vers cette destination paradisiaque, en rejoignant un très bon ami d'enfance chez qui je séjournais. Je n'en suis pas à mon premier coup d'essai. J'ai pris l'habitude de voyager seul et je pense que chacun devrait essayer de le faire au moins une fois dans sa vie. Cela permettrait de sortir de sa zone de confort entre autres, et surtout de se voir ouvrir la porte vers de nouvelles expériences qui n'en seront que bénéfiques. A condition d'avoir cette dynamique d'aller vers l'inconnu. Un grand nombre d'activités que j'ai effectué étaient en solo. 
 
 Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon billet aller-retour, je m'y étais pris six mois avant. Je m'en suis sorti pour 500 euros sur Kayak avec une escale à Marseille, sans descendre de l'avion. Concernant également la préparation, je prépare une liste d'activités à faire et d'endroits à fréquenter pour puiser au mieux le gain de temps potentiel du séjour et ainsi, profiter le plus possible.
@@ -28,6 +30,8 @@ Un voyage ne s'effectue pas sans préparation. pour optimiser le prix de mon bil
 ### Une autre Brèche
 
 L'île Maurice et l'île de la Réunion sont très proches (45 minutes de vol). Impossible d'aller trois semaines dans une de ces deux merveilleuses îles sans faire un tour dans l'autre. D'autant plus que j'ai été tellement bien accueilli pr une très bonne pote que j'ai justement rencontré à travers Instagram. La magie des réseaux sociaux... Merci Stacy, #meilleureguide.
+
+![reunion_meilleureguide]({{site.url}}/{{site.baseurl}}img/reunion_meilleureguide.jpg)
 
 ### Un souvenir du Crevard Stylé
 
