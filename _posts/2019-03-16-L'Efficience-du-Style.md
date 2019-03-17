@@ -8,7 +8,7 @@ feature_image: blackfont.png
 ---
 ## L'Efficience du Style
 
-Fusion de la Puissance du style à moindre coût. Optimisation du prix.
+Fusion de la Puissance du style à moindre coût. Optimisation consistant à combiner une Puissance du Style Réelle avec le moins d'argent possible
 
 Bienvenue dans le Game de l'Efficience. (Phrase fin d'intro)
 
