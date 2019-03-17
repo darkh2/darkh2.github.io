@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2019-03-16T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -14,6 +14,8 @@ feature_image: blackfont.png
 
 ***Efficience du Style*** : Optimisation consistant à combiner une [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) Réelle avec le moins d'argent possible. Quand on entend efficience, on veut tout simplement dire efficace avec peu de moyens. L'Efficience du Style est propre au Crevard Stylé. Être stylé à moindre coût. Le but est donc de respecter les fondements de l'habillement tout en étant unique et en dépensant le moins possible. Bienvenue dans le Game de l'Efficience.  
 Si vous avez lu les précédents articles, notre but d'efficience ici va être de réunir Puissance du Style et Économie. La consolidation des deux va donc donner l'Efficience en question.
+
+### Comment atteindre un style Efficient ?
 
 La pièce la plus chère : la pièce forte, la pièce forte, la pièce la plus grosse, qui tient le plus chaud, la plus originale. Vous pouvez et devez favoriser un de ces critères pour commencer à vous démarquer sur vos tenues. En général les basiques et les vêtements à couleur unique ne font pas parti de la pièce la plus chère d'une tenue.
 
