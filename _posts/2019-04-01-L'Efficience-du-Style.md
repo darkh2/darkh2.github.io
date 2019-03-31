@@ -4,7 +4,7 @@ layout: post
 date: 2019-04-01T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: effi.jpg
+feature_image: efficience.jpg
 ---
 ## L'Efficience du Style
 
@@ -30,3 +30,5 @@ Concernant les pièces fortes, la vous devez être préparés. Si vous arrivez a
 Certains prix à respecter pour avoir un style efficient. Décrire les prix limites en temps normal et en soldes.
 
 Et à propos des exceptions ??? Je suis toujours conscient que l'on ne peut jamais être totalement fermé concernant le style. Cela n'a aucun sens quand on parle de développement du style. Néanmoins, si l'on s'ouvre justement a de pièces très rares et en l'occurrence chères, l'efficience ne fait plus partie du Game.
+
+(article en cours d'élaboration...)
