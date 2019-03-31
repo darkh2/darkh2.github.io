@@ -17,6 +17,8 @@ Si vous avez lu les précédents articles, notre but d'efficience ici va être d
 
 ### Comment atteindre un style Efficient ?
 
+Nous voulons donc réunir
+
 La pièce la plus chère : la pièce forte, la pièce forte, la pièce la plus grosse, qui tient le plus chaud, la plus originale. Vous pouvez et devez favoriser un de ces critères pour commencer à vous démarquer sur vos tenues. En général les basiques et les vêtements à couleur unique ne font pas parti de la pièce la plus chère d'une tenue.
 
 Pourquoi est ce si important de favoriser une Puissance Réelle plutôt qu'une Puissance Relative ? Si vous voulez vous démarquer, le panel de choix qu'offre la Puissance Réelle est infinie. Combiner des couleurs et des matières ainsi que des accessoires. Alors qu'une Puissance Relative vous limite à un nombre de choix et vous avez donc plus de chances de ressembler aux autres ou que l'on pense à quelqu'un d'autre quand on est face à votre Puissance du Style. Que voulez vous ? Faire comme les autres ou bien avoir votre propre sauce ?
@@ -30,5 +32,9 @@ Concernant les pièces fortes, la vous devez être préparés. Si vous arrivez a
 Certains prix à respecter pour avoir un style efficient. Décrire les prix limites en temps normal et en soldes.
 
 Et à propos des exceptions ??? Je suis toujours conscient que l'on ne peut jamais être totalement fermé concernant le style. Cela n'a aucun sens quand on parle de développement du style. Néanmoins, si l'on s'ouvre justement a de pièces très rares et en l'occurrence chères, l'efficience ne fait plus partie du Game.
+
+### A propos de la Réserve de Puissance
+
+Si vous appliquez ce qui était dit plus haut et que votre habillement correspond bien au contexte dans lequel vous êtes au moment de porter votre tenue, alors vous réussirez à garder une Réserve stable. Pour plus de détails, consultez cet article : [ La Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
 
 (article en cours d'élaboration...)
