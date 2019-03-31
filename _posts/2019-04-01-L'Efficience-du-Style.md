@@ -1,14 +1,14 @@
 ---
-published: true
+published: false
 layout: post
 date: 2019-04-01T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: efficience.jpg
+feature_image: efficience2.jpg
 ---
 ## L'Efficience du Style
 
-***Cet article est en lien avec celui correspondant a la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) ainsi que la [Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style). Vous pouvez toutefois poursuivre sans avoir lu ces derniers. Néanmoins, si vous voulez bien assimiler ces prochaines lignes, je vous recommande vivement d'y jeter un oeil. Bonne lecture...***
+***Cet article est en lien avec celui correspondant à la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style) ainsi que la [Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style). Vous pouvez toutefois poursuivre sans avoir lu ces derniers. Néanmoins, si vous voulez bien assimiler ces prochaines lignes, je vous recommande vivement d'y jeter un oeil. Bonne lecture...***
 
 ### Définition
 
