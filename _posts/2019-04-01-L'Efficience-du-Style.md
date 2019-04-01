@@ -4,7 +4,7 @@ layout: post
 date: 2019-04-01T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: efficience3.jpg
+feature_image: efficience2.jpg
 ---
 ## L'Efficience du Style
 
