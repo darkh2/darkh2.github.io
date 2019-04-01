@@ -39,9 +39,13 @@ Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style R�
 
 ![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
 
-Pourquoi est-ce si important de favoriser une Puissance Réelle plutôt qu'une Puissance Relative ?  
+##### Pourquoi est-ce si important de favoriser une Puissance Réelle plutôt qu'une Puissance Relative ?  
 
 Si vous voulez vous démarquer, le panel de choix qu'offre la Puissance Réelle est infinie. Combiner des couleurs et des matières, ainsi que des accessoires. Alors qu'une Puissance Relative vous limite à un nombre de choix et vous avez donc plus de chances de ressembler aux autres, ou que l'on pense à quelqu'un d'autre quand on est face à votre Puissance du Style. Que voulez vous ? Faire comme les autres, ou bien avoir votre propre sauce ?
+
+##### A propos de la Réserve de Puissance
+
+Si vous appliquez ce qui était dit plus haut et que votre habillement correspond bien au contexte dans lequel vous êtes au moment de porter votre tenue, alors vous réussirez à garder une Réserve stable. Pour plus de détails, consultez cet article : [ La Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
 
 ### Des pièces fortes rarissimes
 
@@ -52,13 +56,5 @@ Toujours plus loin dans le développement du style. On veut un style authentique
 En dehors du fait de faire coudre ses vêtements, ou encore les customiser, acquérir des pièces fortes rarissimes peuvent également se faire de façon prévisible. Mais cela se fera en attendant des périodes de remises. Donc en étant suffisament préparé. Sinon, aller en friperie, ou chiner sur internet est également des options à prendre en considération. Le travail de recherche peut être très vaste, mais une fois l'acquisition établie, alors vous devenez un pro du game de l'Efficience du Style.
 
 
-
-
-
-Et à propos des exceptions ??? Je suis toujours conscient que l'on ne peut jamais être totalement fermé concernant le style. Cela n'a aucun sens quand on parle de développement du style. Néanmoins, si l'on s'ouvre justement a de pièces très rares et en l'occurrence chères, l'efficience ne fait plus partie du Game.
-
-### A propos de la Réserve de Puissance
-
-Si vous appliquez ce qui était dit plus haut et que votre habillement correspond bien au contexte dans lequel vous êtes au moment de porter votre tenue, alors vous réussirez à garder une Réserve stable. Pour plus de détails, consultez cet article : [ La Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
 
 (article en cours d'élaboration...)
