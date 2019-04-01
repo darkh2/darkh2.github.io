@@ -37,7 +37,7 @@ Un peu plus technique pour les pièces fortes. Un polo rose est bien entendu plu
 
 #### Puissance Réelle respéctée
 
-Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style Réelle en est une autre. Quand on retire la veste, nous n'avons pas de grandes pertes concernant l'harmonie visuelle de la tenue. Merci le polo rose. Sans oublier le peu d'accessoire qui est à noter. Vous remarquez l'importance de ne pas toujours se limiter qu'à une seule pièce forte dans une tenue, c'est la base même de la Puissance Réelle.
+Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style Réelle en est une autre. Quand on retire la veste, nous n'avons pas de grandes pertes concernant l'harmonie visuelle de la tenue. Merci le polo rose. Sans oublier les accessoires. Vous remarquez l'importance de ne pas toujours se limiter qu'à une seule pièce forte dans une tenue, c'est la base même de la Puissance Réelle.
 
 ![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
 
