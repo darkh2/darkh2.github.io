@@ -29,7 +29,7 @@ Prenons cette tenue d'un précédent article comme exemple :
 ![heattoschoolveste]({{site.url}}/{{site.baseurl}}img/heattoschoolveste.jpeg)
 
 Ici, les basiques sont le jean gris et les sneakers blanches (même si elles sont un peu différentes des sneakers blanches classiques). Cela dit, nous pouvons avoir des vêtements qui sont mi-basiques, mi-pièce forte. A vous de déterminer dans quelle case vous voulez les placer, ou ne pas les placer du tout.  
-Les pièces fortes sont le polo rose ainsi que la veste en jean. Voici l'article concernant cette tenue à moins de 100 euros : [Keep It 100 part. 3](http://www.crevardstyle.com/Keep-It-100-part-3).  
+Les pièces fortes sont le polo rose ainsi que la veste en jean. Pour plus de détails sur l'article concernant cette tenue à moins de 100 euros : [Keep It 100 part. 3](http://www.crevardstyle.com/Keep-It-100-part-3).  
 
 Pour ce qui est d'acquérir les basiques à bas prix, rien de très compliqué en soit. Vous en trouvez partout. Le seul but est de faire un comparatif et de séléctionner le moins cher. Bien entendu, je ne vous demande pas de voir uniquement le prix. Si vous sentez que la qualité n'en vaut pas le prix, alors n'achetez rien. Rien ne sert de faire un achat sans conviction. Un jean gris et une paire de sneakers blanches peuvent se trouver à moins de 25 euros chacun.  
 
