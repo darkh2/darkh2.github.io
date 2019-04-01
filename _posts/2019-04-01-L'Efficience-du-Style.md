@@ -43,6 +43,8 @@ Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style R�
 
 Toujours plus loin dans le développement du style. On veut un style authentique. Une histoire qui se crée à travers une tenue. Si l'on veut être Efficient, on doit songer à plusieurs solutions et prendre la meilleure parmi celles-çi. Une de ces solutions que j'ai adopté et que je compte appliquer encore et encore, est de faire coudre mes propres vêtements. 
 
+
+
 En dehors du fait de faire coudre ses vêtements, ou encore les customiser, acquérir des pièces fortes rarissimes peuvent également se faire de façon prévisible mais en attendant des périodes de remises donc en étant suffisament préparé ou aller en friperie, sur internet. Le travail de recherche peut être très vaste mais une fois l'acquisition établie alors vous devenez un pro du game de l'Efficience du Style.
 
 La pièce la plus chère : la pièce forte, la pièce forte, la pièce la plus grosse, qui tient le plus chaud, la plus originale. Vous pouvez et devez favoriser un de ces critères pour commencer à vous démarquer sur vos tenues. En général les basiques et les vêtements à couleur unique ne font pas parti de la pièce la plus chère d'une tenue.
