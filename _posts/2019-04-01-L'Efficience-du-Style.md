@@ -47,7 +47,7 @@ Si vous voulez vous démarquer, le panel de choix qu'offre la Puissance Réelle 
 
 ##### A propos de la Réserve de Puissance
 
-Si vous appliquez ce qui était dit plus haut et que votre habillement correspond bien au contexte dans lequel vous êtes au moment de porter votre tenue, alors vous réussirez à garder une Réserve stable. Pour plus de détails, consultez cet article : [ La Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
+Si vous appliquez ce qui était dit plus haut et que vous êtes bien habillé en fonction du contete dans lequel vous serez, alors vous réussirez à garder une Réserve stable. Pour plus de détails, consultez cet article : [La Réserve de Puissance du Style](http://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style).
 
 ### Des pièces fortes rarissimes
 
