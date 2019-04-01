@@ -35,9 +35,13 @@ C'est la que ça devient un peu plus compliqué mais loin d'être impossible. Un
 
 #### Puissance Réelle respéctée
 
-Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style Réelle en est une autre. Quand on retire la veste, nous n'avons pas de grandes pertes concernant l'harmonie visuelle de la tenue. Merci le polo rose. Sans oublier le peu d'accessoire qui est à noter.
+Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style Réelle en est une autre. Quand on retire la veste, nous n'avons pas de grandes pertes concernant l'harmonie visuelle de la tenue. Merci le polo rose. Sans oublier le peu d'accessoire qui est à noter. Vous remarquez l'importance de ne pas toujours se limiter qu'à une seule pièce forte dans une tenue, c'est la base même de la Puissance Réelle.
 
 ![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
+
+### Des pièces fortes rarissimes
+
+Toujours plus loin dans le développement du style. On veut un style authentique. Une histoire qui se crée à travers une tenue. Si l'on veut être Efficient, on doit songer à plusieurs solutions et prendre la meilleure parmi celles-çi. Une de ces solutions que j'ai adopté et que je compte appliquer encore et encore, est de faire coudre mes propres vêtements. 
 
 La pièce la plus chère : la pièce forte, la pièce forte, la pièce la plus grosse, qui tient le plus chaud, la plus originale. Vous pouvez et devez favoriser un de ces critères pour commencer à vous démarquer sur vos tenues. En général les basiques et les vêtements à couleur unique ne font pas parti de la pièce la plus chère d'une tenue.
 
