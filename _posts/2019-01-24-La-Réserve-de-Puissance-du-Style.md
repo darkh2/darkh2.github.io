@@ -78,3 +78,6 @@ L'importance de ne pas dévoiler toutes vos cartes est très importante selon mo
 
 Un dernier cas hypothétique où l'on peut impacter excessivement malgré que la Réserve soit très faible et encore mieux si l'on est pas habillé en costume ou chic. Je n'ai jamais eu à faire à ce cas mais je suis sûr qu'il peut exister. Le style n'a pas de limite...
 
+### Efficience du Style
+
+Maintenant que vous savez tout à propos de la Puissance du Style ainsi que sa fabuleuse Réserve, nous allons devoir respecter tous ces fondements en dépensant le moins d'argent possible, on appelle ça [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style).
