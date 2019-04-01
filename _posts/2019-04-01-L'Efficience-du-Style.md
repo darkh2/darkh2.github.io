@@ -54,7 +54,3 @@ Toujours plus loin dans le développement du style. On veut un style authentique
 ![efficience_reverse]({{site.url}}/{{site.baseurl}}img/efficience_reverse.jpg)
 
 En dehors du fait de faire coudre ses vêtements, ou encore les customiser, acquérir des pièces fortes rarissimes peuvent également se faire de façon prévisible. Mais cela se fera en attendant des périodes de remises. Donc en étant suffisament préparé. Sinon, aller en friperie, ou chiner sur internet est également des options à prendre en considération. Le travail de recherche peut être très vaste, mais une fois l'acquisition établie, alors vous devenez un pro du game de l'Efficience du Style.
-
-
-
-(article en cours d'élaboration...)
