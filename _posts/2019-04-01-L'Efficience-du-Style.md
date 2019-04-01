@@ -35,7 +35,9 @@ C'est la que ça devient un peu plus compliqué mais loin d'être impossible. Un
 
 #### Puissance Réelle respéctée
 
+Favoriser le meilleur prix est une chose. Mais obtenir une Puissance du Style Réelle en est une autre. Quand on retire la veste, nous n'avons pas de grandes pertes concernant l'harmonie visuelle de la tenue. Merci le polo rose. Sans oublier le peu d'accessoire qui est à noter.
 
+![heattoschoolpolo]({{site.url}}/{{site.baseurl}}img/heattoschoolpolo.jpeg)
 
 La pièce la plus chère : la pièce forte, la pièce forte, la pièce la plus grosse, qui tient le plus chaud, la plus originale. Vous pouvez et devez favoriser un de ces critères pour commencer à vous démarquer sur vos tenues. En général les basiques et les vêtements à couleur unique ne font pas parti de la pièce la plus chère d'une tenue.
 
