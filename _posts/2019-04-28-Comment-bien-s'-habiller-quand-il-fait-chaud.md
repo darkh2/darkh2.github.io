@@ -31,7 +31,7 @@ Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appe
 **TOTAL : 59 EUROS.**
 
 S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).  
-En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
+En d'autres termes, on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
 
 ### L'assemblage selon Hyke
 
@@ -42,7 +42,7 @@ Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles :
 * Deux pièces fortes maximum en supposant que s'il y en a deux, qu'elles ne piquent pas trop les yeux.
 * Interdiction d'avoir trois basiques, ou trois basiques améliorés. 
 * S'il y a deux basiques, l'accessoirisation est obligatoire.
-* Oser au moins une couleur vive parmi les trois éléments (rouge, rose, jaune, vert, orange ...).
+* Oser au moins une couleur vive (rouge, rose, jaune, vert, orange ...) parmi les trois éléments.
 * Accessoiriser le mieux possible.
 * BONUS : appliquer [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style) (cette règle est à appliquer si vous voulez dépenser le moins possible).
 
