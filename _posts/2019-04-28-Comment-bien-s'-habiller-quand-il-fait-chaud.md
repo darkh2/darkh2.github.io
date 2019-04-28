@@ -2,7 +2,7 @@
 published: false
 layout: post
 date: 2019-04-28T00:00:00.000Z
-categories: articles
+categories: articles crevard-style
 author_slug: hyke
 feature_image: blackfont.png
 ---
@@ -17,7 +17,17 @@ En été, ou quand il fait chaud, cela devient un peu plus limité concernant l'
 
 ### Les basiques améliorés 
 
-J'espère que vous savez d'ores-et-déjà ce qu'est un basique. Ce dernier peut être une chemise blanche, un jean, des baskets blanches... Quand il est amélioré c'est qu'il possède une touche en plus qui le rend plus qu'un basique classique. Par exemple, un t-shirt blanc mais possédant un col ou des finitions avec des motifs. Ou encore, un jean ayant des écussons cousus. Néanmoins, s'il possède plus qu'une simple petite valeur ajoutée c'est qu'il en devient une pièce forte. 
+J'espère que vous savez d'ores-et-déjà ce qu'est un basique. Ce dernier peut être une chemise blanche, un jean, des baskets blanches... Quand il est amélioré c'est qu'il possède une touche en plus qui le rend plus qu'un basique classique. Par exemple, un t-shirt blanc mais possédant un col ou des finitions avec des motifs. Ou encore, un jean ayant des écussons cousus. Néanmoins, s'il possède plus qu'une simple petite valeur ajoutée c'est qu'il en devient une pièce forte. On peut dire que c'est un intermédiaire entre un basique et une pièce forte.
+
+![cuba_1]({{site.url}}/{{site.baseurl}}img/cuba_1.jpg)
+
+Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appeler un basique amélioré. Le fait de se vêtir de ce genre de sape, augmente votre Puissance et tend à rendre votre style authentique. Le reste de la tenue possède un short rose clair et une paire de sneakers blanches à scratchs. Cette dernière peut également être considérée comme un basique amélioré. N'oublions pas d'accessoiriser la tenue quand il fait chaud. On poussera davantage la Puissance du Style. 
+
+* Polo trois couleurs : **8 euros** à Primark.
+* Short rose : **13 euros** à Primark.
+* Sneakers blanches scratchs : **25 euros** à Bershka (article acheté sur le site pendant la période du Black Friday).
+* Sacoche marron faux cuir : **8 euros** à Primark.
+* Lunettes roses : **5 euros** sur Aliexpress -> [Lien](https://fr.aliexpress.com/item/Ovale-Octagon-Jaune-Rouge-Ronde-Lunettes-de-Soleil-Pour-Femmes-Miroir-Hexagone-Petites-Lunettes-De-Soleil/32860541371.html?spm=a2g0s.9042311.0.0.27426c37BxkYyz).
 
 Donc quand vous devez vous vêtir et qu'il fait chaud, forcément vos choix se limitent contrairement aux choix de sapes en hiver. S'habiller qu'en basiques c'est bien au début de votre développement du style mais votre originalité sera limitée à force ainsi que votre puissance du style. C'est pour cela que vous allez devoir jouer sur les pièces fortes pour augmenter votre puissance. Et si vous possédez en plus des basiques améliorés alors la puissance n'en sera que décuplée. 
 
