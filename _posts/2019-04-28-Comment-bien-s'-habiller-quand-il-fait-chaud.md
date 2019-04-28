@@ -90,3 +90,5 @@ Il fallait bien un exemple avec une chemise quand même. Inutile de vous dire à
 Ici, les accessoires sont très discrets mais cela n'empêche pas d'avoir un style fort. Encore une fois, j'aimerais vous laisser le libre choix de ranger le t-shirt de cette tenue soit dans la catégorie pièce forte ou basique amélioré. Le pantalon est une pièce forte même si de nuit, les motifs restent discrets. Et oui, encore cette même paire ! Vous comprenez pourquoi je l'aime tant !
 
 J'espère que cet article vous aidera pleinement à développer votre style et vous faire sortir vos plus belles tenues lors des prochains beaux jours.
+
+![cuba_6]({{site.url}}/{{site.baseurl}}img/cuba_6.jpg)
