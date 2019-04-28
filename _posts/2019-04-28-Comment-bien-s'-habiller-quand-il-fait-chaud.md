@@ -85,7 +85,7 @@ Il fallait bien un exemple avec une chemise quand même. Inutile de vous dire à
 * T-shirt jaune : Non ! Je ne vous dirai pas le prix, mais il se trouve dans cet article : [Keep It 100 part. 2](http://www.crevardstyle.com/Keep-It-100-part-2).
 * Pantalon motif Prince de Galles : **20 euros** à Primark.
 * Sneakers : **18 euros** à Primark.  
-**TOTAL : ? **
+**TOTAL : ?**
 
 Ici, les accessoires sont très discrets mais cela n'empêche pas d'avoir un style fort. Encore une fois, j'aimerais vous laisser le libre choix de ranger le t-shirt de cette tenue soit dans la catégorie pièce forte ou basique amélioré. Le pantalon est une pièce forte même si de nuit, les motifs restent discrets. Et oui, encore cette même paire ! Vous comprenez pourquoi je l'aime tant !
 
