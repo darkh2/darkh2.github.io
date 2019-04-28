@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 date: 2019-04-28T00:00:00.000Z
 categories: articles crevard-style
@@ -48,7 +48,7 @@ Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles :
 
 ### Mise en pratique
 
-Plusieurs photos qui montrera l'application de ces règles 
+La théorie ne serait rien sans pratique ! Voici quatre tenues avec lesquelles j'applique pleinement ces règles ainsi que le prix et où je me suis procuré toutes ces fameuses sapes. 
 
 ![cuba_2]({{site.url}}/{{site.baseurl}}img/cuba_2.jpg)
 
