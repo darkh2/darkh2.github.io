@@ -44,11 +44,6 @@ Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles :
 * Oser au moins une couleur vive parmi les trois éléments (rose, jaune, vert, orange ...).
 * BONUS : appliquer [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style) (cette règle est à appliquer si vous voulez dépenser le moins possible).
 
-Si vous voulez faire des photos autant faire les choses bien. Parler des voyages. 
-Dans le cas où vous comptiez voyager, je me doute bien que vous allez prendre un nombre incalculable de photos. Si vous êtes dessus, ce serait dommage que vous ne soyez pas dans des tenues à forte Puissance de Style. 
-
-Efficience du style
-
 ### Quelques maillots de bain
 
 J'aimerais quand même vous inspirer sur les maillots de bain. Dîtes vous que vous serez forcément amené à faire tomber la chemise donc le maillot doit être soit la pièce forte de la tenue ou bien considéré comme un basique amélioré, et ne négligez pas votre tenue pendant que vous marcherez jusqu'à la plage.
