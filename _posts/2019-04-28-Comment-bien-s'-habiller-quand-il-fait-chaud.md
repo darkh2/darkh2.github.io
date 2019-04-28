@@ -17,11 +17,11 @@ En été, ou quand il fait chaud, cela devient un peu plus limité concernant l'
 
 ### Les basiques améliorés 
 
-J'espère que vous savez d'ores-et-déjà ce qu'est un basique. Ce dernier peut être une chemise blanche, un jean, des baskets blanches... Quand il est amélioré c'est qu'il possède une touche en plus qui le rend plus qu'un basique classique. Par exemple, un t-shirt blanc mais possédant un col ou des finitions avec des motifs. Ou encore, un jean ayant des écussons cousus. Néanmoins, s'il possède plus qu'une simple petite valeur ajoutée c'est qu'il en devient une pièce forte. On peut dire que c'est un intermédiaire entre un basique et une pièce forte.
+J'espère que vous savez d'ores-et-déjà ce qu'est un basique. Ce dernier peut être une chemise blanche, un jean, des baskets blanches... Quand il est amélioré c'est qu'il possède une touche en plus qui le rend plus qu'un basique classique. Par exemple, un t-shirt blanc mais possédant un col ou des finitions avec des motifs. Ou encore, un jean ayant des écussons cousus. Néanmoins, s'il possède plus qu'une simple petite valeur ajoutée c'est qu'il en devient une pièce forte.  
 
 ![cuba_1]({{site.url}}/{{site.baseurl}}img/cuba_1.jpg)
 
-Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appeler un basique amélioré. Le fait de se vêtir de ce genre de sape, augmente votre Puissance et tend à rendre votre style authentique. Le reste de la tenue possède un short rose clair et une paire de sneakers blanches à scratchs. Cette dernière peut également être considérée comme un basique amélioré. N'oublions pas d'accessoiriser la tenue quand il fait chaud. On poussera davantage la Puissance du Style. 
+Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appeler un basique amélioré. Le fait de se vêtir de ce genre de sape, augmente votre Puissance et tend à rendre votre style authentique. Le reste de la tenue possède un short rose clair et une paire de sneakers blanches à scratchs. Cette dernière peut également être considérée comme un basique amélioré. N'oublions pas d'accessoiriser la tenue quand il fait chaud. On poussera davantage la Puissance du Style.  
 
 * Polo trois couleurs : **8 euros** à Primark.
 * Short rose : **13 euros** à Primark.
@@ -29,15 +29,17 @@ Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appe
 * Sacoche marron faux cuir : **8 euros** à Primark.
 * Lunettes roses : **5 euros** sur Aliexpress -> [Lien](https://fr.aliexpress.com/item/Ovale-Octagon-Jaune-Rouge-Ronde-Lunettes-de-Soleil-Pour-Femmes-Miroir-Hexagone-Petites-Lunettes-De-Soleil/32860541371.html?spm=a2g0s.9042311.0.0.27426c37BxkYyz).
 
-Donc quand vous devez vous vêtir et qu'il fait chaud, forcément vos choix se limitent contrairement aux choix de sapes en hiver. S'habiller qu'en basiques c'est bien au début de votre développement du style mais votre originalité sera limitée à force ainsi que votre puissance du style. C'est pour cela que vous allez devoir jouer sur les pièces fortes pour augmenter votre puissance. Et si vous possédez en plus des basiques améliorés alors la puissance n'en sera que décuplée. 
-
-En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif
+S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre Puissance.  
+En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
 
 Si vous voulez faire des photos autant faire les choses bien. Parler des voyages. 
 Dans le cas où vous comptiez voyager, je me doute bien que vous allez prendre un nombre incalculable de photos. Si vous êtes dessus, ce serait dommage que vous ne soyez pas dans des tenues à forte Puissance de Style. 
 
 Efficience du style
 
+### Quelques maillots de bain
+
+J'aimerais quand même vous inspirer sur les maillots de bain. Dîtes vous que vous serez forcément amené à faire tomber la chemise donc le maillot doit être soit la pièce forte de la tenue ou bien considéré comme un basique amélioré, et ne négligez pas votre tenue pendant que vous marcherez jusqu'à la plage.
 Les maillots de bain. 4 pour 30 balles. 
 Voici un cas concret d'Efficience du Style. Ou devrais je dire d'achat. Voici quatre maillots de bains pour 30 euros. De quoi être totalement équipé en terme d'habits de plage sans dépenser beaucoup. 
 
