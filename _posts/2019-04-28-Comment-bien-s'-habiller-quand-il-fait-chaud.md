@@ -28,6 +28,7 @@ Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appe
 * Sneakers blanches scratchs : **25 euros** à Bershka (article acheté sur le site pendant la période du Black Friday).
 * Sacoche marron faux cuir : **8 euros** à Primark.
 * Lunettes roses : **5 euros** sur Aliexpress -> [Lien](https://fr.aliexpress.com/item/Ovale-Octagon-Jaune-Rouge-Ronde-Lunettes-de-Soleil-Pour-Femmes-Miroir-Hexagone-Petites-Lunettes-De-Soleil/32860541371.html?spm=a2g0s.9042311.0.0.27426c37BxkYyz).
+**TOTAL : 59 EUROS.**
 
 S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre Puissance.  
 En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
@@ -41,17 +42,33 @@ Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles :
 * Deux pièces fortes maximum en supposant que s'il y en a deux, qu'elles ne piquent pas trop les yeux.
 * Interdiction d'avoir trois basiques, ou trois basiques améliorés. 
 * S'il y a deux basiques, l'accessoirisation est obligatoire.
-* Oser au moins une couleur vive parmi les trois éléments (rose, jaune, vert, orange ...).
+* Oser au moins une couleur vive parmi les trois éléments (rouge, rose, jaune, vert, orange ...).
+* Accessoiriser le mieux possible.
 * BONUS : appliquer [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style) (cette règle est à appliquer si vous voulez dépenser le moins possible).
 
 ### Mise en pratique
 
 Plusieurs photos qui montrera l'application de ces règles 
 
-Quand j'ai su que j'allais partir pour quelques jours à Cuba, je me suis automatiquement demandé comment pourrais je être bien vêtu tout en étant à l'aise dans mes sapes et surtout parfaitement dans le thèmes de ces belles rues colorées que j'allais arpenter. 
+![cuba_2]({{site.url}}/{{site.baseurl}}img/cuba_2.jpg)
 
-Mettre photos de Cuba mettant en avant les basiques améliorés et comment combiner un certain nombre de couleurs. 
+* Chapeau customisé : **4 euros** à Primark. J'ai ajouté du tissu wax kente autour du chapeau pour encore augmenter l'authenticité.
+* Polo rouge motifs : **30 euros** sur un ancien site qui a malheureusement disparu, le site Rosegal.
+* Short blanc : **13 euros** à Primark.
+* Sneakers : **18 euros** à Primark.
+**TOTAL : 65 EUROS.**
 
-Les faux basiques améliorés. Ex tshirt blanc avec des écritures dessus. Montrer photo de l'article stylé en jogging. 
+***Efficience du Style respectée vu le prix. Le haut est une pièce forte, le bas est un basique, et les sneakers sont des basiques améliorés. Il y a au moins une couleur vive.***
+
+![cuba_3]({{site.url}}/{{site.baseurl}}img/cuba_3.jpg)
+
+* Lunettes de soleil : **8 euros** sur Aliexpress, mais les prix peuvent varier en fonction des remises appliquées ou non. -> [Lien](https://fr.aliexpress.com/item/XIU-Flip-Up-lunettes-de-soleil-polaris-es-classique-Steampunk-hommes-femmes-lunettes-de-soleil-en/32836531231.html?spm=a2g0s.9042311.0.0.27426c37ql3IxI).
+* Dashiki : **15 euros** qu'on peut trouver sur les quartiers de Château Rouge à Paris mais dans pas mal de booutiques africaines ou sur internet. J'en suis sûr qu'on peut le trouver moins cher.
+* Short blanc : **13 euros** à Primark.
+* Sneakers roses : **15 euros** chez Zara achetées en période de soldes d'été.
+* Sacoche marron faux cuir : **8 euros** à Primark.
+**TOTAL : 59 EUROS.**
+
+***On continue d'être Efficient avec cette tenue, bon je vous l'accorde cela est plus facile vu qu'il y a moins de sapes que pour des tenues d'hiver. La couleur vive est respectée pour les sneakers et le dashiki. Ce dernier est forcément une pièce forte. Le short, un basique. Et pour ce qui est des sneakers roses, à vous de juger. Pièce forte ou basique amélioré ?
 
 (article en cours d'élaboration...)
