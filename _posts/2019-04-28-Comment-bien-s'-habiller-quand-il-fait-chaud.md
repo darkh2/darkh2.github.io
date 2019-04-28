@@ -66,7 +66,7 @@ Efficience du Style respectée vu le prix. Le haut est une pièce forte, le bas 
 * Dashiki : **15 euros** qu'on peut trouver sur les quartiers de Château Rouge à Paris mais dans pas mal de booutiques africaines ou sur internet. J'en suis sûr qu'on peut le trouver moins cher.
 * Short blanc : **13 euros** à Primark.
 * Sneakers roses : **15 euros** chez Zara achetées en période de soldes d'été.
-* Sacoche marron faux cuir : **8 euros** à Primark.
+* Sacoche marron faux cuir : **8 euros** à Primark.  
 **TOTAL : 59 EUROS.**
 
 On continue d'être Efficient avec cette tenue, bon je vous l'accorde cela est plus facile vu qu'il y a moins de sapes que pour des tenues d'hiver. La couleur vive est respectée pour les sneakers et le dashiki. Ce dernier est forcément une pièce forte. Le short, un basique. Et pour ce qui est des sneakers roses, à vous de juger. Pièce forte ou basique amélioré ?
