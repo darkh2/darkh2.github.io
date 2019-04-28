@@ -38,17 +38,15 @@ Votre tenue possède trois éléments : le haut, le bas, et les pompes.
 Parmi les types de sapes nous avons : les basiques, les basiques améliorés, et les pièces fortes. Et éventuellement, les accessoires.
 Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles : 
 
-* Deux pièces fortes maximum en supposant que les deux ne piquent pas trop les yeux.
+* Deux pièces fortes maximum en supposant que s'il y en a deux, qu'elles ne piquent pas trop les yeux.
 * Interdiction d'avoir trois basiques, ou trois basiques améliorés. 
 * S'il y a deux basiques, l'accessoirisation est obligatoire.
 * Oser au moins une couleur vive parmi les trois éléments (rose, jaune, vert, orange ...).
 * BONUS : appliquer [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style) (cette règle est à appliquer si vous voulez dépenser le moins possible).
 
-### Quelques maillots de bain
+### Mise en pratique
 
-J'aimerais quand même vous inspirer sur les maillots de bain. Dîtes vous que vous serez forcément amené à faire tomber la chemise donc le maillot doit être soit la pièce forte de la tenue ou bien considéré comme un basique amélioré, et ne négligez pas votre tenue pendant que vous marcherez jusqu'à la plage.
-Les maillots de bain. 4 pour 30 balles. 
-Voici un cas concret d'Efficience du Style. Ou devrais je dire d'achat. Voici quatre maillots de bains pour 30 euros. De quoi être totalement équipé en terme d'habits de plage sans dépenser beaucoup. 
+Plusieurs photos qui montrera l'application de ces règles 
 
 Quand j'ai su que j'allais partir pour quelques jours à Cuba, je me suis automatiquement demandé comment pourrais je être bien vêtu tout en étant à l'aise dans mes sapes et surtout parfaitement dans le thèmes de ces belles rues colorées que j'allais arpenter. 
 
