@@ -75,7 +75,7 @@ On continue d'être Efficient avec cette tenue, bon je vous l'accorde cela est p
 
 * Chemise motifs : **11 euros** à Primark.
 * Pantalon bleu : je ne me souviens vraiment plus du prix, mais je l'avais acheté à Zara. Tout ce que je peux dire c'est que le prix ne dépassait pas les **30 euros**.
-* Sneakers : **18 euros** à Primark.
+* Sneakers : **18 euros** à Primark.  
 **TOTAL : 59 EUROS.**
 
 Il fallait bien un exemple avec une chemise quand même. Inutile de vous dire à quel type de sape correspond la chemise. Le pantalon est un basique. Et les sneakers que j'affectionne tellement sont des basiques améliorés. Les motifs de la chemise contribuent à colorer la tenue. Petite astuce au passage, la règle pour bien pour bien choisir une chemise à manches courtes, il faut qu'elle soit bien ceintrée au niveau de vos épaules ainsi que sur les bras. Surtout les bras !
