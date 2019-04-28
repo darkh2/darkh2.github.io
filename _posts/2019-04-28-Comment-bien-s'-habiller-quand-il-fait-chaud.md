@@ -30,7 +30,7 @@ Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appe
 * Lunettes roses : **5 euros** sur Aliexpress -> [Lien](https://fr.aliexpress.com/item/Ovale-Octagon-Jaune-Rouge-Ronde-Lunettes-de-Soleil-Pour-Femmes-Miroir-Hexagone-Petites-Lunettes-De-Soleil/32860541371.html?spm=a2g0s.9042311.0.0.27426c37BxkYyz).  
 **TOTAL : 59 EUROS.**
 
-S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre Puissance.  
+S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).  
 En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
 
 ### L'assemblage selon Hyke
