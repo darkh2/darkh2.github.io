@@ -32,6 +32,18 @@ Le polo possède trois couleurs mais il reste simple, voilà ce que je peux appe
 S'habiller qu'en basiques, c'est bien au début de votre développement du style, mais en terme d'originalité, vous serez limité. C'est pour cela que vous allez devoir jouer entre autres sur les basiques améliorés et pièces fortes pour augmenter votre Puissance.  
 En d'autres termes on peut dire qu'un basique amélioré est une pièce forte mais limitée ou amoindrie. Pourquoi limitée ? Car elle reste un basique au final. Bien entendu, ce que je partage est ma vision du style. Je ne prétends pas posséder la vérité. Tout est relatif...
 
+### L'assemblage selon Hyke
+
+Votre tenue possède trois éléments : le haut, le bas, et les pompes.  
+Parmi les types de sapes nous avons : les basiques, les basiques améliorés, et les pièces fortes. Et éventuellement, les accessoires.
+Pour avoir une tenue stylée et authentique, vous devrez respecter ces règles : 
+
+* Deux pièces fortes maximum en supposant que les deux ne piquent pas trop les yeux.
+* Interdiction d'avoir trois basiques, ou trois basiques améliorés. 
+* S'il y a deux basiques, l'accessoirisation est obligatoire.
+* Oser au moins une couleur vive parmi les trois éléments (rose, jaune, vert, orange ...).
+* BONUS : appliquer [l'Efficience du Style](http://www.crevardstyle.com/L'Efficience-du-Style) (cette règle est à appliquer si vous voulez dépenser le moins possible).
+
 Si vous voulez faire des photos autant faire les choses bien. Parler des voyages. 
 Dans le cas où vous comptiez voyager, je me doute bien que vous allez prendre un nombre incalculable de photos. Si vous êtes dessus, ce serait dommage que vous ne soyez pas dans des tenues à forte Puissance de Style. 
 
