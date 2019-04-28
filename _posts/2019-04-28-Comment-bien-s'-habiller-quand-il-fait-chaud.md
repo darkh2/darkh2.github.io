@@ -4,7 +4,7 @@ layout: post
 date: 2019-04-28T00:00:00.000Z
 categories: articles crevard-style
 author_slug: hyke
-feature_image: blackfont.png
+feature_image: cuba.jpg
 ---
 ## Comment bien s'habiller quand il fait chaud ? (Cuba inspiration)
 
@@ -69,6 +69,23 @@ Plusieurs photos qui montrera l'application de ces règles
 * Sacoche marron faux cuir : **8 euros** à Primark.
 **TOTAL : 59 EUROS.**
 
-***On continue d'être Efficient avec cette tenue, bon je vous l'accorde cela est plus facile vu qu'il y a moins de sapes que pour des tenues d'hiver. La couleur vive est respectée pour les sneakers et le dashiki. Ce dernier est forcément une pièce forte. Le short, un basique. Et pour ce qui est des sneakers roses, à vous de juger. Pièce forte ou basique amélioré ?
+***On continue d'être Efficient avec cette tenue, bon je vous l'accorde cela est plus facile vu qu'il y a moins de sapes que pour des tenues d'hiver. La couleur vive est respectée pour les sneakers et le dashiki. Ce dernier est forcément une pièce forte. Le short, un basique. Et pour ce qui est des sneakers roses, à vous de juger. Pièce forte ou basique amélioré ?***
+
+![cuba_4]({{site.url}}/{{site.baseurl}}img/cuba_4.jpg)
+
+* Chemise motifs : **11 euros** à Primark.
+* Pantalon bleu : je ne me souviens vraiment plus du prix, mais je l'avais acheté à Zara. Tout ce que je peux dire c'est que le prix ne dépassait pas les **30 euros**.
+* Sneakers : **18 euros** à Primark.
+**TOTAL : 59 EUROS.**
+
+***Il fallait bien un exemple avec une chemise quand même. Inutile de vous dire à quel type de sape correspond la chemise. Le pantalon est un basique. Et les sneakers que j'affectionne tellement sont des basiques améliorés. Les motifs de la chemise contribuent à colorer la tenue. Petite astuce au passage, la règle pour bien pour bien choisir une chemise à manches courtes, il faut qu'elle soit bien ceintrée au niveau de vos épaules ainsi que sur les bras. Surtout les bras !***
+
+![cuba_5]({{site.url}}/{{site.baseurl}}img/cuba_5.jpg)
+
+* T-shirt jaune : Non ! Je ne vous dirai pas le prix, mais il se trouve dans cet article : [Keep It 100 part. 2](http://www.crevardstyle.com/Keep-It-100-part-2).
+* Pantalon motif Prince de Galles : **20 euros** à Primark.
+* Sneakers : **18 euros** à Primark.
+
+***Ici, les accessoires sont très discrets mais cela n'empêche pas d'avoir un style fort. Encore une fois, j'aimerais vous laisser le libre choix de ranger le t-shirt de cette tenue soit dans la catégorie pièce forte ou basique amélioré. Le pantalon est une pièce forte même si de nuit, les motifs restent discrets. Et oui, encore cette même paire ! Vous comprenez pourquoi je l'aime tant !
 
 (article en cours d'élaboration...)
