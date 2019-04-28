@@ -55,7 +55,7 @@ La théorie ne serait rien sans pratique ! Voici quatre tenues avec lesquelles j
 * Chapeau customisé : **4 euros** à Primark. J'ai ajouté du tissu wax kente autour du chapeau pour encore augmenter l'authenticité.
 * Polo rouge motifs : **30 euros** sur un ancien site qui a malheureusement disparu, le site Rosegal.
 * Short blanc : **13 euros** à Primark.
-* Sneakers : **18 euros** à Primark.
+* Sneakers : **18 euros** à Primark.  
 **TOTAL : 65 EUROS.**
 
 Efficience du Style respectée vu le prix. Le haut est une pièce forte, le bas est un basique, et les sneakers sont des basiques améliorés. Il y a au moins une couleur vive.
