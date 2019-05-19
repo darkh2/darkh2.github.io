@@ -10,7 +10,11 @@ feature_image: blackfont.png
 
 (article en cours d'élaboration)
 
-Avant toute chose : partez du principe que si vous ne trouvez pas la perle rare pendant les soldes ou tout simplement pas votre taille ou encore un bon plan disparaître sous vos yeux, dites vous que ce n'est rien. Vous aurez toujours d'autres occasions de faire de bonnes affaires. Puis vous ne dépensez pas. Et même dans le pire des cas, puisez le potentiel maximal de votre penderie en continuant de combiner vos plus belles tenues en attendant que de bons plans se présentent. Voilà qui vous permettra de prendre plus de plaisir à chiner les bons plans et vous dire qu'au final vous serez gagnant. 
+A environ un mois des soldes d'été à l'instant où je vous ponds cet article, il est très important que vous puissiez anticiper les fameuses périodes de réductions enflammées (ou non), afin d'être sûrs d'y trouver votre compte. Si vous voulez vivre ce qu'est le Destin de la Sape, je vous encourage vivement à poursuivre ces lignes...
+
+### Avant toute chose !
+
+Partez du principe que si vous ne trouvez pas la perle rare pendant les soldes ou tout simplement pas votre taille ou encore un bon plan disparaître sous vos yeux, dites vous que ce n'est rien. Vous aurez toujours d'autres occasions de faire de bonnes affaires. Puis vous ne dépensez pas. Et même dans le pire des cas, puisez le potentiel maximal de votre penderie en continuant de combiner vos plus belles tenues en attendant que de bons plans se présentent. Voilà qui vous permettra de prendre plus de plaisir à chiner les bons plans et vous dire qu'au final vous serez gagnant. 
 
 1ere étape de quoi ai je vraiment besoin dans ma penderie ? Faire le point
 Prioriser les besoins. Faire une échelle de 1 à 3 ou 5 pour bien cibler l'importance de la nécessité de la sape en question. 
