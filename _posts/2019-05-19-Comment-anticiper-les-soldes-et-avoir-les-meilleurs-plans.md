@@ -8,13 +8,11 @@ feature_image: blackfont.png
 ---
 ## Comment anticiper les soldes et avoir les meilleurs plans ?
 
-(article en cours d'élaboration)
-
 A environ un mois des soldes d'été à l'instant où je vous ponds cet article, il est très important que vous puissiez anticiper les fameuses périodes de réductions enflammées (ou non), afin d'être sûrs d'y trouver votre compte. Certaines étapes sont nécéssaires à respecter. Si vous voulez vivre ce qu'est le Destin de la Sape*, je vous encourage vivement à poursuivre ces lignes...
 
 ### Avant toute chose !
 
-Partez du principe que si vous ne trouvez pas la perle rare pendant les soldes, ou tout simplement pas votre taille, ou encore un bon plan disparaître sous vos yeux, dites vous que ce n'est rien. Vous aurez toujours d'autres occasions de faire de bonnes affaires. Puis, vous ne dépensez pas. Et même dans le pire des cas, puisez le potentiel maximal de votre penderie en continuant de combiner vos plus belles tenues en attendant que de bons plans se présentent. Voilà qui vous permettra de prendre plus de plaisir à chiner les bons plans, et vous dire qu'au final, vous serez gagnant. 
+Partez du principe que si vous ne trouvez pas la perle rare pendant les soldes, ou tout simplement pas votre taille, ou encore un bon plan disparaître sous vos yeux, dites vous que ce n'est rien. Vous aurez toujours d'autres occasions de faire de bonnes affaires. Puis, vous ne dépensez pas. Et même dans le pire des cas, puisez le potentiel maximal de votre penderie en continuant de combiner vos plus belles tenues en attendant que de bons plans se présentent. Voilà qui vous permettra de prendre plus de plaisir à chiner les bons plans, et vous dire quoi qu'il arrive, vous serez toujours gagnant. 
 
 ### Etape 1 : De quoi ai-je vraiment besoin dans ma penderie ? Faire le point.
 
