@@ -40,6 +40,6 @@ Que se passe t il si je vois une sapé qui me plaît que je n'ai pas forcément 
 
 Jauger l'importance sur le coup. Imaginer vos sapes de la saison et avec quoi pourriez vous le combiner. Ou encore mieux, essayer la sape en question avec des sapes qui ressemblent à ceux que vous possédez déjà pour être encore plus sûr de l'élaboration de vos prochaines tenues. Ensuite concernant le prix prendre en compte votre budget, si c'est une pièce rare ou non, et si vous avez acheté tous ce dont vous avez besoin. Ce serait dommage de dépenser pour une pièce coup de cœur alors que ce dont vous avez besoin n'a toujours pas été acheté. Néanmoins vous pouvez toujours attendre les prochaines démarques mais à vos risques et périls. Au final dites vous que vous ne perdez rien. Il y aura toujours de belles occasions de faire de bons achats. Je sais de quoi je parle... 
 
-*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...).
+*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...). ET/OU Osmose hypothétique pouvant être créée grâce à la combinaison de l'Audace et de la Puissance du Style.
 
 (article en cours d'élaboration)
