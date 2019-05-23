@@ -31,11 +31,14 @@ Le réperage en boutiques permettra dans un premier temps d'essayer les articles
 
 ### Etape 4 : Soldes. 
 
-Le prix vaut-il le coup ? Plus la nécéssité du produit en question sera important, plus vous devrez être flexible sur le prix en respecatnt bien evidemment votre budget. Vous devrez également faire attention aux [pièges de la première démarque](http://www.crevardstyle.com/Soldes-,-les-pi%C3%A8ges-de-la-premi%C3%A8re-d%C3%A9marque).
+
+Soyez prêts
 L'avantage de ce moment sera que si vous avez bien appliqué les précédentes étapes, alors non-seulement vous aurez un prix convenable et un gain de temps non-négligeable. Pas besoin d'essayer, vous l'aurez déjà fait.
 Si des basiques font partie de vos besoins à acquérir, sachez que vous devrez impérativement être intransigeant sur le prix, surtout en période de soldes. Je ne veux voir aucun de vous acheter une paire de sneakers blanches à 50 euros ou une chemise à 30 euros. Pourquoi ? Ces produits se renouvellent tout le temps ! Il y en a en abondance ! Donc autant chercher le prix le plus avantageux, et si vous ratez une occasion, au final ce n'est absolument rien vu que vous en trouverez d'autres. En revanche, concernant un basique amélioré ou une pièce forte, cela sera une autre histoire. 
 
 ### Etape 5 : Improvisation. 
+
+Le prix vaut-il le coup ? Plus la nécéssité du produit en question sera important, plus vous devrez être flexible sur le prix en respecatnt bien evidemment votre budget. Vous devrez également faire attention aux [pièges de la première démarque](http://www.crevardstyle.com/Soldes-,-les-pi%C3%A8ges-de-la-premi%C3%A8re-d%C3%A9marque).
 
 Que se passe t il si je vois une sapé qui me plaît que je n'ai pas forcément besoin ? Destin de la Sape ? 
 
