@@ -31,8 +31,10 @@ Le réperage en boutiques permettra dans un premier temps d'essayer les articles
 
 ### Etape 4 : Soldes. 
 
-Est ce que le prix vaut le coup ? Quelles décisions prendre en fonction de la liste de besoins de la 1ere étape et guider vers l'article sur la 1ere démarque. 
+Le prix vaut-il le coup ? Plus la nécéssité du produit en question sera important, plus vous devrez être flexible sur le prix en respecatnt bien evidemment votre budget. Vous devrez également faire attention aux [pièges de la première démarque](http://www.crevardstyle.com/Soldes-,-les-pi%C3%A8ges-de-la-premi%C3%A8re-d%C3%A9marque).
 Si on a un score élevé en terme de nécessité et que cela n'est pas un basique, alors on pourra se permettre d'y mettre un certain pécule. Moins le score d'importance sera élevé moins on lâchera des thunes dessus. Si la sape est un basique alors on tentera de l'avoir au prix le plus avantageux possible. Sachez que perdre un basique à bas prix n'est pas si grave. En revanche un basique amélioré ou une pièce forte peut être. 
+
+
 
 ### Etape 5 : Improvisation. 
 
