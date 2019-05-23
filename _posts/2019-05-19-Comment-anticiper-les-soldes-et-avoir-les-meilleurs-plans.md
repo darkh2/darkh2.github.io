@@ -27,7 +27,8 @@ Après avoir fait le point sur vos prochains achats, vous devrez partir à la qu
 
 ### Etape 3 : Repérage en vrai. 
 
-Le réperage en boutiques permettra dans un premier temps d'essayer les articles que vous aurez vu sur les sites, et par la même occasion
+Le réperage en boutiques permettra dans un premier temps d'essayer les articles que vous aurez vu sur les sites, et par la même occasion de peut-être faire une belle trouvaille. C'est en se perdant dans les rayons que l'on pourrait trouver chaussure à son pied (oh la la quelle blague de m**** ). Ne négligez pas les boutiques ne proposant pas des sites de shopping en ligne.
+
 Tous les articles repérés sur internet. On va devoir les voir les toucher les essayer pour voir si ces articles la vont être achetés au moment des soldes. De plus, vous pourrez faire du repérage sur ce que vous n'avez pas vu sur le net. Vous pourrez également anticiper les essayages pour éviter les longues files d'attente quand il y aura les soldes. Vous saurez ce qui vous ira avant l'heure. 
 
 ### Etape 4 : Soldes. 
