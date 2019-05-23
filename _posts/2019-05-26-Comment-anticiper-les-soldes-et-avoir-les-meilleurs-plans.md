@@ -31,9 +31,8 @@ Le réperage en boutiques permettra dans un premier temps d'essayer les articles
 
 ### Etape 4 : Soldes. 
 
-
-Soyez prêts
-L'avantage de ce moment sera que si vous avez bien appliqué les précédentes étapes, alors non-seulement vous aurez un prix convenable et un gain de temps non-négligeable. Pas besoin d'essayer, vous l'aurez déjà fait.
+Soyez prêts à faire les achats en ligne en fonction du repérage de l'étape 3. Sachez que pour la tenue de l'article [Keep It 100 part. 2](http://www.crevardstyle.com/Keep-It-100-part-2) (tenue à moins de 100 euros), j'ai totalement appliqué ce que je viens de vous cité. Je ne pouvais pas aller profiter des soldes en boutiques, alors j'ai tout pris sur le site en yant essayé les articles avant. J'ai donc réussi à obtenir une tenue à moins de 100 euros en anticipant et en essayant les sapes au préalable.
+L'avantage de ce moment sera que si vous avez bien appliqué les précédentes étapes, alors non-seulement vous aurez un prix convenable et un gain de temps non-négligeable.
 Si des basiques font partie de vos besoins à acquérir, sachez que vous devrez impérativement être intransigeant sur le prix, surtout en période de soldes. Je ne veux voir aucun de vous acheter une paire de sneakers blanches à 50 euros ou une chemise à 30 euros. Pourquoi ? Ces produits se renouvellent tout le temps ! Il y en a en abondance ! Donc autant chercher le prix le plus avantageux, et si vous ratez une occasion, au final ce n'est absolument rien vu que vous en trouverez d'autres. En revanche, concernant un basique amélioré ou une pièce forte, cela sera une autre histoire. 
 
 ### Etape 5 : Improvisation. 
