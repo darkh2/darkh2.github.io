@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-05-19T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -9,6 +9,8 @@ feature_image: blackfont.png
 ## Comment anticiper les soldes et avoir les meilleurs plans ?
 
 A environ un mois des soldes d'été à l'instant où je vous ponds cet article, il est très important que vous puissiez anticiper les fameuses périodes de réductions enflammées (ou non), afin d'être sûrs d'y trouver votre compte. Certaines étapes sont nécéssaires à respecter. Si vous voulez vivre ce qu'est le Destin de la Sape*, je vous encourage vivement à poursuivre ces lignes...
+
+*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...). ET/OU Osmose hypothétique pouvant être créée grâce à la combinaison de l'Audace et de la Puissance du Style.
 
 ### Avant toute chose !
 
@@ -21,6 +23,7 @@ Quelles saisons concerne les prochaines soldes ? Hiver ou été ? Regardez votre
 
 ### Etape 2 : Repérage sur internet. 
 
+Après avoir fait le point sur vos prochains achats, vous devrez partir à la quête des produits en question. 
 Regarder les chaînes de pap car c'est sur ces enseignes qu'il y aura des remises 
 
 ### Etape 3 : Repérage en vrai. 
@@ -38,6 +41,6 @@ Que se passe t il si je vois une sapé qui me plaît que je n'ai pas forcément 
 
 Jauger l'importance sur le coup. Imaginer vos sapes de la saison et avec quoi pourriez vous le combiner. Ou encore mieux, essayer la sape en question avec des sapes qui ressemblent à ceux que vous possédez déjà pour être encore plus sûr de l'élaboration de vos prochaines tenues. Ensuite concernant le prix prendre en compte votre budget, si c'est une pièce rare ou non, et si vous avez acheté tous ce dont vous avez besoin. Ce serait dommage de dépenser pour une pièce coup de cœur alors que ce dont vous avez besoin n'a toujours pas été acheté. Néanmoins vous pouvez toujours attendre les prochaines démarques mais à vos risques et périls. Au final dites vous que vous ne perdez rien. Il y aura toujours de belles occasions de faire de bons achats. Je sais de quoi je parle... 
 
-*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...). ET/OU Osmose hypothétique pouvant être créée grâce à la combinaison de l'Audace et de la Puissance du Style.
+
 
 (article en cours d'élaboration)
