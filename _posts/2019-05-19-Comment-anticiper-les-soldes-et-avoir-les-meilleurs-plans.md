@@ -18,16 +18,16 @@ Partez du principe que si vous ne trouvez pas la perle rare pendant les soldes, 
 
 ### Etape 1 : De quoi ai-je vraiment besoin dans ma penderie ? Faire le point.
 
-Priorisez vos besoins. Faîtes une échelle d'importance pour bien cibler la nécessité de la sape en question. 
+Priorisez vos besoins. Avant la période des soldes, faîtes une échelle d'importance pour bien cibler la nécessité de la sape en question. 
 Quelles saisons concerne les prochaines soldes ? Hiver ou été ? Regardez votre penderie, que vous faudra t-il pour la saison qui arrive ? Quelles sapes faut-il acheter ? Et évidemment, prévoir le budget sera fortement conseillé. Le but n'est pas de vous priver de partir en vacances ou de payer vos factures. Faîtes attention à ne pas trop chauffer la CB. Crevard Stylé certes, mais Crevard raisonnable également. 
 
 ### Etape 2 : Repérage sur internet. 
 
-Après avoir fait le point sur vos prochains achats, vous devrez partir à la quête des produits en question. 
-Regarder les chaînes de pap car c'est sur ces enseignes qu'il y aura des remises 
+Après avoir fait le point sur vos prochains achats, vous devrez partir à la quête des produits en question. Commencez par jeter un oeil sur les sites des chaînes de prêt-à-porter. Car vous pourrez effectuer un essayage au préalable. N'oubliez pas de visualiser les prix afin d'anticiper la remise possible qu'il pourrait y avoir (en supposant que ce ne sera pas des produits de la nouvelle collection et donc non soldés). Si la recherche sur les sites de chaînes de prêt-à-porter ne s'est pas avéré fructeux, il faudra tenter les sites comme Asos, en gros les sites ne proposant pas de boutiques en vrai. 
 
 ### Etape 3 : Repérage en vrai. 
 
+Le réperage en boutiques permettra dans un premier temps d'essayer les articles que vous aurez vu sur les sites, et par la même occasion
 Tous les articles repérés sur internet. On va devoir les voir les toucher les essayer pour voir si ces articles la vont être achetés au moment des soldes. De plus, vous pourrez faire du repérage sur ce que vous n'avez pas vu sur le net. Vous pourrez également anticiper les essayages pour éviter les longues files d'attente quand il y aura les soldes. Vous saurez ce qui vous ira avant l'heure. 
 
 ### Etape 4 : Soldes. 
