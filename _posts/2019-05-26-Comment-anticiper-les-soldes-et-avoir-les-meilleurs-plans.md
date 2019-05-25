@@ -1,10 +1,10 @@
 ---
-published: false
+published: true
 layout: post
-date: {}
+date: 2019-05-26T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: blackfont.png
+feature_image: anticipation.jpg
 ---
 ## Comment anticiper les soldes et avoir les meilleurs plans ?
 
