@@ -1,16 +1,16 @@
 ---
 published: false
 layout: post
-date: 2019-05-26T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
 ---
 ## Comment anticiper les soldes et avoir les meilleurs plans ?
 
-A environ un mois des soldes d'été à l'instant où je vous ponds cet article, il est très important que vous puissiez anticiper les fameuses périodes de réductions enflammées (ou non), afin d'être sûrs d'y trouver votre compte. Certaines étapes sont nécéssaires à respecter. Si vous voulez vivre ce qu'est le Destin de la Sape*, je vous encourage vivement à poursuivre ces lignes...
+A environ un mois des soldes d'été à l'instant où je vous ponds cet article, il est très important que vous puissiez anticiper les fameuses périodes de réductions enflammées (ou pas), afin d'être sûrs d'y trouver votre compte. Certaines étapes sont nécéssaires à respecter. Si vous voulez vivre ce qu'est le Destin de la Sape*, je vous encourage vivement à poursuivre ces lignes...
 
-*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...). ET/OU Osmose hypothétique pouvant être créée grâce à la combinaison de l'Audace et de la Puissance du Style.
+*Destin de la Sape : événement se produisant lors de l'acquisition d'un nouveau vêtement grâce à la favorisation de toutes les circonstances (lieu, moment, besoin, prix ...). ET/OU Osmose hypothétique pouvant être créée grâce à la combinaison de l'Audace et de la [Puissance du Style](http://www.crevardstyle.com/La-Puissance-du-Style).
 
 ### Avant toute chose !
 
