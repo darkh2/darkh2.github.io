@@ -8,7 +8,9 @@ feature_image: blackfont.png
 ---
 ## Comment le style influe sur le développement personnel ?
 
-A. Le commencement, dynamique d'avancée. 
+
+
+### Le commencement et dynamique d'avancée. 
 B. Les Brèches 
 C. Le développement personnel : en perpétuelle remise en question 
 D. Les Brèches de la Brèche et les Six Coups d’Avance 
@@ -46,3 +48,7 @@ Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories d
 
 E : 
 Cas pratique lors des voyages dans lequel on peut repousser ses limites. Grâce aux réseaux sociaux quand on veut développer son style on pense également à prendre certains clichés de nos tenues, il en va de Brèches concernant la photographie et tenter de faire les plus belles photos possibles et quand on voyage il y a encore plus de belles occasions de faire de belles photos inédites et en l'occurrence d'avoir également une belle tenue pour l'occasion. Voilà où les Brèches peuvent mener par exemple.
+
+Le lifestyle, le DD influe sur le quotidien et donc le lifestyle. On a envie de voyager etc... Avoir une vie meilleure 
+Une des meilleures manières de se développer tout en kiffant est de s'enrichir d'expérience, d'être dans des situations où l'on se surpasse. 
+Parler de la place de l'argent dans tout ça. L'argent est important car il est un outil mais la vraie richesse réside dans ce que l'on va vivre et apprendre pendant le laps de temps que l'on fera partie de ce monde... 
