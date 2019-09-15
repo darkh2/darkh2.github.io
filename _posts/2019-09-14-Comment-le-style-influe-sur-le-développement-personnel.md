@@ -8,18 +8,22 @@ feature_image: blackfont.png
 ---
 ## Comment le style influe sur le développement personnel ?
 
+À chaque moment où l'on s'habille ou se déshabille pour se changer, on crée avec notre corps, cet investissement qui permet de nous mettre en valeur. 
 On y vient. J'aime et j'aimerai toujours discuter du style et en particulier celui de l'homme mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
 
 ### Le commencement et dynamique d'avancée
 
-Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller et à mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour. 
+Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour. 
 
-Pourquoi devenez vous meilleur chaque jour ? Car il y a cette volonté de faire bien. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence chercher la tenue appropriée du jour. 
-Et à partir de cette fameuse quête, cela peut partir sur d'autres aspects. 
-
-Cela crée donc une ou plusieurs Brèches. Et cela ouvre des portes à d'autres horizons et une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde. 
+Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence chercher la tenue appropriée du jour. Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
+Et à partir de cette fameuse quête, on peut partir sur d'autres aspects. 
+ 
 
 ### Les Brèches
+
+*Brèche (selon Hyke) : ouverture spontanée se créant lors d’un développement d’un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d’une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.*
+
+Cela crée donc une ou plusieurs Brèches. Et cela ouvre des portes à d'autres horizons et une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde.
 
 Réunir toutes les activités pouvant être effectuées concernant le style et entre autres pour le blog pour mettre en valeur les Brèches. 
 
