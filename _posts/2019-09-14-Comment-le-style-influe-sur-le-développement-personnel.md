@@ -29,7 +29,7 @@ Réunir toutes les activités pouvant être effectuées concernant le style et e
 
 Le concept du Crevard Stylé apporte une double compétence. La première dans l'habillement et la seconde l'économie. C'est à partir de chacune de ces compétences que l'on va créer ou aboutir spontanément à des Brèches. 
 
-Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées de nouveaux horizons qui n'auraient jamais existé si l'on avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peut être triviale quand on se focus uniquement sur les Brèches potentielles.
+Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées de nouveaux horizons qui n'auraient jamais existé si l'on avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peut être triviale quand on se focus uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brches potentielles.
 
 ### Le développement personnel : en perpétuelle remise en question 
 
@@ -50,6 +50,4 @@ Cas pratique lors des voyages dans lequel on peut repousser ses limites. Grâce 
 ### Les Brèches de la Brèche et les Six Coups d’Avance
 
 À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes outfits, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept et il en fut un. 
-Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance. 
-
-
+Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance.
