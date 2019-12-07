@@ -52,3 +52,14 @@ Cas pratique lors des voyages dans lequel on peut repousser ses limites. Grâce 
 
 À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes outfits, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept et il en fut un. 
 Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance.
+
+Quelles leçons en tirer ? 
+Il n'y a pas de secret. Seul le travail paye. Ce n'est pas en restant les bras croisés que de bonnes choses vont arriver, cette avancée avec ses Brèches se sont faites grâce aux actions menées. 
+
+Chaque jour tu crée cet xp afin d'être expérimenté dans ton domaine et c'est ce qui permet d'aller loin et d'ouvrir les potentiels Brèches 
+
+Tout ça pour vous dire qu'il ne faut pas vous arrêter de vous développer. Si mes recherches sur le Style m'ont conduit à vous parler de développement personnel ce n'est pas pour rien. Car j'essaie toujours d' en savoir plus sur le Style, moi même, la vie etc... On s'optimise comme on peut afin de tendre à avoir Six Coups d’Avance... 
+
+Parler du mauvais combat à la fin. 
+
+Le but n'étant pas de justement ne pas porter de la marque mais faire en sorte que cela soit beau et que ça nous plaise tout en restant à l'aise dans nos baskets. Le reste est du non maîtrisable. On se cultivé un état d'esprit à travers une façon de se vêtir mais on élabore pas une tenue pour un but qui au final nous ne maîtrisons pas tout... 
