@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-12-07T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -9,7 +9,7 @@ feature_image: blackfont.png
 ## Comment le style influe sur le développement personnel ?
 
 À chaque moment où l'on s'habille ou se déshabille pour se changer, on crée avec notre corps, cet investissement qui permet de nous mettre en valeur. 
-On y vient. J'aime et j'aimerai toujours discuter du style et en particulier celui de l'homme mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
+J'aime et j'aimerai toujours discuter du style et en particulier celui de l'homme mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
 
 ### Le commencement et dynamique d'avancée
 
