@@ -9,21 +9,22 @@ feature_image: blackfont.png
 ## Comment le style influe sur le développement personnel ?
 
 À chaque moment où l'on s'habille ou se déshabille pour se changer, on crée avec notre corps, cet investissement qui permet de nous mettre en valeur. 
-J'aime et j'aimerai toujours discuter du style et en particulier celui de l'homme mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
+J'aime et j'aimerai toujours discuter du style, et en particulier celui de l'homme, mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
 
 ### Le commencement et dynamique d'avancée
 
 Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour. 
 
-Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence chercher la tenue appropriée du jour. Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
+Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour. On a également une évolution de ces tenues jour après jour, vous êtes dans une dynamique d'avancée.
+Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
 Et à partir de cette fameuse quête, on peut partir sur d'autres aspects. 
  
 
-### Les Brèches
+#### Les Brèches
 
 *Brèche (selon Hyke) : ouverture spontanée se créant lors d’un développement d’un domaine vers un autre plus ou moins lié. Une Brèche peut également apparaître lors d’une avancée, et provoquer ainsi une ouverture vers une autre destination ou opportunité.*
 
-Cela crée donc une ou plusieurs Brèches. Et cela ouvre des portes à d'autres horizons et une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde.
+Cela crée donc une ou plusieurs Brèches qui ouvre des portes à d'autres horizons. Une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde.
 
 Réunir toutes les activités pouvant être effectuées concernant le style et entre autres pour le blog pour mettre en valeur les Brèches. 
 
@@ -37,7 +38,7 @@ Le style doit refléter un maximum la personnalité et l'état d'esprit tout en 
 
 Certains articles du site, à vrai dire tous les articles, ont une valeur ajoutée sur le développement personnel. Mais ceux qui entrent plus dans le vif du sujet sont liés contrairement à ce que l'on pourrait croire au style et au développement de celui ci. 
 
-Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit on pas que le savoir est une arme ?
+Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le regard des gens. Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit on pas que le savoir est une arme ?
 
 Le lifestyle, le DD influe sur le quotidien et donc le lifestyle. On a envie de voyager etc... Avoir une vie meilleure 
 Une des meilleures manières de se développer tout en kiffant est de s'enrichir d'expérience, d'être dans des situations où l'on se surpasse. 
