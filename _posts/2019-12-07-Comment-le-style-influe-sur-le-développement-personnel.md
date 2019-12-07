@@ -18,6 +18,7 @@ Comme vous le savez, le développement du style est une sous branche du dévelop
 Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour. On a également une évolution de ces tenues jour après jour, vous êtes dans une dynamique d'avancée.
 Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
 Et à partir de cette fameuse quête, on peut partir sur d'autres aspects. 
+Chaque jour l'expérience acquise permet de déboucher sur de potentielles Breèches.
  
 
 #### Les Brèches
