@@ -11,14 +11,14 @@ feature_image: dp.jpg
 À chaque moment où l'on s'habille, on crée avec notre corps, cet investissement qui permet de nous mettre en valeur. 
 J'aime et j'aimerai toujours discuter du style, et en particulier celui de l'homme, mais ce qui me passionne vraiment c'est de discuter de la capacité de l'être humain à devenir meilleur. En quoi le développement du style influe sur le développement global ? 
 
-### Le commencement et dynamique d'avancée
+### Le commencement et la dynamique d'avancée
 
-Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour. 
-
-Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour. On a également une évolution de ces tenues jour après jour, vous êtes dans une dynamique d'avancée.
+Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour.  
+Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans celle-çi, réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour.  
+On a également une évolution de ces tenues jour après jour : vous êtes dans une dynamique d'avancée.
 Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
 Et à partir de cette fameuse quête, on peut partir sur d'autres aspects. 
-Chaque jour l'expérience acquise permet de déboucher sur de potentielles Brèches.
+Chaque jour, l'expérience acquise permet de déboucher sur de potentielles Brèches.
  
 
 #### Les Brèches
@@ -27,11 +27,13 @@ Chaque jour l'expérience acquise permet de déboucher sur de potentielles Brèc
 
 Cela crée donc une ou plusieurs Brèches qui ouvre des portes à d'autres horizons. Une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde.
 
-Réunir toutes les activités pouvant être effectuées concernant le style et entre autres pour le blog pour mettre en valeur les Brèches. 
-
 Le concept du Crevard Stylé apporte une double compétence (mettre lien sur la multicompétence). La première dans l'habillement et la seconde l'économie. C'est à partir de chacune de ces compétences que l'on va créer ou aboutir spontanément à des Brèches. 
+- Brèches potentielles sur l'habillement : développement physique, ouverture d'esprit, création de vêtements etc...
+- Brèches potentielles sur l'économie : économie dans d'autres domaines, investissements, dynamiques sociales etc...
 
-Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées de nouveaux horizons qui n'auraient jamais existé si l'on avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peuvent être triviales quand on se focalise uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brches potentielles, et donc déboucher sur quelque chose de meilleur. D'où l'expression "c'est un mal pour un bien".
+Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées et de nouveaux horizons qui n'auraient jamais existé si l'on n'avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peuvent être triviales quand on se focalise uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brches potentielles, et donc déboucher sur quelque chose de meilleur. D'où l'expression "c'est un mal pour un bien".
+
+La notion sur laquelle le style influe sur le développement personnel est donc bien entendu celle des Brèches.
 
 ### Le développement personnel : en perpétuelle remise en question 
 
