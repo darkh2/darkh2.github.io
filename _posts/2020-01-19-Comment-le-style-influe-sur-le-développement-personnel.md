@@ -13,7 +13,7 @@ J'aime et j'aimerai toujours discuter du style, et en particulier celui de l'hom
 
 ### Le commencement et la dynamique d'avancée
 
-Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur que la veille chaque jour.  
+Comme vous le savez, le développement du style est une sous branche du développement personnel. À partir du moment où vous cherchez à mieux vous habiller, mieux vous mettre en valeur, vous devenez meilleur chaque jour.  
 Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans celle-çi, réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour.  
 On a également une évolution de ces tenues jour après jour : vous êtes dans une dynamique d'avancée.
 Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
