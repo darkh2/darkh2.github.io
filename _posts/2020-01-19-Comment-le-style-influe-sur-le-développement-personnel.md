@@ -37,7 +37,7 @@ L'aspect sur lequel le style influe sur le développement personnel, est donc bi
 
 ### Le développement personnel : en perpétuelle remise en question 
 
-Nous avons tous à apporter dans ce monde. Oui, même vous qui lisez ces lignes pensant peut-être que vous ne servez à rien dans la vie. Et bien non, votre valeur ajoutée se situe dans votre développement personnel. Dans ce cas de figure, il part du développement du style, mais il peut bien partir d'un autre domaine. De plus, même après avoir provoqué des Brèches, cela ne s'arrête pas là. Vous devrez encore et encore vous enrichir de nouvelles expériences afin de repousser des limites et marquer l'histoire pendant le laps de temps auquel votre coeur va battre.
+Nous avons tous à apporter dans ce monde. Oui, même vous qui lisez ces lignes pensant peut-être que vous ne servez à rien dans la vie. Et bien non, votre valeur ajoutée se situe dans votre développement personnel. Dans ce cas de figure, il part du développement du style, mais il peut tout à fait bien partir d'un autre domaine. Chacun sa destinée. De plus, même après avoir provoqué des Brèches, cela ne s'arrête pas là. Vous devrez encore et encore vous enrichir de nouvelles expériences afin de repousser des limites et marquer l'histoire pendant le laps de temps auquel votre coeur va battre.
 
 Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le [regard des gens](http://www.crevardstyle.com/Le-regard-des-autres-sur-votre-style). Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit-on pas que le savoir est une arme ?
 
