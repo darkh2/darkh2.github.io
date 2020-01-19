@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-12-07T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -18,7 +18,7 @@ Comme vous le savez, le développement du style est une sous branche du dévelop
 Pourquoi devenez-vous meilleur chaque jour ? Car il y a cette volonté de bien faire. Et dans cette volonté réside cette quête de l'information. Chercher à savoir ce qui sera le mieux. En l'occurrence, chercher la tenue appropriée du jour. On a également une évolution de ces tenues jour après jour, vous êtes dans une dynamique d'avancée.
 Il y a ce développement de cette capacité à faire de meilleurs choix vestimentaires.
 Et à partir de cette fameuse quête, on peut partir sur d'autres aspects. 
-Chaque jour l'expérience acquise permet de déboucher sur de potentielles Breèches.
+Chaque jour l'expérience acquise permet de déboucher sur de potentielles Brèches.
  
 
 #### Les Brèches
@@ -31,13 +31,13 @@ Réunir toutes les activités pouvant être effectuées concernant le style et e
 
 Le concept du Crevard Stylé apporte une double compétence (mettre lien sur la multicompétence). La première dans l'habillement et la seconde l'économie. C'est à partir de chacune de ces compétences que l'on va créer ou aboutir spontanément à des Brèches. 
 
-Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées de nouveaux horizons qui n'auraient jamais existé si l'on avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peut être triviale quand on se focus uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brches potentielles.
+Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées de nouveaux horizons qui n'auraient jamais existé si l'on avait jamais été dans cette dynamique d'avancée. Donc dans la notion d'échec et de réussite peuvent être triviales quand on se focalise uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brches potentielles, et donc déboucher sur quelque chose de meilleur. D'où l'expression "c'est un mal pour un bien".
 
 ### Le développement personnel : en perpétuelle remise en question 
 
 Le style doit refléter un maximum la personnalité et l'état d'esprit tout en combinant le comportement et ce que va dégager le porteur. 
 
-Certains articles du site, à vrai dire tous les articles, ont une valeur ajoutée sur le développement personnel. Mais ceux qui entrent plus dans le vif du sujet sont liés contrairement à ce que l'on pourrait croire au style et au développement de celui ci. 
+Une majeure partie des articles de ce site, ont une valeur ajoutée sur le développement personnel. Mais ceux qui entrent plus dans le vif du sujet sont liés au style et au développement de celui-ci. 
 
 Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le regard des gens. Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit on pas que le savoir est une arme ?
 
@@ -51,16 +51,16 @@ Cas pratique lors des voyages dans lequel on peut repousser ses limites. Grâce 
 
 ### Les Brèches de la Brèche et les Six Coups d’Avance
 
-À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes outfits, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept et il en fut un. 
-Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance.
+À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes tenues, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept et il en fût un. 
+Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance (Instagram : @sixmoveslead).
 
 Quelles leçons en tirer ? 
 Il n'y a pas de secret. Seul le travail paye. Ce n'est pas en restant les bras croisés que de bonnes choses vont arriver, cette avancée avec ses Brèches se sont faites grâce aux actions menées. 
 
 Chaque jour tu crée cet xp afin d'être expérimenté dans ton domaine et c'est ce qui permet d'aller loin et d'ouvrir les potentiels Brèches 
 
-Tout ça pour vous dire qu'il ne faut pas vous arrêter de vous développer. Si mes recherches sur le Style m'ont conduit à vous parler de développement personnel ce n'est pas pour rien. Car j'essaie toujours d' en savoir plus sur le Style, moi même, la vie etc... On s'optimise comme on peut afin de tendre à avoir Six Coups d’Avance... 
+Tout ça pour vous dire qu'il ne faut pas vous arrêter de vous développer. Si mes recherches sur le Style m'ont conduit à vous parler de développement personnel dans son ensemble, ce n'est pas pour rien. Car j'essaie toujours d' en savoir plus sur le Style, moi même, la vie etc... On s'optimise comme on peut afin de tendre à avoir Six Coups d’Avance... 
 
 Parler du mauvais combat à la fin. 
 
-Le but n'étant pas de justement ne pas porter de la marque mais faire en sorte que cela soit beau et que ça nous plaise tout en restant à l'aise dans nos baskets. Le reste est du non maîtrisable. On se cultivé un état d'esprit à travers une façon de se vêtir mais on élabore pas une tenue pour un but qui au final nous ne maîtrisons pas tout... 
+Le but n'étant pas de justement ne pas porter de la marque mais faire en sorte que cela soit beau et que ça nous plaise tout en restant à l'aise dans nos baskets. Le reste est du non maîtrisable. On se cultivé un état d'esprit à travers une façon de se vêtir mais on élabore pas une tenue pour un but qui au final nous ne maîtrisons pas tout...
