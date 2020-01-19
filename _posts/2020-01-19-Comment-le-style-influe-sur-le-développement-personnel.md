@@ -33,7 +33,7 @@ Le concept du Crevard Stylé apporte une [double compétence](http://www.crevard
 
 Les Brèches peuvent être de nouveaux domaines, de nouvelles opportunités, il faut croire en elles. Car involontairement, elles sont sans doute à l'origine de nouvelles idées et de nouveaux horizons qui n'auraient jamais existé si l'on n'avait jamais été dans cette dynamique d'avancée. De ce fait, la notion d'échec/réussite peut être triviale quand on se focalise uniquement sur les Brèches potentielles. Ce que je veux dire, c'est que même à travers une situation pouvant être un véritable fiasco, on peut croire aux Brèches potentielles, et donc déboucher sur quelque chose de meilleur. D'où l'expression "c'est un mal pour un bien".
 
-La notion sur laquelle le style influe sur le développement personnel est donc bien entendu celle des Brèches.
+L'aspect sur lequel le style influe sur le développement personnel, est donc bien entendu celui des Brèches.
 
 ### Le développement personnel : en perpétuelle remise en question 
 
