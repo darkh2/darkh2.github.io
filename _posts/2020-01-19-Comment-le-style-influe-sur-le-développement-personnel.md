@@ -37,23 +37,17 @@ La notion sur laquelle le style influe sur le développement personnel est donc 
 
 ### Le développement personnel : en perpétuelle remise en question 
 
-Nous avons tous à apporter dans ce monde, oui même toi qui lis ces lignes pensant que tu ne sers à rien dans la vie. Et bien non, ta valeur ajoutée se situe dans ton développement personnel. Dans ce cas de figure, il part du développement du style, mais il peut bien partir d'un autre domaine. De plus, même après avoir provoqué des Brèches, cela ne s'arrête pas là. Tu devras encore et encore t'enrichir de nouvelles expériences afin de repousser des limites et marquer l'histoire pendant le laps de temps auquel ton coeur va battre.
+Nous avons tous à apporter dans ce monde, oui même vous qui lisez ces lignes pensant que vous ne servez à rien dans la vie. Et bien non, votre valeur ajoutée se situe dans votre développement personnel. Dans ce cas de figure, il part du développement du style, mais il peut bien partir d'un autre domaine. De plus, même après avoir provoqué des Brèches, cela ne s'arrête pas là. Vous devrez encore et encore vous enrichir de nouvelles expériences afin de repousser des limites et marquer l'histoire pendant le laps de temps auquel votre coeur va battre.
 
 Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le [regard des gens](http://www.crevardstyle.com/Le-regard-des-autres-sur-votre-style). Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit-on pas que le savoir est une arme ?
 
 
 ### Les Brèches de la Brèche et les Six Coups d’Avance
 
-À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes tenues, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept et il en fût un. 
-Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance (Instagram : @sixmoveslead).
+À force d'avoir rédigé des articles sur Crevard Stylé et instagrammé à vive allure mes tenues, et donc ouvert des Brèches sur des rencontres, des remises en questions etc... Cela m'a amené à un nouveau concept sur le développement personnel tout entier. Sans m'en rendre compte, je voyais que ma façon de fonctionner et de me développer pouvait en devenir un concept, et il en fût un. 
+Si vous me suivez sur Instagram, vous avez sans doute pu voir dans mes stories des posts concernant la Dynamique des Six Coups d’Avance : [Instagram Six Coups d'Avance](https://www.instagram.com/sixmoveslead/).
 
 Quelles leçons en tirer ? 
-Il n'y a pas de secret. Seul le travail paye. Ce n'est pas en restant les bras croisés que de bonnes choses vont arriver, cette avancée avec ses Brèches se sont faites grâce aux actions menées. 
+Il n'y a pas de secret. Seul le travail paye. Ce n'est pas en restant les bras croisés que de bonnes choses vont arriver, cette avancée avec ses Brèches s'est produite grâce aux actions menées. 
 
-Chaque jour tu crée cet xp afin d'être expérimenté dans ton domaine et c'est ce qui permet d'aller loin et d'ouvrir les potentiels Brèches 
-
-Tout ça pour vous dire qu'il ne faut pas vous arrêter de vous développer. Si mes recherches sur le Style m'ont conduit à vous parler de développement personnel dans son ensemble, ce n'est pas pour rien. Car j'essaie toujours d' en savoir plus sur le Style, moi même, la vie etc... On s'optimise comme on peut afin de tendre à avoir Six Coups d’Avance... 
-
-Parler du mauvais combat à la fin. 
-
-Le but n'étant pas de justement ne pas porter de la marque mais faire en sorte que cela soit beau et que ça nous plaise tout en restant à l'aise dans nos baskets. Le reste est du non maîtrisable. On se cultivé un état d'esprit à travers une façon de se vêtir mais on élabore pas une tenue pour un but qui au final nous ne maîtrisons pas tout...
+Tout ça pour vous dire qu'il ne faut pas vous arrêter de vous développer. Si mes recherches sur le Style m'ont conduit à vous parler de développement personnel dans son ensemble, ce n'est pas pour rien. Car j'essaie toujours d' en savoir plus sur le Style, moi-même, la vie etc... On s'optimise comme on peut afin de tendre à avoir Six Coups d’Avance... 
