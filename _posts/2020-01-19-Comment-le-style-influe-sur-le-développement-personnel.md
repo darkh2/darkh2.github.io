@@ -27,7 +27,7 @@ Chaque jour, l'expérience acquise permet de déboucher sur de potentielles Brè
 
 Cela crée donc une ou plusieurs Brèches qui ouvre des portes à d'autres horizons. Une quête interminable s'offre à vous. Celle de devenir la meilleure version possible de vous-même avant de quitter ce monde.
 
-Le concept du Crevard Stylé apporte une double compétence (mettre lien sur la multicompétence). La première dans l'habillement et la seconde l'économie. C'est à partir de chacune de ces compétences que l'on va créer ou aboutir spontanément à des Brèches. 
+Le concept du Crevard Stylé apporte une [double compétence](http://www.crevardstyle.com/La-Chance-Selon-Hyke-part-2). La première dans l'habillement et la seconde l'économie. C'est à partir de chacune de ces compétences que l'on va créer ou aboutir spontanément à des Brèches. 
 - Brèches potentielles sur l'habillement : développement physique, ouverture d'esprit, création de vêtements etc...
 - Brèches potentielles sur l'économie : économie dans d'autres domaines, investissements, dynamiques sociales etc...
 
@@ -37,19 +37,10 @@ La notion sur laquelle le style influe sur le développement personnel est donc 
 
 ### Le développement personnel : en perpétuelle remise en question 
 
-Le style doit refléter un maximum la personnalité et l'état d'esprit tout en combinant le comportement et ce que va dégager le porteur. 
+Nous avons tous à apporter dans ce monde, oui même toi qui lis ces lignes pensant que tu ne sers à rien dans la vie. Et bien non, ta valeur ajoutée se situe dans ton développement personnel. Dans ce cas de figure, il part du développement du style, mais il peut bien partir d'un autre domaine. De plus, même après avoir provoqué des Brèches, cela ne s'arrête pas là. Tu devras encore et encore t'enrichir de nouvelles expériences afin de repousser des limites et marquer l'histoire pendant le laps de temps auquel ton coeur va battre.
 
-Une majeure partie des articles de ce site, ont une valeur ajoutée sur le développement personnel. Mais ceux qui entrent plus dans le vif du sujet sont liés au style et au développement de celui-ci. 
+Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le [regard des gens](http://www.crevardstyle.com/Le-regard-des-autres-sur-votre-style). Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit-on pas que le savoir est une arme ?
 
-Faire attention à son image et à la façon de se vêtir est une réflexion vers l'investissement de soi, le résultat qui en découle est donc un développement de sa personne. Attention à ne pas confondre soigner son image avec le regard des gens. Partir à la quête d'information procure une aisance dans le domaine concerné. Ne dit on pas que le savoir est une arme ?
-
-Le lifestyle, le DD influe sur le quotidien et donc le lifestyle. On a envie de voyager etc... Avoir une vie meilleure 
-Une des meilleures manières de se développer tout en kiffant est de s'enrichir d'expérience, d'être dans des situations où l'on se surpasse. 
-Parler de la place de l'argent dans tout ça. L'argent est important car il est un outil mais la vraie richesse réside dans ce que l'on va vivre et apprendre pendant le laps de temps que l'on fera partie de ce monde...
-
-### Cas pratique d'une Brèche. Les voyages
-
-Cas pratique lors des voyages dans lequel on peut repousser ses limites. Grâce aux réseaux sociaux quand on veut développer son style on pense également à prendre certains clichés de nos tenues, il en va de Brèches concernant la photographie et tenter de faire les plus belles photos possibles et quand on voyage il y a encore plus de belles occasions de faire de belles photos inédites et en l'occurrence d'avoir également une belle tenue pour l'occasion. Voilà où les Brèches peuvent mener par exemple.
 
 ### Les Brèches de la Brèche et les Six Coups d’Avance
 
