@@ -8,13 +8,11 @@ feature_image: blackfont.png
 ---
 ## Quelle est la tenue parfaite pour un premier rendez-vous ?
 
-De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. 
-
-Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de mettre en valeur votre corps à travers vos sapes. 
-
-Cela ne sert à rien d'n faire trop, de une cela va montrer que vous etes desespéré, de plus chasser le naturel il revient au galop et ensuite cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée.
+De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine, mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. Et pour ce faire, la nécéssité de mettre toutes les chances de notre côté pour atteindre cet objectif est à prendre en considération. Mes chèrs moines, voyons quel sera votre habit qui correspondra à celui que vous êtes au plus beau jour... Du moins pour un premier date.
 
 ### Les fondamentaux et les erreurs à éviter
+
+Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de vous vêtir. Cela ne servira à rien d'en faire trop. De une cela va montrer que vous etes desespéré, de plus chasser le naturel il revient au galop et ensuite cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée.
 
 Fondamentaux : pas de sapes froissées, pas de tâche et pas d'odeur de transpiration et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
 
