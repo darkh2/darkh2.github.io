@@ -15,6 +15,7 @@ De nos jours, l'apparence n'est pas à négliger pour faire une bonne première 
 ### Les fondamentaux et les erreurs à éviter
 
 Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de vous vêtir. Cela ne servira à rien d'en faire trop. De une, cela va montrer que vous êtes desespéré, de plus, chasser le naturel il revient au galop. C'est à dire que si vous êtes dans le faux dès le départ, à un moment ou un autre, vous allez subir les rrrretombées (j'insiste sur le roulement du R). Et enfin, cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée. Ne donnez pas tout dès le départ.
+Je suis sûr que la magnifique demoiselle que vous aller rencarder, vous préfériez qu'elle soit habillée un minimum à votre goût. Dans ce cas, il faut en faire de même. Égalité des sexes ? 
 
 #### Erreurs à éviter : 
 
@@ -26,15 +27,15 @@ Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression 
 #### Fondamentaux : 
 
 - Soyez propre. Bonne douche avant, si vous avez une barbe de trois jours, ça passe aussi. Ce ne sera pas si grave si vous ne sortez pas de chez le coiffeur. Un bon petit parfum en prime (ne videz pas la bouteille non plus) pour donner le sourire aux narines de votre douceur. De ce fait, vous impacterez visuellement, et olfactivement. 
- 
+- Une chose importante en tant qu'homme, quand on veut séduire une femme est d'avoir confiance en soi. Donc mettez la tenue dans laquelle vous serez le plus tranquille et serein. Et que cela corresponde totalement à votre style. S'il y a telle ou telle pièce que vous adorez porter, alors n'hésitez aucunement tout en prenant en compte le contexte bien entendu. Même à travers votre style, vous devez inspirer une certaine confiance.
 
 
 
-Je suis sûr que la magnifique demoiselle que vous aller rencarder vous préfériez qu'elle soit habillée un minimum à votre goût. Dans ce cas il faut en faire de même. Égalité des sexes ? 
+
 
 Concernant les erreurs à éviter,  
 
-Une chose important en tant qu'homme quand on veut séduire une femme est d'avoir confiance en soi. Donc mettez la tenue dans laquelle vous serez le plus tranquille et serein, et que cela bien entendu corresponde totalement à votre style. S'il y a telle ou telle pièce que vous adorez porter alors n'hésitez pas tout en prenant en compte le contexte bien entendu. Même à travers votre style, vous devez inspirer une certaine confiance. 
+ 
 
 
 ### Vers quelle type de tenue s'orienter ?
