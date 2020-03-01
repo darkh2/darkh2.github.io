@@ -4,7 +4,7 @@ layout: post
 date: 2020-03-01T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: rdv1.jpg
+feature_image: rdv5.jpg
 ---
 ## Quelle est la tenue parfaite pour un premier rendez-vous ?
 
