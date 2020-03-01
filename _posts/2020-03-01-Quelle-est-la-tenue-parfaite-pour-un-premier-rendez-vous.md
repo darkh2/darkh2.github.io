@@ -21,9 +21,12 @@ Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression 
 - Pas de sape froissée, petit coup de fer à repasser tac tac.
 - Pas de tâche, et pas d'odeur de transpiration sur vos vêtements, je vous connais les gars, on peut garder le même pull pendant une semaine, faîtes pas les fous.
 - Le jogging est totalement à proscrire, sauf éventuellement dans le cas où votre premier rendez-vous serait lors d'un entraînement à la salle de sport, mais j'en doute fort. Combien j'ai entendu de femmes dire qu'elles avaient sorti le carton rouge face aux mecs qui venaient en jogging. Certaines ont même écourté leur rendez-vous. Game over.
-- Je proscrirai également le costume. C'est trop, surtout si l'on veut stabiliser notre [Réserve de Puissance](https://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style). C'est un premier rendez-vous, pas un mariage. Il faut calibrer même dans votre style. Puis, il y a un risque que la femme pense que vous êtes prêts à tout pour coucher avec elle. Vous allez passer pour un mec en chien et je ne pense pas que c'est ce que vous voulez. Exception faite dans le cas oùvous voyez votre premier date en sortant du boulot et que vous bossez dans un milieu où le costume est obligatoire.
+- Je proscrirai également le costume. C'est trop, surtout si l'on veut stabiliser notre [Réserve de Puissance](https://www.crevardstyle.com/La-R%C3%A9serve-de-Puissance-du-Style). C'est un premier rendez-vous, pas un mariage. Il faut calibrer même dans votre style. Puis, il y a un risque que la femme pense que vous êtes prêts à tout pour coucher avec elle. Vous allez passer pour un mec en chien et je ne pense pas que c'est ce que vous voulez. Exception faite dans le cas où vous voyez votre premier date en sortant du boulot, et que vous bossez dans un milieu où le costume est obligatoire.
 
-et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
+#### Fondamentaux : 
+
+- Soyez propre. Bonne douche avant, si vous avez une barbe de trois jours, ça passe aussi. Ce ne sera pas si grave si vous ne sortez pas de chez le coiffeur. Un bon petit parfum en prime (ne videz pas la bouteille non plus) pour donner le sourire aux narines de votre douceur. De ce fait, vous impacterez visuellement, et olfactivement. 
+ 
 
 
 
