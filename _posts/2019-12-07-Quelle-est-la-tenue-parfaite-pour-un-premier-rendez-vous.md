@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2020-03-01T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -28,5 +28,33 @@ Je parle de calibration juste avant. Mais ce que je veux mettre en avant surtout
 Exemple : si je me balade dans un centre commercial, je vais favoriser des sneakers mais si c'est juste un resto, j'aurais plus tendance à porter des chaussures. Ou des baskets habillées. Si vous savez pas ce que c'est que les baskets habillées... 
 
 Mettre exemple de tenue. Combiner décontractée et propre. 
+
+Que mettre ? 
+Avant de répondre à cette fameuse question, il faut bien entendu déterminer le contexte du 1er rdv ainsi que les circonstances. 
+Est ce une balade dans un parc, dans la rue, centre commercial ? 
+Allez-vous juste prendre un verre ? 
+Restaurant ? Quel type de restaurant ? 
+Quel temps fait-il ? 
+Ces pré-requis vont déjà vous permettre de cible ou d'éliminer certaines sapes. 
+
+
+Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. 
+Hiver, parler des cols roulés... 
+Mi saisons, 
+
+Mettre exemple de tenue. Combiner décontractée et propre. 
+
+Ne pas oublier le meilleur pour la fin. Le détail qui tue. Qu'est ce qui va faire que cette femme ne va pas oublier en dehors de votre personnalité et de votre bonne compagnie ? La c'est le talent et l'originalité qui va compter. Un accessoire qui change la done? Une façon de porter un habit ? Une belle coupe ? Observez la masse des hommes, et ajouter le détail qui vous correspond. Mais n'en faites pas trop non plus. Qui dit 1er rdv dit peut être un second, il ne faudrait pas que vous montrez toutes vos cartes non plus. 
+Personnellement, ma touche est de vraiment jouer sur les couleurs de ma tenue le plus possible. Non, je ne vais pas faire le clown. Mais disons que j'essaye de coordiner les couleurs de ma tenue de façon à ce que je me démarque. C'est simple dans la démarche mais c'est totalement dosé. J'attends le second rdv pour encore plus impacter. 
+
+Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?... 
+
+Donc si vous êtes un minimum présentable avec une petite touche en plus, vous êtes propre, vous sentez bon. Croyez moi c'est déjà 50% du taf. 
+
+Faire très attention à une chose fondamentale. Il est important de "ne pas se déchirer" pour deux choses. La première c'est qu'il faut quand même resté naturel dans sa façon d'être ex: si t'as l'habitude de t'habiller décontracté, reste décontracté. Et la seconde chose est cette marge que l'on doit se laisser pour se permettre de prendre de La Puissance si vous êtes amenés à revoir la fille ou aller encore plus loin avec elle. Il faut quand même que vous la surpreniez dans votre façon de vous habiller. Pas d'être une fashion victime non plus mais au moins qu'elle sache que vous prêtez attention aux bonnes choses et en l'occurrence, votre façon de vous habiller. Pour en savoir plus sur le dosage de la Puissance je vous invite à consulter l'article sur la Réserve de Puissance qui vous permettra d'être plus stable dans votre style et la Puissance qui en découle. 
+
+Bonus. Prévoir chewing-gum, Musk, mouchoirs. Peigne 
+
+Zone sombre : certains hommes ont tendance à déterminer s'ils doivent mettre le paquet ou non dans leur tenue en fonction de s'ils voient la meuf comme quelqu'un avec qui ils vont être sérieux ou si c'est juste une meuf avec qui ils vont s'amuser. En gros ils attribuent une certaine valeur de la femme en fonction de leurs efforts qu'ils vont faire.
 
 Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?...
