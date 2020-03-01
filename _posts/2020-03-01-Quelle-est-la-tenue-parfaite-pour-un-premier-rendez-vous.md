@@ -10,8 +10,6 @@ feature_image: blackfont.png
 
 De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine, mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. Et pour ce faire, la nécéssité de mettre toutes les [chances](http://crevardstyle.com/La-Chance-Selon-Hyke) de notre côté pour atteindre cet objectif est à prendre en considération. Mes chèrs moines, voyons quel sera votre habit qui correspondra à celui que vous êtes au plus beau jour... Du moins pour un premier date.
 
-![cuba_1]({{site.url}}/{{site.baseurl}}img/cuba_1.jpg)
-
 ### Les fondamentaux et les erreurs à éviter
 
 Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de vous vêtir. Cela ne servira à rien d'en faire trop. De une, cela va montrer que vous êtes desespéré, de plus, chasser le naturel il revient au galop. C'est à dire que si vous êtes dans le faux dès le départ, à un moment ou un autre, vous allez subir les rrrretombées (j'insiste sur le roulement du R). Et enfin, cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée. Ne donnez pas tout dès le départ.
@@ -36,27 +34,25 @@ Exemple : si je me balade dans un centre commercial, je vais favoriser des sneak
 N'oubliez pas également de prendre en compte la météo, mieux vaut être trop couvert que pas assez, et puis, si vous avez une épaisseur en trop et que mademoiselle a froid, vous pourrez lui prêtez main forte, quel gentleman celui-là.
 Ces pré-requis vont déjà vous permettre de cible ou d'éliminer certaines sapes.
 Si trouver la tenue appropriée peut s'avéré être un réel fardeau pour vous, vous pouvez consulter cet article pour encore plus de précisions : [Comment trouver sa tenue du jour ?](http://www.crevardstyle.com/Comment-trouver-sa-tenue-du-jour)
- 
 
 ### Exemples de tenues
 
-Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. 
-Hiver, parler des cols roulés... 
-Mi saisons, 
+Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. Ces tenues combinent parfaitement le fait d'être décontracté et un minimum habillé. Et ma touche personelle est donc d'associer les couleurs d'une façon démarquante. A noter également que je respecte ce que je dénomme la [Puissance Réelle](http://www.crevardstyle.com/La-Puissance-du-Style).
+
+![rdv1]({{site.url}}/{{site.baseurl}}img/rdv1.jpg)
+![rdv2]({{site.url}}/{{site.baseurl}}img/rdv2.jpg)
+![rdv3]({{site.url}}/{{site.baseurl}}img/rdv3.jpg)
+![rdv4]({{site.url}}/{{site.baseurl}}img/rdv4.jpg)
 
 Mettre exemple de tenue. Combiner décontractée et propre. 
 
-Ne pas oublier le meilleur pour la fin. Le détail qui tue. Qu'est ce qui va faire que cette femme ne va pas oublier en dehors de votre personnalité et de votre bonne compagnie ? La c'est le talent et l'originalité qui va compter. Un accessoire qui change la done? Une façon de porter un habit ? Une belle coupe ? Observez la masse des hommes, et ajouter le détail qui vous correspond. Mais n'en faites pas trop non plus. Qui dit 1er rdv dit peut être un second, il ne faudrait pas que vous montrez toutes vos cartes non plus. 
-Personnellement, ma touche est de vraiment jouer sur les couleurs de ma tenue le plus possible. Non, je ne vais pas faire le clown. Mais disons que j'essaye de coordiner les couleurs de ma tenue de façon à ce que je me démarque. C'est simple dans la démarche mais c'est totalement dosé. J'attends le second rdv pour encore plus impacter. 
+### Finalisation
 
-Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?... 
+Ne pas oublier le meilleur pour la fin. Le détail qui tue. Qu'est ce qui va faire que cette femme ne va pas oublier en dehors de votre personnalité et de votre bonne compagnie ? Là, c'est le talent et l'originalité qui va compter. Un accessoire qui change la done? Une façon de porter un habit ? Une belle coupe ? Observez la masse des hommes, et ajouter le détail qui vous correspond. Mais n'en faites pas trop non plus. Qui dit premier rdv, dit peut être un second, il ne faudrait pas que vous montriez toutes vos cartes non plus. 
+Personnellement, ma touche est de vraiment jouer sur les couleurs de ma tenue le plus possible. Non, je ne vais pas faire le clown. Mais disons que j'essaye de coordiner les couleurs de ma tenue de façon à ce que je me démarque. C'est simple dans la démarche mais c'est totalement dosé. J'attends le second rdv pour encore plus impacter. Ou pas !
 
-Donc si vous êtes un minimum présentable avec une petite touche en plus, vous êtes propre, vous sentez bon. Croyez moi c'est déjà 50% du taf. 
+Donc si vous êtes un minimum présentable avec une petite touche en plus, vous êtes propre, vous sentez bon. Croyez moi, c'est déjà 50% du taf. 
 
 Faire très attention à une chose fondamentale. Il est important de "ne pas se déchirer" pour deux choses. La première c'est qu'il faut quand même resté naturel dans sa façon d'être ex: si t'as l'habitude de t'habiller décontracté, reste décontracté. Et la seconde chose est cette marge que l'on doit se laisser pour se permettre de prendre de La Puissance si vous êtes amenés à revoir la fille ou aller encore plus loin avec elle. Il faut quand même que vous la surpreniez dans votre façon de vous habiller. Pas d'être une fashion victime non plus mais au moins qu'elle sache que vous prêtez attention aux bonnes choses et en l'occurrence, votre façon de vous habiller. Pour en savoir plus sur le dosage de la Puissance je vous invite à consulter l'article sur la Réserve de Puissance qui vous permettra d'être plus stable dans votre style et la Puissance qui en découle. 
-
-Bonus. Prévoir chewing-gum, Musk, mouchoirs. Peigne 
-
-Zone sombre : certains hommes ont tendance à déterminer s'ils doivent mettre le paquet ou non dans leur tenue en fonction de s'ils voient la meuf comme quelqu'un avec qui ils vont être sérieux ou si c'est juste une meuf avec qui ils vont s'amuser. En gros ils attribuent une certaine valeur de la femme en fonction de leurs efforts qu'ils vont faire.
 
 Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?...
