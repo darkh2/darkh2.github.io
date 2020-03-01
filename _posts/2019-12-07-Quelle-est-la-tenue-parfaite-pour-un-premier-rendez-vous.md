@@ -14,6 +14,8 @@ Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression 
 
 Cela ne sert à rien d'n faire trop, de une cela va montrer que vous etes desespéré, de plus chasser le naturel il revient au galop et ensuite cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée.
 
+### Les fondamentaux et les erreurs à éviter
+
 Fondamentaux : pas de sapes froissées, pas de tâche et pas d'odeur de transpiration et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
 
 Le jogging est totalement à proscrire sauf éventuellement dans le cas où votre premier rendez-vous serait lors d'un entraînement à la salle de sport mais j'en doute fort. Combien de femmes j'ai entendu dire qu'elles avaient sorti le carton rouge face aux mecs qui venaient en jogging. Certaines ont même écourté leur rendez-vous. Game over. 
@@ -23,6 +25,9 @@ Je suis sûr que la magnifique demoiselle que vous aller rencarder vous préfér
 Concernant les erreurs à éviter, je proscrirai également le costume. Sauf exception, C'est trop, surtout si l'on veut stabiliser notre Réserve de Puissance. C'est un premier rendez-vous, pas un mariage. Il faut calibrer même dans votre style. Puis il y a un risque que la femme pense que vous êtes prêts à tout pour coucher avec elle. Vous allez passer pour un mec en chien et je ne pense pas que c'est ce que vous voulez. 
 
 Une chose important en tant qu'homme quand on veut séduire une femme est d'avoir confiance en soi. Donc mettez la tenue dans laquelle vous serez le plus tranquille et serein, et que cela bien entendu corresponde totalement à votre style. S'il y a telle ou telle pièce que vous adorez porter alors n'hésitez pas tout en prenant en compte le contexte bien entendu. Même à travers votre style, vous devez inspirer une certaine confiance. 
+
+
+### Vers quelle type de tenue s'orienter ?
 
 Je parle de calibration juste avant. Mais ce que je veux mettre en avant surtout c'est le contexte. Donc logiquement ce serait pendant l'après midi ou début de soirée. Prenez donc en compte l'endroit où vous allez, si vous comptez vous balader etc... 
 Exemple : si je me balade dans un centre commercial, je vais favoriser des sneakers mais si c'est juste un resto, j'aurais plus tendance à porter des chaussures. Ou des baskets habillées. Si vous savez pas ce que c'est que les baskets habillées... 
@@ -37,6 +42,7 @@ Restaurant ? Quel type de restaurant ?
 Quel temps fait-il ? 
 Ces pré-requis vont déjà vous permettre de cible ou d'éliminer certaines sapes. 
 
+### Exemples de tenues
 
 Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. 
 Hiver, parler des cols roulés... 
