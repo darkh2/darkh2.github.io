@@ -8,7 +8,9 @@ feature_image: blackfont.png
 ---
 ## Quelle est la tenue parfaite pour un premier rendez-vous ?
 
-De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine, mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. Et pour ce faire, la nécéssité de mettre toutes les chances de notre côté pour atteindre cet objectif est à prendre en considération. Mes chèrs moines, voyons quel sera votre habit qui correspondra à celui que vous êtes au plus beau jour... Du moins pour un premier date.
+De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine, mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. Et pour ce faire, la nécéssité de mettre toutes les [chances](http://crevardstyle.com/La-Chance-Selon-Hyke) de notre côté pour atteindre cet objectif est à prendre en considération. Mes chèrs moines, voyons quel sera votre habit qui correspondra à celui que vous êtes au plus beau jour... Du moins pour un premier date.
+
+![cuba_1]({{site.url}}/{{site.baseurl}}img/cuba_1.jpg)
 
 ### Les fondamentaux et les erreurs à éviter
 
