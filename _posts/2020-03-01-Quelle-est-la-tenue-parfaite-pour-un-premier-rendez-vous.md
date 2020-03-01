@@ -29,29 +29,14 @@ Je suis sûr que la magnifique demoiselle que vous aller rencarder, vous préfé
 - Soyez propre. Bonne douche avant, si vous avez une barbe de trois jours, ça passe aussi. Ce ne sera pas si grave si vous ne sortez pas de chez le coiffeur. Un bon petit parfum en prime (ne videz pas la bouteille non plus) pour donner le sourire aux narines de votre douceur. De ce fait, vous impacterez visuellement, et olfactivement. 
 - Une chose importante en tant qu'homme, quand on veut séduire une femme est d'avoir confiance en soi. Donc mettez la tenue dans laquelle vous serez le plus tranquille et serein. Et que cela corresponde totalement à votre style. S'il y a telle ou telle pièce que vous adorez porter, alors n'hésitez aucunement tout en prenant en compte le contexte bien entendu. Même à travers votre style, vous devez inspirer une certaine confiance.
 
-
-
-
-
-Concernant les erreurs à éviter,  
-
- 
-
-
 ### Vers quelle type de tenue s'orienter ?
 
-Je parle de calibration juste avant. Mais ce que je veux mettre en avant surtout c'est le contexte. Donc logiquement ce serait pendant l'après midi ou début de soirée. Prenez donc en compte l'endroit où vous allez, si vous comptez vous balader etc... 
-Exemple : si je me balade dans un centre commercial, je vais favoriser des sneakers mais si c'est juste un resto, j'aurais plus tendance à porter des chaussures. Ou des baskets habillées. Si vous savez pas ce que c'est que les baskets habillées... 
-
-Mettre exemple de tenue. Combiner décontractée et propre. 
-
-Que mettre ? 
-Avant de répondre à cette fameuse question, il faut bien entendu déterminer le contexte du 1er rdv ainsi que les circonstances. 
-Est ce une balade dans un parc, dans la rue, centre commercial ? 
-Allez-vous juste prendre un verre ? 
-Restaurant ? Quel type de restaurant ? 
-Quel temps fait-il ? 
-Ces pré-requis vont déjà vous permettre de cible ou d'éliminer certaines sapes. 
+Je parlais de calibration précédemment. Mais ce que je veux mettre en avant, c'est le contexte. Dans la plupart des cas, votre rencart se déroulerait pendant l'après midi ou début de soirée. Prenez donc en compte l'endroit où vous allez, si vous comptez vous balader etc... 
+Exemple : si je me balade dans un centre commercial, je vais favoriser des sneakers mais si c'est juste un resto, j'aurais plus tendance à porter des chaussures. Ou des baskets habillées.
+N'oubliez pas également de prendre en compte la météo, mieux vaut être trop couvert que pas assez, et puis, si vous avez une épaisseur en trop et que mademoiselle a froid, vous pourrez lui prêtez main forte, quel gentleman celui-là.
+Ces pré-requis vont déjà vous permettre de cible ou d'éliminer certaines sapes.
+Si trouver la tenue appropriée peut s'avéré être un réel fardeau pour vous, vous pouvez consulter cet article pour encore plus de précisions : [Comment trouver sa tenue du jour ?](http://www.crevardstyle.com/Comment-trouver-sa-tenue-du-jour)
+ 
 
 ### Exemples de tenues
 
