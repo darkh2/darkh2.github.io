@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2019-12-07T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -11,6 +11,8 @@ feature_image: blackfont.png
 De nos jours, l'apparence n'est pas à négliger pour faire une bonne première impression. L'habit ne fait pas le moine mais je pense qu'aujourd'hui l'habit DOIT faire le moine. Le but étant donc de ne pas rater la seule occasion de faire une bonne première impression. 
 
 Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de mettre en valeur votre corps à travers vos sapes. 
+
+Cela ne sert à rien d'n faire trop, de une cela va montrer que vous etes desespéré, de plus chasser le naturel il revient au galop et ensuite cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée.
 
 Fondamentaux : pas de sapes froissées, pas de tâche et pas d'odeur de transpiration et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
 
@@ -27,4 +29,4 @@ Exemple : si je me balade dans un centre commercial, je vais favoriser des sneak
 
 Mettre exemple de tenue. Combiner décontractée et propre. 
 
-Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?... 
+Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?...
