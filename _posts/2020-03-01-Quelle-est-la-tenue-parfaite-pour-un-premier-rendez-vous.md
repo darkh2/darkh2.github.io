@@ -37,14 +37,23 @@ Si trouver la tenue appropriée peut s'avéré être un réel fardeau pour vous,
 
 ### Exemples de tenues
 
-Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. Ces tenues combinent parfaitement le fait d'être décontracté et un minimum habillé. Et ma touche personelle est donc d'associer les couleurs d'une façon démarquante. A noter également que je respecte ce que je dénomme la [Puissance Réelle](http://www.crevardstyle.com/La-Puissance-du-Style).
+Analysons ces tenues qui me sembleraient adéquates pour un 1er rdv. Ces tenues combinent parfaitement le fait d'être décontracté et un minimum habillé. Et ma touche personelle est donc d'associer les couleurs d'une façon démarquante. A noter également que je respecte ce que je dénomme la [Puissance Réelle](http://www.crevardstyle.com/La-Puissance-du-Style). J'ai pris deux tenues saison froide et deux tenues saison chaude.
 
 ![rdv1]({{site.url}}/{{site.baseurl}}img/rdv1.jpg)
+
+Au moment où je redige ces lignes, les cols roulés sont toujours une bonne idée et ont la côte, mais que ce soit col roulé ou pull, cela convient parfaitement. Un jean et des sneakers pour décontractisé, puis la fameuse veste trois-quarts pour habiller le tout. Une tenue parfaitement calibrée.
+
 ![rdv2]({{site.url}}/{{site.baseurl}}img/rdv2.jpg)
+
+Dans ce cas, on met plus en avant les couleurs que la tenue précédente. Je vous cache pas que nous sommes à la limite de la calibration. Je ne pense pas que l'on devrait s'habiller aussi fortement pour un premier rdv, mais au moins ici, on sent que l'on peut potentiellement se démarquer. Notez bien que les baskets blanches sont toujours une bonne idée pour un premier date. A vous de juger...
+
 ![rdv3]({{site.url}}/{{site.baseurl}}img/rdv3.jpg)
+
+Cette tenue est risquée mais forte en couleur mais appropriée pour une saison estivale. Aux pieds, on remarque une paire intermédiaire entre l'habillé et le décontracté. Qui porte du rose pour un premier rendez-vous ? Ils sont rares je pense, mais c'est ce que j'aime dans cette tenue justement.
+
 ![rdv4]({{site.url}}/{{site.baseurl}}img/rdv4.jpg)
 
-Mettre exemple de tenue. Combiner décontractée et propre. 
+Et enfin pour cette dernière tenue, on voit que l'on peut rester simple tout en étant original. Baskets blanches, chino bleu, et chemise motifs (11 euros à Primark). C'est tout, pas la peine d'en faire plus. Parfait pour une soirée d'été.
 
 ### Finalisation
 
@@ -52,7 +61,5 @@ Ne pas oublier le meilleur pour la fin. Le détail qui tue. Qu'est ce qui va fai
 Personnellement, ma touche est de vraiment jouer sur les couleurs de ma tenue le plus possible. Non, je ne vais pas faire le clown. Mais disons que j'essaye de coordiner les couleurs de ma tenue de façon à ce que je me démarque. C'est simple dans la démarche mais c'est totalement dosé. J'attends le second rdv pour encore plus impacter. Ou pas !
 
 Donc si vous êtes un minimum présentable avec une petite touche en plus, vous êtes propre, vous sentez bon. Croyez moi, c'est déjà 50% du taf. 
-
-Faire très attention à une chose fondamentale. Il est important de "ne pas se déchirer" pour deux choses. La première c'est qu'il faut quand même resté naturel dans sa façon d'être ex: si t'as l'habitude de t'habiller décontracté, reste décontracté. Et la seconde chose est cette marge que l'on doit se laisser pour se permettre de prendre de La Puissance si vous êtes amenés à revoir la fille ou aller encore plus loin avec elle. Il faut quand même que vous la surpreniez dans votre façon de vous habiller. Pas d'être une fashion victime non plus mais au moins qu'elle sache que vous prêtez attention aux bonnes choses et en l'occurrence, votre façon de vous habiller. Pour en savoir plus sur le dosage de la Puissance je vous invite à consulter l'article sur la Réserve de Puissance qui vous permettra d'être plus stable dans votre style et la Puissance qui en découle. 
 
 Si vous appliquez ces lignes, il ne vous restera plus qu'à mettre en avant votre personnalité afin de séduire votre future bien aimée. Plus facile à dire qu'à faire ?...
