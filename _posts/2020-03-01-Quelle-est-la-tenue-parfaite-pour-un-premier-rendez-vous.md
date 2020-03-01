@@ -12,9 +12,12 @@ De nos jours, l'apparence n'est pas à négliger pour faire une bonne première 
 
 ### Les fondamentaux et les erreurs à éviter
 
-Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de vous vêtir. Cela ne servira à rien d'en faire trop. De une cela va montrer que vous etes desespéré, de plus chasser le naturel il revient au galop et ensuite cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée.
+Sachez que ce sera votre premier rendez-vous, vous devez faire bonne impression dans votre comportement mais également dans votre façon de vous vêtir. Cela ne servira à rien d'en faire trop. De une, cela va montrer que vous êtes desespéré, de plus, chasser le naturel il revient au galop. C'est à dire que si vous êtes dans le faux dès le départ, à un moment ou un autre, vous allez subir les rrrretombées (j'insiste sur le roulement du R). Et enfin, cela ne vous laisse pas calibrer et monter en effort pour séduire potentiellement votre dulcinée. Ne donnez pas tout dès le départ.
 
-Fondamentaux : pas de sapes froissées, pas de tâche et pas d'odeur de transpiration et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
+Erreurs à éviter : 
+
+- Pas de sape froissée, petit coup de fer à repasser tac tac.
+- Pas de tâche et pas d'odeur de transpiration sur vos vêtements, je vous connais les gars, on peut garder le même pull pendant une semaine, faîtes pas les fous. et surtout une bonne douche avant et un bon petit parfum (videz pas la bouteille non plus) pour donner le sourire aux narines de. A défaut de galerer à l'impacter visuellement, vous pouvez en faire de même olfactivement. 
 
 Le jogging est totalement à proscrire sauf éventuellement dans le cas où votre premier rendez-vous serait lors d'un entraînement à la salle de sport mais j'en doute fort. Combien de femmes j'ai entendu dire qu'elles avaient sorti le carton rouge face aux mecs qui venaient en jogging. Certaines ont même écourté leur rendez-vous. Game over. 
 
