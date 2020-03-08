@@ -2745,7 +2745,8 @@ mark {
         padding-top: 150px; } }
     @media (min-width: 1200px) {
       .hero .overlay {
-        padding-top: 170px; } }
+        /*padding-top: 170px; } }*/
+        padding-top: 150px; } }
   .hero .overlay--author {
     padding-top: 0;
     text-align: left; }
