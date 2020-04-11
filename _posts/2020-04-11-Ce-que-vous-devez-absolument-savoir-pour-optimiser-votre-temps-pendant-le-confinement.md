@@ -16,6 +16,8 @@ Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce
 
 Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
 
+Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous réserve. La vie n'est pas à prendre pour acquis. On optimise son style, certes, mais faites en sorte de limiter la casse le plus possible, mangez bien, instruisez-vous, ne vous reposez pas sur vos acquis tant que vous avez du temps devant vous.
+
 Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
 
 Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
