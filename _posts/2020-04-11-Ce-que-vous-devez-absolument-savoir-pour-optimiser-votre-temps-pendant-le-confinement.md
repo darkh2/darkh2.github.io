@@ -7,4 +7,8 @@ Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le 
 
 Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce moment. Mais sachez une chose, c'est que le Temps est la ressource qui a beaucoup plus de valeur que l'argent. Dîtes-vous bien qu'en ces temps, l'argent ne doit vous servir uniquement qu'à manger et payer vos charges et encore, n'hésitez pas à repousser le reglement de vos loyers, éléctricité, prêts bancaires etc...
 
+Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
+
+Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
+
 Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
