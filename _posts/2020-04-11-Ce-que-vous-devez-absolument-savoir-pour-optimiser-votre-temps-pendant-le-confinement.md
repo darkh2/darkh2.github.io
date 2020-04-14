@@ -10,9 +10,9 @@ feature_image: blackfont.png
 
 *Cet article peut être présenté comme la suite de celui-çi : [Comment le style influe sur le développement personnel](http://www.crevardstyle.com/Comment-le-style-influe-sur-le-d%C3%A9veloppement-personnel).
 
-Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de tout ça, le but à mon sens sera d'être Efficient dans toute sa personne. Un évenement qui nous limite en terme de déplacement ne doit pas nous limiter dans notre développement. 
+Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de tout ça, le but à mon sens sera d'être Efficient dans toute sa personne. Un évenement qui nous limite en terme de déplacement ne doit pas nous limiter dans notre développement. Je ne compte pas dépenser un seul centime pour acheter des vêtements, les priorités et pendant ces temps durs, sont le développement de notre personne ainsi que de manger à notre faim rien de plus. Ma penderie suffit largement et je ne sors que très rarement.
 
-Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce moment (chômage partiel). Mais sachez une chose, c'est que le Temps est la ressource qui a beaucoup plus de valeur que l'argent. Dîtes-vous bien que l'argent ne doit vous servir uniquement qu'à manger et payer vos charges et encore, n'hésitez pas à repousser le reglement de vos loyers, éléctricité, prêts bancaires etc...
+Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce moment (chômage partiel). Mais sachez une chose, c'est que le Temps est la ressource qui a beaucoup plus de valeur que l'argent. Dîtes-vous bien que l'argent ne doit vous servir uniquement qu'à manger et payer vos charges et encore, n'hésitez pas à repousser le reglement de vos loyers, éléctricité, prêts bancaires etc...L'argent est et restera toujours un outil.
 
 Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
 
