@@ -20,4 +20,3 @@ Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous ré
 
 Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
