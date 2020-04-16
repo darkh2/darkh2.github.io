@@ -10,9 +10,23 @@ feature_image: blackfont.png
 
 *Cet article peut être présenté comme la suite de celui-çi : [Comment le style influe sur le développement personnel](http://www.crevardstyle.com/Comment-le-style-influe-sur-le-d%C3%A9veloppement-personnel).
 
-Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de tout ça, le but à mon sens sera d'être Efficient dans toute sa personne. Un évenement qui nous limite en terme de déplacement ne doit pas nous limiter dans notre développement. Je ne compte pas dépenser un seul centime pour acheter des vêtements, les priorités et pendant ces temps durs, sont le développement de notre personne ainsi que de manger à notre faim rien de plus. Ma penderie suffit largement et je ne sors que très rarement.
+Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de tout ça, le but à mon sens sera d'être Efficient dans toute sa personne. Un évenement qui nous limite en terme de déplacement ne doit pas nous limiter dans notre développement. Je ne compte pas dépenser un seul centime pour acheter des vêtements, les priorités et pendant ces temps durs, sont le développement de notre personne ainsi que de manger à notre faim rien de plus. Ma penderie suffit largement et je ne sors que très rarement. Nous ne roulons pas sur l'or. Nous nous sommes tous fait dépassés par les évenements avec ce confinement.
 
 Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce moment (chômage partiel). Mais sachez une chose, c'est que le Temps est la ressource qui a beaucoup plus de valeur que l'argent. Dîtes-vous bien que l'argent ne doit vous servir uniquement qu'à manger et payer vos charges et encore, n'hésitez pas à repousser le reglement de vos loyers, éléctricité, prêts bancaires etc...L'argent est et restera toujours un outil.
+
+Etablir une liste de priorités. Qu'st ce que je ne pouvais pas faire pendant le taf et que je peux faire pendant le confinement et que je veux faire. De quoi aurais-je besoin après ce confinement ? Comment je veux en sortir ?
+
+Entraînement régulier de sport.
+
+Le plus dur à bosser est la rigueur
+
+Provoquer les Brèches sur l'alimentation
+
+Je veux éviter les regrets. J'ai cette peur la.
+
+Gratitude si vous n'êtes pas infecté
+
+Point sur sa penderie. Vinted reprend du service. Au pire, tu viendras à la fin du confinement. Ou bien tu peux mettre de côté des sapes à donner aux plus démunis.
 
 Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
 
