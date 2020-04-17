@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2020-04-11T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -37,5 +37,6 @@ Rien ne nous empêche de développer votre style pendant que vous êtes à la ma
 
 Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous réserve. La vie n'est pas à prendre pour acquis. On optimise son style, certes, mais faites en sorte de limiter la casse le plus possible, mangez bien, instruisez-vous, ne vous reposez pas sur vos acquis tant que vous avez du temps devant vous.
 
-Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
 
+
+Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
