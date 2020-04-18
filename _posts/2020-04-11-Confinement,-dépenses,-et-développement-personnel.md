@@ -38,8 +38,11 @@ Etablir une liste de priorités. Voici les questions que vous devez vous poser :
 
 Voici ce que je fais dans mon noble studio de trentenaire. Dans chacune de mes activités, je mettrai en avant les réponses des questions que j'ai cité dans la partie précédente. En espérant que cela puisse également vous inspirer pendant toute la durée à laquelle vous serez bien au chaud.
 
+- **Provoquer les Brèches sur l'alimentation**
+Attraper un virus est lié à la capacité de son corps de pouvoir l'affronter ou non. Ce qui est essentiel pour donner à son corps l'energie nécessaire afin d'affronter ces bactéries passe incontournablement par l'alimentation. Je n'ai jamais été autant intéressé par ce qui rentre dans ma bouche ces temps-çi.
+
 - **Entraînement régulier de sport.**
-Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le trajet pour s'y rendre peuvent être totalement optimisé en ces temps. Avec tous les tutos sur YouTube pour faire des exercices, je pense que l'on a vraiment pas d'excuse. Je ne pouvais pas autant faire de sport que maintenant donc je profite du maximum possible. Presque tous les jours au réveil, et à jeun. Je pense que le mieux est de le faire dès le début de la journée (ok je me lève à 14h, je plaide coupable), pour ne plus à s'en occuper et affronter la flemme. Ce dernier est vraiment un adversaire redoutable.
+Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le trajet pour s'y rendre peuvent être totalement optimisé en ces temps. Avec tous les tutos sur YouTube pour faire des exercices, je pense que l'on a vraiment pas d'excuse (qui a dit que c'était facile ?). Je ne pouvais pas autant faire de sport que maintenant donc je profite du maximum possible. Presque tous les jours au réveil, et à jeun. Je pense que le mieux est de le faire dès le début de la journée (ok je me lève à 14h, je plaide coupable), pour ne plus à s'en occuper et affronter la flemme. Ce dernier est vraiment un adversaire redoutable.
 
 - **Avancer sur mes projets.**
 J'ai listé au préalable les activités que je ne pouvais pas faire avant le confinement et dont j'ai plus de temps actuellement. En essayant chaque jour de m'approcher de ces objectifs afin de dormir (à l'aube ?) l'esprit tranquille.
@@ -51,7 +54,7 @@ De la même manière que je n'avais pas autant de temps qu'auparavant, j'en prof
 - **Prendre du temps pour soi**
 De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage. Ne pas être trop dur avec soi-même (c'est un de mes nombreux défauts).
 
-Le plus dur à bosser est la rigueur
+
 
 Provoquer les Brèches sur l'alimentation
 
@@ -62,6 +65,8 @@ Gratitude si vous n'êtes pas infecté
 ### La vraie morale de l'histoire
 
 Point sur sa penderie. Vinted reprend du service. Au pire, tu viendras à la fin du confinement. Ou bien tu peux mettre de côté des sapes à donner aux plus démunis.
+
+Le plus dur à bosser est la rigueur
 
 Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
 
