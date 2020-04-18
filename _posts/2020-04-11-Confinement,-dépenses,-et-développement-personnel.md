@@ -38,8 +38,11 @@ Voici ce que je fais dans mon noble studio de trentenaire. Dans chacune de mes a
 Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le trajet pour s'y rendre peuvent être totalement optimisé en ces temps. Avec tous les tutos sur YouTube pour faire des exercices, je pense que l'on a vraiment pas d'excuse. Je ne pouvais pas autant faire de sport que maintenant donc je profite du maximum possible. Presque tous les jours au réveil, et à jeun. Je pense que le mieux est de le faire dès le début de la journée (ok je me lève à 14h, je plaide coupable), pour ne plus à s'en occuper et affronter la flemme. Ce dernier est vraiment un adversaire redoutable.
 
 - **Avancer sur mes projets.**
-Comme vous le savez, je
 J'ai listé au préalable les activités que je ne pouvais pas faire avant le confinement et dont j'ai plus de temps actuellement. En essayant chaque jour de m'approcher de ces objectifs afin de dormir (à l'aube ?) l'esprit tranquille.
+Comme vous le savez, je produis du contenu pour [Crevard Stylé](https://www.instagram.com/crevardstyle/) mais pas que. J'ai également un autre concept sur le développement personnel : [Six Coups d'Avance](https://www.instagram.com/crevardstyle/). D'autres contenus sont en cours de création concernant ces concepts (site, ebooks).
+
+- **Acquérir de nouvelles connaissances/compétences**
+De la même manière que je n'avais pas autant de temps qu'auparavant, j'en profite également pour m'enrichir de nouvelles bases, afin de reprendre la vie normal en ayant l'esprit plus fort. Bosser (même si c'est peu) sur soi-même contribue fortement à la confiance en soi.
 
 - **Prendre du temps pour soi**
 De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage.
