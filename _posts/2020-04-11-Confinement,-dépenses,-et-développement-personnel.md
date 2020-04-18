@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2020-04-11T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -27,12 +27,12 @@ Etablir une liste de priorités. Voici les questions que vous devez vous poser :
 - Qu'est ce que je ne pouvais pas faire pendant le taf (ou du moins avant ce confinement) et que je peux et veux faire en étant enfermé ? 
 - De quoi aurais-je besoin après ce confinement ? 
 - Comment je veux en sortir ? 
-- Quelle personne je veux devenir à l'issue ?
+- Quelle personne je veux devenir à l'issue de cette épreuve ?
 - Et surtout : quel est le regret que je ne veux pas subir en me disant "j'aurais dû faire cela pendant le confinement" ?
 
 ### Ce que je fais pendant le confinement
 
-Voici ce que je fais dans mon noble studio de trentenaire. Dans chacune de mes activités, je mettrai en avant les réponses des questions que j'ai cité dans la partie précédente.
+Voici ce que je fais dans mon noble studio de trentenaire. Dans chacune de mes activités, je mettrai en avant les réponses des questions que j'ai cité dans la partie précédente. En espérant que cela puisse également vous inspirer pendant toute la durée à laquelle vous serez bien au chaud.
 
 Entraînement régulier de sport.
 Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le trajet pour s'y rendre peuvent être totalement optimisé en ces temps. Avec tous les tutos sur YouTube pour faire des exercices, je pense que l'on a vraiment pas d'excuse. Je ne pouvais pas autant faire de sport que maintenant donc je profite du maximum possible. Presque tous les jours au réveil, et à jeun. Je pense que le mieux est de le faire dès le début de la journée (ok je me lève à 14h, je plaide coupable), pour ne plus à s'en occuper et affronter la flemme. Ce dernier est vraiment un adversaire redoutable.
