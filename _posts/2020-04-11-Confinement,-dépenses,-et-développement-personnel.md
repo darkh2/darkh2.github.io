@@ -8,7 +8,7 @@ feature_image: blackfont.png
 ---
 ## Ce que vous devez absolument savoir pour optimiser votre temps pendant le confinement (et même en temps de crise de façon générale).
 
-*Cet article peut être présenté comme la suite de celui-çi : [Comment le style influe sur le développement personnel](http://www.crevardstyle.com/Comment-le-style-influe-sur-le-d%C3%A9veloppement-personnel).
+*Cet article peut être présenté comme la suite de celui-çi : [Comment le style influe sur le développement personnel](http://www.crevardstyle.com/Comment-le-style-influe-sur-le-d%C3%A9veloppement-personnel).*
 
 Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de ça, le but à mon sens serait d'être Efficient dans la globalité de son être. Un évenement qui nous limite en terme de déplacement et activité ne doit pas nous limiter dans notre développement. Que faire 
 
