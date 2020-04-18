@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2020-04-11T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -39,6 +39,7 @@ Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le 
 
 - **Avancer sur mes projets.**
 Comme vous le savez, je
+J'ai listé au préalable les activités que je ne pouvais pas faire avant le confinement et dont j'ai plus de temps actuellement. En essayant chaque jour de m'approcher de ces objectifs afin de dormir (à l'aube ?) l'esprit tranquille.
 
 - **Prendre du temps pour soi**
 De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage.
