@@ -56,7 +56,7 @@ De grandes remises en question, se divertir, lâcher prise. Il est très importa
 
 ### La vraie morale de l'histoire
 
-Une de mes plus grandes peurs dans ce monde (oui j'en ai plusieurs, un vrai perreux celui-là) est le regret. Et avec tout ce temps qui nous est offert, je ne pourrais que regretter si je n'avais pas fait les choses que j'aurais pu faire pendant ce laps de temps. Ou dû moins, éviter le plus le regret, sentir malgré tout que j'ai avancé et que j'en ressort meilleur et plus fort pour croquer la vie à pleines dents telle une pomme bien juteuse (c'est bon les pommes, mangez-en) . #5fruitsetlégumes
+Une de mes plus grandes peurs (oui j'en ai plusieurs, un vrai perreux celui-là) est le regret. Et avec tout ce temps qui nous est offert, je ne pourrais que regretter si je n'avais pas fait les choses que j'aurais pu faire pendant ce laps de temps. Ou dû moins, éviter le plus le regret, sentir malgré tout que j'ai avancé et que j'en ressort meilleur et plus fort pour croquer la vie à pleines dents telle une pomme bien juteuse (c'est bon les pommes, mangez-en) . #5fruitsetlégumes
 
 Point sur sa penderie. Vinted reprend du service. Au pire, tu viendras à la fin du confinement. Ou bien tu peux mettre de côté des sapes à donner aux plus démunis.
 
