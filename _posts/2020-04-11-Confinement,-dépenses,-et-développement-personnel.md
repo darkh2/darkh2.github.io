@@ -18,7 +18,7 @@ Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette 
 
 ### Crevard Stylé dans tout ça
 
-
+Crevard Stylé se met en suspens. Mais ne dort pas, enfin si, mais à l'aube seulement. Ce que l'Efficience du Style prône en ce moment c'est faire un point sur sa penderie. Et tester de nouvelles combinaisons que l'on avait jamais fait auparavant ou bien même de tenter l'inimaginable. Cela peut déboucher sur une Brèche
 
 ### No money, but more time ("pas d'argent, mais plus de temps")
 
@@ -49,28 +49,24 @@ J'ai listé au préalable les activités que je ne pouvais pas faire avant le co
 Comme vous le savez, je produis du contenu pour [Crevard Stylé](https://www.instagram.com/crevardstyle/) mais pas que. J'ai également un autre concept sur le développement personnel : [Six Coups d'Avance](https://www.instagram.com/crevardstyle/). D'autres contenus sont en cours de création concernant ces concepts (site, ebooks).
 
 - **Acquérir de nouvelles connaissances/compétences**
-De la même manière que je n'avais pas autant de temps qu'auparavant, j'en profite également pour m'enrichir de nouvelles bases, afin de reprendre la vie normale en ayant l'esprit plus fort. Bosser (même si c'est peu) sur soi-même contribue fortement à la confiance en soi. Cette acquisition de connaissances doit être en adéquation avec la personne que l'on souhaite devenir. YouTube, applications, et formations en ligne (entre autres) sont les éléments que j'utilise. Nous sommes à une ère où l'accès à l'information n'a jamais été aussi facile. Profitez-en.
+De la même manière que je n'avais pas autant de temps qu'auparavant, j'en profite également pour m'enrichir de nouvelles bases, afin de reprendre la vie normale en ayant l'esprit plus fort. Bosser (même si c'est peu) sur soi-même contribue fortement à la confiance en soi. Cette acquisition de connaissances doit être en adéquation avec la personne que l'on souhaite devenir. YouTube, applications, lire, et formations en ligne (entre autres) sont les éléments que j'utilise. Nous sommes à une ère où l'accès à l'information n'a jamais été aussi facile. Profitez-en.
 
 - **Prendre du temps pour soi**
-De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage. Ne pas être trop dur avec soi-même (c'est un de mes nombreux défauts).
-
-
-
-Provoquer les Brèches sur l'alimentation
-
-Je veux éviter les regrets. J'ai cette peur la.
-
-Gratitude si vous n'êtes pas infecté
+De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage. Ne pas être trop dur avec soi-même (c'est un de mes nombreux défauts). Regarder des séries/films de temps en temps peut vraiment faire du bien à condition de bien doser votre divertissement car le temps défile.
 
 ### La vraie morale de l'histoire
 
 Point sur sa penderie. Vinted reprend du service. Au pire, tu viendras à la fin du confinement. Ou bien tu peux mettre de côté des sapes à donner aux plus démunis.
 
+Je veux éviter les regrets. J'ai cette peur la.
+
 Le plus dur à bosser est la rigueur
+
+Gratitude si vous n'êtes pas infecté
 
 Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
 
-Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous réserve. La vie n'est pas à prendre pour acquis. On optimise son style, certes, mais faites en sorte de limiter la casse le plus possible, mangez bien, instruisez-vous, ne vous reposez pas sur vos acquis tant que vous avez du temps devant vous.
+Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous réserve. La vie n'est pas à prendre pour acquis. On optimise son style, certes, mais faites en sorte de limiter la casse le plus possible, mangez bien, instruisez-vous, optimisez tant que vous avez du temps devant vous.
 
 ### L'après confinement...
 
