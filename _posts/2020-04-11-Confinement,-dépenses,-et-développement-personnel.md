@@ -16,6 +16,10 @@ Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le 
 
 Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette période. Les priorités pendant ces temps durs, sont le développement de notre personne, ainsi que de manger à notre faim. Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant la durée de ce confinement (et après) me met en garde face aux éventuels besoins économiques qui seront amenés à être sollicités si les cessations d'activités perduraient. Ma penderie suffit largement, et je ne sors que très rarement. Je ne vois aucune nécéssité en cet instant de placer mes deniers sur ce type de produit. Je ne vous cache pas que cela n'est pas toujours facile de me retenir à la consommation, mais la survie me pousse à agir de la sorte.
 
+### Crevard Stylé dans tout ça
+
+
+
 ### No money, but more time ("pas d'argent, mais plus de temps")
 
 Nous ne roulons pas sur l'or. Nous nous sommes tous fait dépassés par les évenements avec ce confinement.
@@ -42,10 +46,10 @@ J'ai listé au préalable les activités que je ne pouvais pas faire avant le co
 Comme vous le savez, je produis du contenu pour [Crevard Stylé](https://www.instagram.com/crevardstyle/) mais pas que. J'ai également un autre concept sur le développement personnel : [Six Coups d'Avance](https://www.instagram.com/crevardstyle/). D'autres contenus sont en cours de création concernant ces concepts (site, ebooks).
 
 - **Acquérir de nouvelles connaissances/compétences**
-De la même manière que je n'avais pas autant de temps qu'auparavant, j'en profite également pour m'enrichir de nouvelles bases, afin de reprendre la vie normal en ayant l'esprit plus fort. Bosser (même si c'est peu) sur soi-même contribue fortement à la confiance en soi.
+De la même manière que je n'avais pas autant de temps qu'auparavant, j'en profite également pour m'enrichir de nouvelles bases, afin de reprendre la vie normale en ayant l'esprit plus fort. Bosser (même si c'est peu) sur soi-même contribue fortement à la confiance en soi. Cette acquisition de connaissances doit être en adéquation avec la personne que l'on souhaite devenir. YouTube, applications, et formations en ligne (entre autres) sont les éléments que j'utilise. Nous sommes à une ère où l'accès à l'information n'a jamais été aussi facile. Profitez-en.
 
 - **Prendre du temps pour soi**
-De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage.
+De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage. Ne pas être trop dur avec soi-même (c'est un de mes nombreux défauts).
 
 Le plus dur à bosser est la rigueur
 
