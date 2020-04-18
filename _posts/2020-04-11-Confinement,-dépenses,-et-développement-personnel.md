@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: {}
+date: 2020-04-11T00:00:00.000Z
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -34,8 +34,14 @@ Etablir une liste de priorités. Voici les questions que vous devez vous poser :
 
 Voici ce que je fais dans mon noble studio de trentenaire. Dans chacune de mes activités, je mettrai en avant les réponses des questions que j'ai cité dans la partie précédente. En espérant que cela puisse également vous inspirer pendant toute la durée à laquelle vous serez bien au chaud.
 
-Entraînement régulier de sport.
+- **Entraînement régulier de sport.**
 Pour tout ceux qui allaient à la salle de sport, le temps investi ainsi que le trajet pour s'y rendre peuvent être totalement optimisé en ces temps. Avec tous les tutos sur YouTube pour faire des exercices, je pense que l'on a vraiment pas d'excuse. Je ne pouvais pas autant faire de sport que maintenant donc je profite du maximum possible. Presque tous les jours au réveil, et à jeun. Je pense que le mieux est de le faire dès le début de la journée (ok je me lève à 14h, je plaide coupable), pour ne plus à s'en occuper et affronter la flemme. Ce dernier est vraiment un adversaire redoutable.
+
+- **Avancer sur mes projets.**
+Comme vous le savez, je
+
+- **Prendre du temps pour soi**
+De grandes remises en question, se divertir, lâcher prise. Il est très important pour éviter le plus possible la dépression ou le craquage.
 
 Le plus dur à bosser est la rigueur
 
