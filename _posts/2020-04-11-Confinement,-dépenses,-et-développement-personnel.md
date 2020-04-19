@@ -18,7 +18,11 @@ Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette 
 
 ### Crevard Stylé dans tout ça
 
-Crevard Stylé se met en suspens. Mais ne dort pas, enfin si, mais à l'aube seulement. Ce que l'Efficience du Style prône en ce moment c'est faire un point sur sa penderie. Et tester de nouvelles combinaisons que l'on avait jamais fait auparavant ou bien même de tenter l'inimaginable. Cela peut déboucher sur une Brèche
+Crevard Stylé se met en suspens. Mais ne dort pas, enfin si, mais à l'aube surtout en ce moment. #malalaise #jesuisdecalé  
+Ce que l'Efficience du Style prônerait en ces temps claustrophobes, serait de faire un point sur sa penderie. Et tester de nouvelles combinaisons que l'on avait jamais fait auparavant ou bien même de tenter l'inimaginable. Cela peut déboucher sur une Brèche visant à se développer dans son style.  
+
+Faire une mise à jour permettrait en plus de voir si vous avez des vêtements que vous voudriez vendre ou tout simplement donner. L'application Vinted sera votre plus fidèle allié. Ou encore donner vos sapes aux plus nécéssiteux. L'argent potentielle récoltée pourrait servir à préparer les nouvelles soldes quand tout ira pour le mieux et surtout pour le meilleur.
+En attendant de préparer les nouvelles remises, cet article vous fera le plus grand bien : [Anticiper les soldes](http://www.crevardstyle.com/Comment-anticiper-les-soldes-et-avoir-les-meilleurs-plans).
 
 ### No money, but more time ("pas d'argent, mais plus de temps")
 
