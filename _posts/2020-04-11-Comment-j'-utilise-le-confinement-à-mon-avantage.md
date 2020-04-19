@@ -1,7 +1,7 @@
 ---
 published: false
 layout: post
-date: 2020-04-11T00:00:00.000Z
+date: {}
 categories: articles
 author_slug: hyke
 feature_image: blackfont.png
@@ -10,7 +10,7 @@ feature_image: blackfont.png
 
 *Cet article peut être présenté comme la suite de celui-çi : [Comment le style influe sur le développement personnel](http://www.crevardstyle.com/Comment-le-style-influe-sur-le-d%C3%A9veloppement-personnel).*
 
-Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de ça, le but à mon sens serait d'être Efficient dans la globalité de son être. Un évenement qui nous limite en terme de déplacement et activité ne doit pas nous limiter dans notre développement. Que faire 
+Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le but de l'Efficience du Style. Mais au delà de ça, le but à mon sens serait d'être Efficient dans la globalité de son être. Un évenement qui nous limite en terme de déplacement et activité ne doit pas nous limiter dans notre développement. Que faire de bon en étant enfermé, et comment en tirer bénéfice ?
 
 ### Confinement et shopping
 
