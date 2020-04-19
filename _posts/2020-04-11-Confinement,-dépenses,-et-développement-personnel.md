@@ -62,14 +62,11 @@ De grandes remises en question, se divertir, lâcher prise. Il est très importa
 
 Avec ce confinement, on s'est tous fait dépassé par les évènements. Pas mal la rime. #punchline  
 Absolument rien dans la vie n'est acquis. Je pense que c'est la leçon de cette histoire. Mais tant qu'il y a de la vie, il y a de l'espoir. Quand tou reprendra comme avant, nous serons un peu plus averti sur la vie.
-N'oublions pas qu'il faut également faire preuve de gratitude de tout ce qui est en notre possession. C'est ce que j'ai tendance à me dire quand je veux acquérir une nouvelle paire de basket alors que je suis déjà content de ce que j'ai. 
+N'oublions pas qu'il faut également faire preuve de gratitude de tout ce qui est en notre possession. C'est ce que j'ai tendance à me dire quand je veux acquérir une nouvelle paire de basket alors que je suis déjà content de ce que j'ai. Gratitude pour nos biens, mais surtout pour notre santé. Que vous ne soyez pas infecté par ce virus ou que vous en soyez sorti indemne, alors Dieu merci, vous avez toujours du temps.
 
 Une de mes plus grandes peurs (oui j'en ai plusieurs, un vrai perreux celui-là) est le regret. Et avec tout ce temps qui nous est offert, je ne pourrais que regretter si je n'avais pas fait les choses que j'aurais pu faire pendant ce laps de temps. Ou dû moins, éviter le plus le regret, sentir malgré tout que j'ai avancé et que j'en ressort meilleur et plus fort pour croquer la vie à pleines dents telle une pomme bien juteuse (c'est bon les pommes, mangez-en) . #5fruitsetlégumes
 Même si je sens que je n'utilise pas mon temps de la meilleure façon possible, je préfère être dans cette démarche de chercher à optimiser ce dont on a de plus cher au monde, notre temps.
 
-Point sur sa penderie. Vinted reprend du service. Au pire, tu viendras à la fin du confinement. Ou bien tu peux mettre de côté des sapes à donner aux plus démunis.
-
-Je veux éviter les regrets. J'ai cette peur la.
 
 Le plus dur à bosser est la rigueur
 
