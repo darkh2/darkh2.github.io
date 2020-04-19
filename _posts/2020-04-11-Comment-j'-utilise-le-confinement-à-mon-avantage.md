@@ -19,10 +19,10 @@ Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant
 
 ### Crevard Stylé dans tout ça
 
-Crevard Stylé se met en suspens. Mais ne dort pas, enfin si, mais à l'aube surtout en ce moment. #malalaise #jesuisdecalé  
-Ce que l'Efficience du Style prônerait en ces temps claustrophobes, serait de faire un point sur sa penderie. Et tester de nouvelles combinaisons que l'on avait jamais fait auparavant ou bien même de tenter l'inimaginable. Cela peut déboucher sur une Brèche visant à se développer dans son style.  
+Crevard Stylé se met en suspens. Mais ne dort pas, enfin si, mais à l'aube surtout en ce moment. #malàlaise #jesuisdecalé  
+Ce que l'Efficience du Style prônerait en ces temps claustrophobes, serait de faire un point sur sa penderie. Et tester de nouvelles combinaisons que l'on avait jamais fait auparavant, ou bien même de tenter l'inimaginable. Cela peut déboucher sur une Brèche visant à se développer dans son style. Vous ne savez pas par où commencer ? Allez consulter cet article : [Trouver sa tenue du jour](http://www.crevardstyle.com/Comment-trouver-sa-tenue-du-jour). 
 
-Faire une mise à jour permettrait en plus de voir si vous avez des vêtements que vous voudriez vendre ou tout simplement donner. L'application Vinted sera votre plus fidèle allié. Ou encore donner vos sapes aux plus nécéssiteux. L'argent potentielle récoltée pourrait servir à préparer les nouvelles soldes quand tout ira pour le mieux et surtout pour le meilleur.
+Faire une mise à jour permettrait en plus de voir si vous avez des vêtements que vous voudriez vendre. L'application Vinted sera votre plus fidèle allié. Ou encore donner vos sapes aux plus nécéssiteux. L'argent potentielle récoltée pourrait servir à préparer les nouvelles soldes quand tout ira pour le mieux et surtout pour le meilleur plaisir du shopping.
 En attendant de préparer les nouvelles remises, cet article vous fera le plus grand bien : [Anticiper les soldes](http://www.crevardstyle.com/Comment-anticiper-les-soldes-et-avoir-les-meilleurs-plans).
 
 ### No money, but more time ("pas d'argent, mais plus de temps")
@@ -68,15 +68,6 @@ N'oublions pas qu'il faut également faire preuve de gratitude de tout ce qui es
 Une de mes plus grandes peurs (oui j'en ai plusieurs, un vrai perreux celui-là) est le regret. Et avec tout ce temps qui nous est offert, je ne pourrais que regretter si je n'avais pas fait les choses que j'aurais pu faire pendant ce laps de temps. Ou dû moins, éviter le plus le regret, sentir malgré tout que j'ai avancé et que j'en ressort meilleur et plus fort pour croquer la vie à pleines dents telle une pomme bien juteuse (c'est bon les pommes, mangez-en) . #5fruitsetlégumes
 Même si je sens que je n'utilise pas mon temps de la meilleure façon possible, je préfère être dans cette démarche de chercher à optimiser ce dont on a de plus cher au monde, notre temps.
 
+### L'après confinement pour vous les messieurs célibataires...
 
-Le plus dur à bosser est la rigueur
-
-Gratitude si vous n'êtes pas infecté
-
-Rien ne nous empêche de développer votre style pendant que vous êtes à la maison. Jetez un oeil sur votre dressing. En dehors de faire un tri sur vos vêtements, il serait peut-être temps de tester de nouvelles combinaisons de sapes. Si vous êtes en panne d'inspiration, cet article vous aidera, comment trouver sa tenue du jour.
-
-Prenez impérativement vos précautions, on ne sait pas ce que l'Avenir nous réserve. La vie n'est pas à prendre pour acquis. On optimise son style, certes, mais faites en sorte de limiter la casse le plus possible, mangez bien, instruisez-vous, optimisez tant que vous avez du temps devant vous.
-
-### L'après confinement...
-
-Si vous êtes un homme, et que vous comptez faire de nouvelles rencontres après cette longue periode enfermée, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv.
+Si vous êtes célibataire, et que vous comptez faire de nouvelles rencontres après cette longue periode d'enfermement, n'hésitez pas à jeter un coup d'oeil à l'article vous permettant de trouver la bonne tenue pour un premier rdv. C'est [ICI](http://www.crevardstyle.com/Quelle-est-la-tenue-parfaite-pour-un-premier-rendez-vous) que ça se passe.
