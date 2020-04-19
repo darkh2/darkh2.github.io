@@ -14,7 +14,8 @@ Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le 
 
 ### Confinement et shopping
 
-Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette période. Les priorités pendant ces temps durs, sont le développement de notre personne, ainsi que de tout simplement manger à notre faim. Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant la durée de ce confinement (et après) me met en garde face aux éventuels besoins économiques qui seront amenés à être sollicités si les cessations d'activités perduraient. Ma penderie suffit largement, et je ne sors que très rarement. Je ne vois aucune nécéssité en cet instant de placer mes deniers sur ce type de produit. Je ne vous cache pas que cela n'est pas toujours facile de me retenir à la consommation, mais la survie me pousse à agir de la sorte.
+Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette période. Les priorités pendant ces temps durs, sont le développement de notre personne, ainsi que de tout simplement manger à notre faim. Manger à notre faim contribue au développement de notre personne. Suis-je en train de me répeter ?  
+Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant la durée de ce confinement (et après) me met en garde face aux éventuels besoins économiques qui seront amenés à être sollicités si les cessations d'activités perduraient. Ma penderie suffit largement, et je ne sors que très rarement. Je ne vois aucune nécéssité en cet instant de placer mes deniers sur ce type de produit. Je ne vous cache pas que cela n'est pas toujours facile de me retenir à la consommation, mais la survie me pousse à agir de la sorte.
 
 ### Crevard Stylé dans tout ça
 
