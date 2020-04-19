@@ -14,7 +14,7 @@ Toujours tenter d'être plus stylé en dépensant le moins possible. Tel est le 
 
 ### Confinement et shopping
 
-Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette période. Les priorités pendant ces temps durs, sont le développement de notre personne, ainsi que de manger à notre faim. Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant la durée de ce confinement (et après) me met en garde face aux éventuels besoins économiques qui seront amenés à être sollicités si les cessations d'activités perduraient. Ma penderie suffit largement, et je ne sors que très rarement. Je ne vois aucune nécéssité en cet instant de placer mes deniers sur ce type de produit. Je ne vous cache pas que cela n'est pas toujours facile de me retenir à la consommation, mais la survie me pousse à agir de la sorte.
+Je ne compte pas dépenser un seul centime pour acheter des vêtements en cette période. Les priorités pendant ces temps durs, sont le développement de notre personne, ainsi que de tout simplement manger à notre faim. Je pourrais totalement faire du shopping en ligne, mais l'incertitude concernant la durée de ce confinement (et après) me met en garde face aux éventuels besoins économiques qui seront amenés à être sollicités si les cessations d'activités perduraient. Ma penderie suffit largement, et je ne sors que très rarement. Je ne vois aucune nécéssité en cet instant de placer mes deniers sur ce type de produit. Je ne vous cache pas que cela n'est pas toujours facile de me retenir à la consommation, mais la survie me pousse à agir de la sorte.
 
 ### Crevard Stylé dans tout ça
 
@@ -58,7 +58,7 @@ De grandes remises en question, se divertir, lâcher prise. Il est très importa
 
 Avec ce confinement, on s'est tous fait dépassé par les évènements. Pas mal la rime. #punchline  
 Absolument rien dans la vie n'est acquis. Je pense que c'est la leçon de cette histoire. Mais tant qu'il y a de la vie, il y a de l'espoir. Quand tou reprendra comme avant, nous serons un peu plus averti sur la vie.
-N'oublions pas qu'il faut également faire preuve de gratitude de tout ce qui est en notre possession. C'est ce que j'ai tendance à me dire quand je veux acquérir une nouvelle paire de basket alors que je suis déjà content de ce que j'ai.
+N'oublions pas qu'il faut également faire preuve de gratitude de tout ce qui est en notre possession. C'est ce que j'ai tendance à me dire quand je veux acquérir une nouvelle paire de basket alors que je suis déjà content de ce que j'ai. 
 
 Une de mes plus grandes peurs (oui j'en ai plusieurs, un vrai perreux celui-là) est le regret. Et avec tout ce temps qui nous est offert, je ne pourrais que regretter si je n'avais pas fait les choses que j'aurais pu faire pendant ce laps de temps. Ou dû moins, éviter le plus le regret, sentir malgré tout que j'ai avancé et que j'en ressort meilleur et plus fort pour croquer la vie à pleines dents telle une pomme bien juteuse (c'est bon les pommes, mangez-en) . #5fruitsetlégumes
 Même si je sens que je n'utilise pas mon temps de la meilleure façon possible, je préfère être dans cette démarche de chercher à optimiser ce dont on a de plus cher au monde, notre temps.
