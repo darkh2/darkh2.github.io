@@ -33,7 +33,7 @@ Ne vous inquiétez pas. Je vous avoue que je n'ai pas de rentrée d'argent en ce
 ### Plus de temps, oui mais enfermé ! Que faire ?
 
 Etablir une liste de priorités. Voici les questions que vous devez vous poser : 
-- Qu'est ce que je ne pouvais pas faire pendant le taf (ou du moins avant ce confinement) et que je peux et veux faire en étant enfermé ? 
+- Qu'est ce que je ne pouvais pas faire de bénéfique pour moi pendant le taf (ou du moins, avant ce confinement) et que j'ai enfin l'opportunité de faire en étant enfermé ? 
 - De quoi aurais-je besoin après ce confinement ? 
 - Comment je veux en sortir ? 
 - Quelle personne je veux devenir à l'issue de cette épreuve ?
