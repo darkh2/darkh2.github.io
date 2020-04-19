@@ -4,7 +4,7 @@ layout: post
 date: 2020-04-19T00:00:00.000Z
 categories: articles
 author_slug: hyke
-feature_image: blackfont.png
+feature_image: confinement.jpg
 ---
 ## Comment j'utilise le confinement à mon avantage.
 
